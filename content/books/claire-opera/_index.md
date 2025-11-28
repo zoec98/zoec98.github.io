@@ -1,6 +1,6 @@
 ---
-title: "Claire and Ethan at the Opera (Claire 2)"
-weight: 80
+title: "Claire and Ethan at the Opera (Claire 5)"
+weight: 110
 bookCollapseSection: true
 date: 2025-01-26T00:00:00Z
 description: |

@@ -1,6 +1,6 @@
 ---
-title: "Claire turns the Tables (Claire 4)"
-weight: 100
+title: "Claire turns the Tables (Claire 2)"
+weight: 80
 bookCollapseSection: true
 date: 2025-10-12T00:00:00Z
 description: |
