@@ -2,4 +2,4 @@
 title: "Welcome"
 ---
 
-Book Nook collects finished and in-progress stories alongside a tiny blog announcing project milestones.
+This is the permanent home for my stories outside of DeviantArt.

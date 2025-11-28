@@ -1,6 +1,6 @@
 ---
 title: "Shadow Siren"
-weight: 2
+weight: 10
 bookCollapseSection: true
 ---
 
