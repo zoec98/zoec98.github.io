@@ -25,14 +25,13 @@ description: |
 
 ---
 
-
+{{% details title="**Storycodes**" open=true %}}
 **Storycodes:** ffm, sissy, chastity, humiliation, multiple-slaves, harem-dynamics, orgasm-denial,
 forced-orgasm, slave-training, obedience-conditioning, domestic-service,
 pain-and-pleasure, ownership, consent-drift, corruption
+{{% /details %}}
 
-**An archaeologist’s Atlantean collar awakens devotion, claims colleagues one by one,
-and turns a lover’s submission into an empire of ownership.**
-
+{{% details title="**An archaeologist’s Atlantean collar awakens devotion, claims colleagues one by one, and turns a lover’s submission into an empire of ownership.**" open=true %}}
 *Fresh from a Canary Islands dig, Sonia brings back a collar that reshapes love into worship.
 At first it binds only her girlfriend Marion, whose devotion blooms into need,
 but soon the other relics stir—belts, bands, shackles, even towering heels.
@@ -43,3 +42,4 @@ The artifacts enforce obedience with pleasure and pain,
 drawing Sonia further into a role she both fears and savors: mistress, tamer, Queen.
 Part romance, part BDSM fantasy, part sci-fi corruption tale, this story traces how consent blurs,
 desire consumes, and ancient Atlantean technology rebuilds a world where ownership is love.*
+{{% /details %}}
