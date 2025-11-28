@@ -1,8 +1,10 @@
 ---
-title: "Hello, World! Launch"
-date: 2024-01-01T00:00:00Z
-description: "Introduces the story collection and signals how updates will work."
+title: "Hello, World!"
+date: 2025-11-28T00:00:00Z
+description: "Zoé's Stories will now also live here"
+tags: [ "Site Update" ]
 draft: false
 ---
 
-Book Nook is now powered by Hugo with the Book theme. Expect infrequent but meaningful updates whenever a story milestone lands.
+"Zoé's Stories" will now also live here, and not just on dA, so that they have a more permament home.
+I do not expect to blog much, but it is good to also have that option to publish short updates.
