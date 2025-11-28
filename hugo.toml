@@ -79,17 +79,17 @@ style = 'base16-snazzy'
   home = ["HTML", "RSS", "JSON"]
 
 [menu]
-    [[menu.main]]
-    identifier = "books"
-    name = "Books"
-    url = "/books/"
-    weight = 10
-
     [[menu.before]]
     identifier = "blog"
     name = "Blog"
     url = "/posts/"
     weight = 1
+
+    [[menu.after]]
+    name = "Zoé on DeviantArt"
+    url = 'https://deviantart.com/zoec98'
+    weight = 20
+
 
     [[menu.after]]
     name = "Zoé on Github"

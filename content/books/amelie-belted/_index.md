@@ -1,7 +1,8 @@
 ---
 title: "Belted"
 weight: 20
-bookCollapseSection: false
+bookCollapseSection: true
+date: 2024-12-09T00:00:00Z
 description: |
 
   Storycodes: F/f, femdom, chastity-belt, keyholder, time-lock,
