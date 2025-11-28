@@ -1,6 +1,6 @@
 ---
-title: "Belted (Amelie)"
-weight: 20
+title: "Belted (Amelie 3)"
+weight: 40
 bookCollapseSection: true
 date: 2024-12-09T00:00:00Z
 description: |

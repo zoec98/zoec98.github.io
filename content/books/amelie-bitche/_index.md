@@ -1,5 +1,5 @@
 ---
-title: "Bitche (Amelie)"
+title: "Bitche (Amelie 2)"
 weight: 30
 bookCollapseSection: true
 date: 2024-12-01T00:00:00Z
