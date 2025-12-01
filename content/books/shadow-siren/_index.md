@@ -1,7 +1,7 @@
 ---
 title: "Shadow Siren"
 weight: 10
-bookCollapseSection: true
+bookCollapseSection: false
 date: 2025-10-12T00:00:00Z
 description: |
   **Storycodes**: Mf, noncon, bdsm, kidnapping, torture, humiliation,
