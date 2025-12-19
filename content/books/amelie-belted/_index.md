@@ -41,6 +41,12 @@ It also really encourages the wearer to not touch it._
 
 {{% /details %}}
 
+## EPUB
+
+Read below, or click on the image for the EPUB download:
+
+[![](amelie-title.jpg)](belted.epub)
+
 # Belted
 
 ## A bad decision

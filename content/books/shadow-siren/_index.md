@@ -39,6 +39,12 @@ This is a dark, sci-fi captivity tale about power, sadism, public use,
 and the slow breaking of a thief who once fought for justice.
 {{% /details %}}
 
+## EPUB
+
+Read below, or click on the image for the EPUB download:
+
+[![](shadow-siren-title.jpg)](shadow-siren.epub)
+
 
 # The Garden Party
 
