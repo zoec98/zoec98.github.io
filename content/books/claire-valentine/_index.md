@@ -30,6 +30,12 @@ Every two hours she has to be safe and alone in the lavatory,
 when he calls her up on her cellphone and… orders her to do things.
 {{% /details %}}
 
+# EPUB
+
+Read below, or click on the image for the EPUB download:
+
+[![](claire-title.jpg)](claire-s-valentines-day.epub)
+
 
 # Claire's Valentine's Day
 
