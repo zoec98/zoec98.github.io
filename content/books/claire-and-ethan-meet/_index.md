@@ -24,6 +24,12 @@ They banter, and it turns out that Claire is willing to try out bondage with Eth
 They start with what was supposed to be a beginners rope session, but their relationship quickly progresses.
 {{% /details %}}
 
+# EPUB
+
+Read below, or click on the image for the EPUB download:
+
+[![](title.jpeg)](how-ethan-met-claire.epub)
+
 
 # Campus Canteen
 
