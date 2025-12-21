@@ -37,6 +37,12 @@ What begins as captivity slowly reshapes her body and soul, binding her to a des
 
 {{% /details %}}
 
+# EPUB
+
+Read below, or click on the image for the EPUB download:
+
+[![](ang-title.jpg)](angelique.epub)
+
 
 # Angelique
 
