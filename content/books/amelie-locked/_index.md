@@ -113,6 +113,12 @@ an informal thread that more or less weaves all my stories losely together.
 
 {{% /details %}}
 
+# EPUB
+
+Read below, or click on the image for the EPUB download:
+
+[![](locked-title.jpg)](locked.epub)
+
 
 # Locked
 
