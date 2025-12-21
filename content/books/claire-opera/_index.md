@@ -28,6 +28,12 @@ Claire packages herself in invisible self-bondage under her dress.
 Ethan takes her to the Opera and takes full advantage of the remote control.
 {{% /details %}}
 
+# EPUB
+
+Read below, or click on the image for the EPUB download:
+
+[![](claire-opera-title.jpg)](at-the-opera.epub)
+
 
 ## Dressing Up
 
