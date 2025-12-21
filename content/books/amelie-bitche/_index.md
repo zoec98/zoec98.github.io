@@ -38,6 +38,12 @@ and by morning the collar at her throat marks a truth she can no longer hide: sh
 
 {{% /details %}}
 
+# EPUB
+
+Read below, or click on the image for the EPUB download:
+
+[![](bitche-title.jpg)](bitche.epub)
+
 
 # The Citadel
 
