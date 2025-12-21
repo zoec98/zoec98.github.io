@@ -27,6 +27,12 @@ Claire discovers how far Ethan will push her composure in public.
 
 {{% /details %}}
 
+# EPUB
+
+Read below, or click on the image for the EPUB download:
+
+[![](claire-title.jpg)](claire-and-ethan-at-the-restaurant.epub)
+
 # Claire and Ethan visit a Restaurant
 
 Claire was getting ready to go out with Ethan for a Christmas dinner.
