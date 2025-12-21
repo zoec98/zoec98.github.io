@@ -34,6 +34,12 @@ Their eventual release is shared, deep, and earned, leaving them wrapped togethe
 
 {{% /details %}}
 
+# EPUB
+
+Read below, or click on the image for the EPUB download:
+
+[![](claire-title.jpg)](claire-turns-the-tables.epub)
+
 
 # Claire turns the Tables
 
