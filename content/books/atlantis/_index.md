@@ -45,6 +45,12 @@ desire consumes, and ancient Atlantean technology rebuilds a world where ownersh
 
 {{% /details %}}
 
+# EPUB
+
+Read below, or click on the image for the EPUB download:
+
+[![](collar-title.jpg)](the-atlantean-slave-collar.epub)
+
 
 ## The Dig
 
