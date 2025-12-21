@@ -41,7 +41,7 @@ It also really encourages the wearer to not touch it._
 
 {{% /details %}}
 
-## EPUB
+# EPUB
 
 Read below, or click on the image for the EPUB download:
 
