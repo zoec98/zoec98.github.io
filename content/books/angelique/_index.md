@@ -25,7 +25,7 @@ noncon, mc, hypnokink, slavery, ff, mf, md, fd, bodymod,
 piercing, anal, oral, hum, bdsm, training, harem, exotic, transformation.
 {{% /details %}}
 
-{{% details title="**A young influencer is abducted, sold into a harem and hypnotized into submission.**" open=true %}}
+{{% details title="**A young influencer is abducted, sold into a harem and hypnotized into submission.**"  %}}
 
 *Angelique, a young influencer and content creator,
 joins her friends on a sailing cruise across the Mediterranean, dreaming of sunlit waters and carefree days.
