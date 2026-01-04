@@ -34,6 +34,7 @@ Read below, or click on the image for the EPUB download:
 
 [![](claire-opera-title.jpg)](at-the-opera.epub)
 
+# Claire and Ethan at the Opera
 
 ## Dressing Up
 

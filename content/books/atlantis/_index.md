@@ -51,6 +51,7 @@ Read below, or click on the image for the EPUB download:
 
 [![](collar-title.jpg)](the-atlantean-slave-collar.epub)
 
+# The Atlantean Slave Collar
 
 ## The Dig
 

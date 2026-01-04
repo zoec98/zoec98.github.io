@@ -40,6 +40,14 @@ and the delicate intimacy that follows when release finally comes.
 
 {{% /details %}}
 
+# EPUB
+
+Read below, or click on the image for the EPUB download:
+
+[![](corinne-title.jpg)](the-suit.epub)
+
+# The Suit
+
 Corinne placed the large, heavy package on the dining table,
 examining it with excitement.
 She had waited weeks for this, tracking its progress with eager anticipation.
