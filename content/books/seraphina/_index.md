@@ -41,7 +41,11 @@ A darkly elegant story of revenge, control, and the uneasy boundary between surv
 
 {{% /details %}}
 
-![](seraphina-title.jpg)
+# EPUB
+
+Read below, or click on the image for the EPUB download:
+
+[![](seraphina-title.jpg)]()
 
 # India
 
@@ -1163,6 +1167,8 @@ The second landed, sharper than the first, and her palm burned with pain.
 The third strike bit cruelly against her skin, her fingers instinctively twitching from the sting.
 
 “Three,” she finished, her voice even. “Thank you, Miss Blackthorn.”
+
+![](seraphina.jpg)
 
 Tears pricked at the edges of her vision, but she held them back, forcing her mind to another place.
 She remembered a time in the jungle when she had stepped barefoot onto a thorny vine,
