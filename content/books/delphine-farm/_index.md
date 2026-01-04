@@ -44,6 +44,12 @@ and follows an adult heroine reclaiming desire on her terms as another woman inv
 
 {{% /details %}}
 
+# EPUB
+
+Read below, or click on the image for the EPUB download:
+
+[![](farm-title.jpg)](delphine-takes-a-break.epub)
+
 # Delphine takes a Break
 
 ## Safewording from Business
@@ -114,6 +120,8 @@ dressed in sleek riding pants and tall boots, a crisp white blouse completing th
 She greeted Delphine with a warm hug, the faint scent of leather clinging to her.
 “Come, I’ll show you around,” Amelie said, her tone casual,
 as if everything about this arrangement was perfectly normal.
+
+![](farm.jpg)
 
 The farmhouse stood two stories tall, its ochre façade weathered by sun and wind, shutters painted a fading blue.
 Ivy curled along the edges of the stone walls, framing windows that reflected the golden light of late afternoon.
