@@ -3,147 +3,128 @@ title: "Chapter 33: The Eden Nexus"
 weight: 33
 ---
 
+
 # The Eden Nexus
 
-Anna and Julien's visit to the Eden Nexus was a highlight of their trip,
-a chance to see firsthand the innovative measures Britain was taking to combat climate change.
-Located down the River Thames in Coldharbour near Rainham,
-the Eden Nexus sprawled between Coldharbour Point and the former A13,
-an area
-transformed into a series of biome domes that echoed both pre-climate change and current environmental conditions.
-This facility served as a visitor center, research hub, and wildlife preserve,
-an extension of the principles pioneered by the Eden Project in Cornwall,
-now supported by cross-party funding under Changed influence.
+The Eden Nexus sat downriver in a stretch of transformed landscape so deliberate it looked almost fictional from the train.
 
-Upon arrival, they were greeted by Jonathan Vane's Eleanor.
-She was dressed in a heavy protective latex suit complete with a full hood that covered her face and hair,
-and in rubber platform boots that allowed her to navigate the soft underground.
-Her suit had an integrated corset designed to maintain her figure, and a wide collar.
-Between her legs the lines of her chastity belt with its exposed and gleaming maintenance adapter
-were clearly visible under the latex, but she was otherwise uncovered and unrestrained.
-Her outfit, designed for practicality in her fieldwork,
-allowed her comparative freedom of movement and was splattered with mud from her hands-on work in the biomes.
+Domes rose from former industrial ground with a confidence Anna found immediately appealing: environmental engineering made visible, but not ugly, and every structure carrying the same British instinct she had already begun to recognize elsewhere. Nothing merely existed. Everything managed something.
 
-Anna, in contrast, was dressed in quintessential British Changed fashion:
-a medium-thick teal catsuit
-paired with rubber stockings and a Victorian blouse that allowed her some freedom of head movement—a relative luxury.
-Her blowup latex skirt, while stylish, significantly restricted her gait,
-and her hands were securely locked within her muff, further limiting her movement.
-She was attached to the rail system ensuring she remained within the designated areas.
+Julien seemed pleased by her eagerness.
 
-As Anna walked through the Eden Nexus,
-she marveled at the lush, meticulously maintained biomes that simulated various climatic conditions,
-showcasing both native and newcomer plant species.
-Each dome was a testament to the ingenuity and dedication of researchers like Eleanor.
-Eleanor led them through the various exhibits,
-explaining the sustainable technologies and conservation strategies in place.
-One dome replicated a temperate rainforest environment,
-utilizing aerial fog collectors to mimic natural humidity and gather water without external input.
-Another featured a pre-climate change Scottish biome,
-rather freezing by today's standards, where advanced insulation techniques minimized energy use
-while maintaining the cold environment necessary for its flora and fauna.
-Other domes showcased other typical British landscapes,
-comparing pre-climate change and contemporary environments.
+He had dressed her in one of the teal catsuits under a Victorian blouse, latex stockings, and an inflated skirt restrictive enough to keep her pace short without making a day trip impossible. Her hands were locked into the muff again. A hat with layered veils softened her face without muting her completely. The rail attachment at her corset kept her beside him in a calm line of dependence she now found more soothing than embarrassing.
 
-As Anna followed Julien and Eleanor, her movements restricted, 
-she envied Eleanor, who was able to roam comparatively freely.
-Anna's slow, mincing steps and the constant presence of the rail systems guidance made her acutely aware 
-of the physical limitations imposed by her attire and societal expectations.
-Yet, she was unsure what to think of Eleanor's appearance.
-Her outfit was a stark reminder of the functional flexibility required for fieldwork,
-even if it seemed shockingly unrestrained and revealing to Anna.
-Anna's own outfit, while restrictive, signified her status and Julien's care in adhering to societal expectations,
-which she found both comforting and confining.
+Their guide introduced herself as Jonathan Vane's Eleanor.
 
-As they continued their tour through the Eden Nexus,
-Anna couldn't help but feel a twinge of jealousy watching Julien and Eleanor interact.
-Their laughter and easy conversation spoke of a shared history and camaraderie
-that predated her relationship with Julien.
-Eleanor, with her practical latex suit and unrestricted mobility, seemed a stark contrast to Anna,
-clad in her restrictive attire and tethered to the rail system.
+Anna's first reaction was confusion so sharp it nearly became offense.
 
-Julien and Eleanor reminisced about a particularly adventurous field trip they had taken during their university days,
-where they camped in the Scottish Highlands, studying the local ecosystem.
-Their stories were filled with mishaps and laughter,
-including a night when they had to huddle together for warmth after their tent collapsed in a storm.
+Eleanor looked more exposed than any respectable woman in Geneva ever would have, even though her outfit was plainly functional rather than provocative. Heavy protective latex still streaked with mud. Practical platform boots. A broad collar. An integrated corset line. The visible maintenance adapter of her chastity belt under the suit. Her face hidden by a hood made for field conditions, not prettiness. She looked like someone the weather and the work had been allowed to touch directly.
 
-Anna listened, her hands secured within the muff, rendering her unable to gesture or easily join in the conversation.
-The restriction was a physical reminder of her role as Julien's ward,
-meant to support and follow rather than to lead or challenge.
-As jealousy simmered within her, she felt the urge to make a snide remark about how cozy they must have been,
-sharing warmth on that cold Highland night.
-However, she quickly stifled the impulse, acutely aware of the consequences.
-Julien, who was usually understanding, would not tolerate such behavior in public,
-especially not disrespect toward an old friend.
-The possibility of being gagged loomed in her mind—a suitable correction for stepping out of line.
+Anna, arranged in careful British elegance at Julien's side, felt both superior and immediately defensive.
 
-Anna exhaled slowly, the tightness of her corset mingling with the emotional restraint she was learning to embrace.
-"I must remember my place," she reminded herself silently.
-"Supporting Julien means trusting his judgment, including his friendships."
-The physical constraints of her attire—her locked hands,
-the rail system keeping her close but controlled—served as a tangible reminder of her commitment to this role.
-These restraints, though limiting, were paradoxically comforting.
-They provided clear boundaries that helped her navigate complex social situations,
-reminding her of the decorum expected of her as Julien's ward.
+Eleanor did not appear to notice.
 
-As they moved on to the next exhibit, Anna focused on the positive aspects of her situation.
-The rail system not only kept her safe but also subtly enforced the propriety that was so valued in their society.
-Each step she took, each word she chose not to say,
-reinforced her dedication to Julien and to the life they were building together.
+"Mr. Moreau," she said. "And this must be Anna."
 
-Once inside the administration building, Julien unhitched Anna from her cape and muff,
-adjusting the rail system to allow her free movement within the building.
-They headed towards the women's locker room and showers
-where Eleanor needed to clean up after her rigorous day in the field.
+Julien made the introductions. Anna answered with a polite greeting through her veil.
 
-Anna assisted Eleanor, directing a hose to wash down her thick latex suit,
-the cold water sluicing off the dirt and mud accumulated from her work.
-With gentle efficiency, Eleanor unfastened her hood,
-revealing a face marked by the practicalities of her job—flat-faced bare, without make-up,
-absent any adornment that might have interfered with her hood.
+"Good," Eleanor said. "That will save time."
 
-Eleanor then stepped out of her plump rubber platform shoes and slipped into more delicate heeled knee boots.
-Before dressing further, she entered a service booth.
-Anna watched, fascinated as Eleanor's feet were clamped about a meter apart.
-Eleanor then placed her hands into grips at shoulder height, which clamped shut, locking her hands in place.
-A maintenance adapter rose between her feet, attaching to her chastity belt.
-The device initiated a cleansing enema,
-managed her bladder through an integrated catheter,
-and rinsed out the system—all automated and beyond Eleanor's control.
-Anna observed the entire process,
-noting Eleanor's resigned acceptance of the procedure that rendered her helplessly compliant to the maintenance routine.
+The remark should have charmed Anna.
 
-Once released, Eleanor dressed in a Victorian blouse and a latex skirt, layering these over her thick catsuit.
-She covered her flattened hair with a bonnet,
-securing several veils across her face to mask her minimalistic appearance.
-The fieldwork necessitated severe aesthetic compromises, but Eleanor carried them with a sense of routine duty.
+Instead it unsettled her. Eleanor moved through the place with the loose authority of a woman whose usefulness had made certain concessions possible. She was obviously restrained, but according to a logic different from Anna's own, not less dependent so much as dependent elsewhere.
 
-Eleanor, noting Anna's intrigued gaze during the cleansing process, inquired about her own routines.
-Learning that Anna did not wear a belt and that such devices were uncommon on the continent,
-Eleanor expressed her astonishment.
-"Julien can take you anytime, anywhere, without a belt?" she gasped, her voice tinged with disbelief.
+Eleanor led them through biome domes that recreated climates and managed transitions with technical confidence: fog capture, rainwater systems, thermal layering, preserved habitats, invasive newcomers, pre-collapse landscapes held in careful simulation beside their altered descendants. Julien was genuinely interested. Anna was too, but she kept finding her attention pulled sideways toward Eleanor.
 
-Anna, her smile hidden beneath her own veils, felt a flicker of pride.
-"Yes, he can," she signed back, her gestures graceful.
-In that moment, Anna realized that jealousy could indeed go both ways,
-and that each of their situations had its own unique advantages and constraints.
+She watched how Julien listened to her.
+She watched how easily old familiarity moved between them.
+She watched Eleanor stride where Anna had to glide.
 
-Reflecting on the earlier pangs of jealousy she had felt toward Eleanor, Anna now saw them in a new light.
-She appreciated that their roles, though different,
-were built on similar foundations of trust and submission to their guardians.
-The restraints and protocols
-that had once sparked her envy now seemed less like barriers and more like bridges—connections to understanding
-and respecting the varied lives within their society.
+The jealousy started there, quietly.
 
-As they left the locker room, Anna felt a renewed sense of camaraderie with Eleanor.
-Her earlier reservations had faded,
-replaced by an acknowledgment of their shared experiences as wards under the Changed ethos.
-They were different, yet fundamentally the same in many ways.
-Anna was thankful for the restraints that had earlier kept her composed,
-realizing they were not just physical limitations but also guides
-that helped maintain decorum and respect in their interactions.
+It was not a simple fear of losing Julien to Eleanor. Eleanor represented a kind of female usefulness Anna did not possess, one that seemed to earn freedom of movement, practical clothing, open competence, conversational equality. Anna, clipped to Julien and prettied into dependence, suddenly felt ornamental in a way that stung.
 
-Walking back to meet Julien, Anna felt lighter, unburdened by jealousy,
-and enriched by the new friendship that had just begun to blossom between her and Eleanor.
-"Sir, thank you for taking me here and showing me all this and allowing me to find new friends,"
-she signed to Julien as she returned.
+Eleanor was explaining one of the colder domes when Julien laughed at something from an older field story. Eleanor laughed too, and for a second they were visibly people who had once known each other before Anna existed in this arrangement at all.
+
+The feeling in Anna's chest sharpened.
+
+Her hands were shut away in the muff. She could not break into the conversation gracefully, and even turning toward Julien required permission from the rail and skirt. The whole outfit that had pleased her so much an hour earlier now seemed built to remind her of her place.
+
+That was, of course, because it was.
+
+She hated how much the thought steadied her.
+
+When they stopped in the administration building so Eleanor could clean up after field work, Julien unhitched Anna from the outdoor rail and adjusted the attachment for indoor range. The freedom was relative, but enough. Eleanor disappeared into the women's service area and reappeared a moment later holding out a hose with matter-of-fact confidence.
+
+"Would you mind?"
+
+Anna took it at once.
+
+Helping another woman undress for maintenance should have felt intimate in a way she would need to think about later. In the moment it mostly felt practical. She rinsed mud from the latex while Eleanor stood with her arms slightly out from her sides and the water sheeted down over the dark material. The suit was engineered for labor, and the labor had marked it openly.
+
+When Eleanor peeled back the hood, Anna saw a face almost shockingly bare: no painted softness, no ornamental veil, no effort spent on prettiness beyond simple care. For a second Anna felt almost embarrassed by the amount of time she herself spent being arranged.
+
+That feeling did not survive what came next.
+
+Eleanor stepped into the maintenance booth to attach the evacuation adapter to her chastity belt with the same resigned ease Anna used when lifting her veils to eat in public. The process was not decorative and did not attempt to be. Foot clamps. Wrist grips. The adapter rising between her feet to meet the exposed fitting of the belt. Cleaning, emptying, rinsing, reset. Everything done by system. Everything efficient. Everything beyond her control for the duration.
+
+Anna watched with something like fascination.
+
+Eleanor, noticing, gave the smallest shrug available under the mechanism.
+
+"Field day," she said. "Best not to romanticize the practicals."
+
+Anna lowered her gaze briefly in acknowledgment.
+
+"I was not mocking."
+
+"I know."
+
+When Eleanor emerged and began dressing for the administrative part of the day, the earlier contrast clarified itself. She did not become less controlled when she changed. She became differently controlled. Blouse. Latex skirt. Bonnet. Veils. Public composure layered over the hidden mechanical necessities of a working ward whose body had to be managed for reasons Anna herself did not share.
+
+It struck Anna then that jealousy had been too simple a word for what she felt.
+
+Eleanor's life contained ugliness Anna would not have wanted.
+Anna's life contained ornamental dependence Eleanor clearly did not receive.
+Neither of them was free.
+Both of them were cherished in ways shaped by use.
+
+That last thought startled her.
+
+She said it quietly while fastening the last of the outer buttons for her:
+
+"You work very hard."
+
+Eleanor's eyes flicked to hers.
+
+"So do you."
+
+Anna almost denied it. Then she stopped.
+
+Because from Eleanor's point of view the answer was probably obvious. The clothes. The rail. The muff. The posture. The effort of being beautiful in the approved way all day long. That too was labor, only in another register.
+
+"Differently."
+
+"Yes," Eleanor said. "Differently."
+
+That was the moment the jealousy began to loosen.
+
+It did not loosen into friendship, not yet, but into recognition.
+
+By the time they returned to Julien, Anna no longer felt diminished by Eleanor's practicality. She had glimpsed another branch of the same order: another way a woman could be bound, maintained, and valued inside it.
+
+Julien looked between them and saw enough to ask no foolish questions.
+
+"All well?"
+
+Anna answered with deliberate clarity.
+
+"Yes, Sir. Thank you for bringing me."
+
+He watched her face.
+
+"You mean that."
+
+"Yes, Sir."
+
+And she did. The day had shown her something useful about the world being larger than the small vanity of imagining her own restrictions the only meaningful kind. Her life was not better than Eleanor's or worse, only shaped for another use. Walking back through the Nexus at Julien's side, rail lightly guiding her and muff warm at her waist, Anna felt lighter for having understood that.

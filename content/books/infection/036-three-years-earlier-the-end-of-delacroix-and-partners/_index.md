@@ -3,449 +3,553 @@ title: "Chapter 36: Three years earlier: The End of Delacroix and Partners"
 weight: 36
 ---
 
+
 # Three years earlier: The End of Delacroix and Partners
 
-Mara Delacroix sat in the plush leather chair that had been hers for nearly a decade,
-staring at the familiar but now alien surroundings of her office.
-She would have to leave the comforting scent of polished wood and leather behind.
-The towering bookcases, filled with volumes of corporate law, mocked her.
-They were symbols of her past life—a life where she had been at the pinnacle of her profession,
-feared and respected in equal measure.
-
-But that life was gone, and in its place was this hollow, confusing existence dictated by the virus.
-The conditioning of Change had taken root in her mind, insidiously weaving itself into her thoughts and actions.
-She had fought it at first, of course.
-Mara the Merciless was not one to bow easily, even to a force as pervasive as LASS-VASH-2024.
-But resistance had proven futile.
-The urges, the compulsions, were like chains, slowly tightening around her will,
-leaving her trapped between the person she had been and the person she was being forced to become.
-
-The sale had been finalized that morning.
-Delacroix & Partners would soon be Renard and Girard,
-its control passed to her two male partners, Paul Renard and Antoine Girard.
-They had been younger when she took them on, eager to learn and content to let her lead.
-Now, they were seasoned professionals, poised to take the firm into a future that she would no longer be a part of.
-A small part of her wondered if they pitied her.
-That thought alone was enough to send a surge of anger through her—anger quickly quelled by the virus’s conditioning.
-She had to keep herself in check.
-
-She had agonized over the decision to sell.
-Her pride, her relentless need to be in control,
-had warred with the realization that she could no longer function at the level required to keep the firm afloat.
-In the end, pragmatism had won out.
-It always did.
-Or at least, it used to.
-
-A soft knock on the door interrupted her thoughts.
-Her secretary, Juliette, entered the room.
-Juliette, now also one of the Changed, moved with the quiet grace all Changed women had.
-
-“Madame Delacroix,” Juliette’s voice was soft, deferential, “Monsieur Renard and Monsieur Girard are here to see you.”
-
-Mara nodded. 
-“Thank you, Juliette. Send them in.”
-Juliette curtsied and then exited,
-leaving the door ajar for the two men to enter.
-
-Paul Renard was the first to step into the room.
-Tall, with a neatly trimmed beard and a confident stride,
-he looked every bit the part of the successful lawyer he had become.
-Antoine Girard followed closely behind,
-his more slender frame and slightly disheveled hair giving him an air of perpetual thoughtfulness.
-They both smiled, though Mara noted the sympathy in their eyes, despite their attempts to hide it.
-
-“Mara,” Paul began, his voice warm but cautious,
-“We just wanted to thank you again for everything you’ve done for the firm.
-It wouldn’t exist without you.”
-
-Mara forced a tight smile. “Delacroix & Partners was always a team effort, Paul. You both know that.”
-
-Antoine nodded, his expression more serious. “Even so, we’re going to miss your leadership.”
-
-The words felt like a punch to the gut.
-Leadership.
-That was what she had prided herself on—her ability to lead, to make decisions, to command respect.
-Now, she was a shadow of that woman, reduced to this state by a virus she couldn’t control.
-
-“I’m sure you’ll both do just fine without me,” Mara replied, her voice sharper than intended.
-The virus’s influence tugged at her, urging her to soften her tone, to be more agreeable.
-She resisted, but only just.
-
-An awkward silence settled over the room.
-Paul cleared his throat, sensing the tension.
-“We should let you finish up here.
-If you need anything, don’t hesitate to reach out.”
-
-Mara nodded curtly, dismissing them with a glance.
-She didn’t trust herself to speak again without the virus pulling her words in a direction she didn’t want to go.
-The men hesitated for a moment, then turned and left, closing the door softly behind them.
-
-Alone again, Mara exhaled a breath she hadn’t realized she’d been holding.
-Her hands trembled slightly as she reached for her phone, pulling up a list she had compiled.
-The list of potential guardians.
-
-She had considered everyone carefully, weighing their merits and flaws as if they were potential business partners.
-But no one seemed right.
-Some were too controlling, others too chauvinistic.
-A few were simply too young, too ephemeral to understand the complexities of who she had been and who she was now.
-And then there was Philippe Beaumont.
-
-Philippe had been a name she had scrawled almost absentmindedly at the bottom of the list.
-She hadn’t thought of him in years.
-He had been a diplomat then, a man of calm demeanor and sharp intellect.
-They had crossed paths during several high-stakes negotiations,
-his steady hand often guiding the process while her legal expertise provided the backbone.
-They had respected each other, even when disagreeing about the proper way to proceed.
-Philippe had a way of seeing through the noise, of getting to the heart of a matter, that Mara had always admired.
-
-Now, she found herself lingering on his name, her finger hovering over his contact information.
-Philippe was a widower, his children grown and his professional life long behind him.
-He had retired early and comfortably, or so she had heard.
-The idea of reaching out to him, of asking him to take on the role of her guardian, felt both absurd and oddly fitting.
-He was Changed, of course.
-That was inevitable.
-But perhaps, just perhaps, he would understand.
-
-The thought of subjecting herself to any man’s authority was galling, even now.
-The conditioning pushed at her, urging her to submit,
-to seek the protection and guidance that society now demanded of women.
-But Mara’s old self fought back, clawing desperately to maintain some semblance of independence.
+Mara Delacroix sold her firm on a Tuesday and spent the afternoon correcting the men who had bought it from her.
 
-Mara took a deep breath, steadying herself before dialing Philippe’s number.
-As the phone rang, she felt a wave of anxiety but quickly pushed it aside.
-This was a conversation she needed to have.
+That was the insult of it. Not that Delacroix & Partners would become Renard and Girard. Not even that her name would come off the glass by the end of the month. The insult was that she could still see more clearly than either of them and could no longer trust herself to live at that pitch without the Change grinding against her from inside.
 
-After the second ring, Philippe answered, his voice familiar and warm. “Mara Delacroix. It’s been a long time.”
+Paul Renard was halfway through a client note when Mara reached across his desk, took the marked draft from his hand, and crossed out three lines.
 
-Mara smiled, though he couldn’t see it. “It has been. How have you been, Philippe?”
+"If you send this," she said, "the counterparty will hear apology where you meant caution."
 
-“Busy as always,” he replied with a light chuckle. “But I can’t complain. And you? How’s everything on your end?”
+Paul watched her with the careful face men used now when a woman was useful and slightly unsettling.
 
-Mara paused, gathering her thoughts.
-“I’ve been... managing,” she said, keeping her tone neutral.
-“Things have been a bit complicated lately, but I’m sure you can relate.”
+"You no longer have to do this," he said.
 
-Philippe’s voice softened with concern.
-“I’ve heard bits and pieces.
-The world seems to have turned upside down since the Change.”
+"Evidently I do."
 
-Mara nodded, even though he couldn’t see her.
-“It really has.
-The changes have been... challenging, to say the least.
-But I’m trying to navigate through it.”
+She rewrote the paragraph, set the page down, and felt the familiar recoil start under her ribs. The sentence had been sharp. Clean. Necessary. It should have satisfied her. Instead the pressure came again, that ugly internal drag that had been getting worse for months: not guilt, not fear, something more invasive. A resistance to her own force. A sense that each hard push cost more than it should.
 
-“I’m sure you’re doing better than most,” Philippe said, his confidence in her evident.
-“You’ve always been strong, Mara.”
+She kept her face still until it passed.
 
-“Thank you,” she replied, feeling a bit of warmth from his words.
-“But that strength has been tested lately.
-Things have changed so much, especially with the firm.”
+Antoine Girard appeared in the doorway a few minutes later with that false-soft manner he reserved for nervous clients and injured animals.
 
-“Delacroix and Partners?” Philippe asked, a note of surprise in his voice. “What’s happened?”
+"Mara. We hoped to speak."
 
-Mara sighed softly.
-“I had to sell it.
-The changes... they made it impossible for me to keep running things as I did before.
-The pressure was mounting, and it became clear that I couldn’t continue without making some drastic adjustments.”
+"You are speaking."
 
-There was a brief silence on the line as Philippe absorbed the news.
-“I’m sorry to hear that, Mara.
-I know how much the firm meant to you.”
+"Privately."
 
-“It wasn’t an easy decision,” Mara admitted.
-“But I’ve come to terms with it.
-What’s harder is figuring out what comes next.”
+She let them follow her into her office because refusing would only lengthen the scene.
 
-“Do you have a plan?” Philippe asked, his tone gentle but curious.
+The room still looked like hers. The framed degrees. The lacquered shelves. The city map with its colored pins. Her name in brass on the inner door. By next week all of it would be paperwork or memory.
 
-“That’s actually why I’m calling,” 
-Mara hesitated, the words catching in her throat.
-The virus urged her to speak deferentially, to address him as 'sir,' but she forced herself to resist.
-She needed to approach this carefully, trying to keep as much control over the situation as possible.
-“As you know, with the Change, society’s expectations for women have shifted significantly.
-It’s... well, it’s become necessary for women to have guardians.”
-
-Philippe didn’t interrupt, allowing her to continue.
-
-“I’ve been considering my options,
-thinking about who might be the right person to take on that role for me,” Mara said carefully.
-“Someone who understands me, who I trust.”
-
-“And you’ve come to a decision?” Philippe asked, his voice calm, giving nothing away.
-
-“I have,” Mara replied, taking another deep breath.
-“I’ve been thinking a lot about it, and I believe you would be a suitable guardian for me.
-You’re someone I trust, someone who understands what’s at stake.”
-
-There was a pause, and Mara could almost feel Philippe weighing her words.
-“You’re not someone who makes decisions lightly,” he said finally.
-“So I assume you’ve thought this through?
-You’re proposing a… relationship, then?”
-
-“Precisely,” Mara confirmed, relieved that he understood so quickly.
-“I don’t expect anything beyond what is necessary to satisfy societal norms.
-I will fulfill my obligations as your ward, and you will act as my guardian in name.”
-
-Another pause, longer this time. When Philippe spoke again, his voice was softer, almost contemplative.
-
-“Mara, you should know that even a transactional relationship in this new world carries certain expectations.
-We need to talk.
-See me tomorrow at my villa in Champel.”
-
-Mara tossed and turned in her bed, the darkness of her bedroom offering no comfort.
-The conversation with Philippe echoed in her mind, his calm, steady voice replaying over and over.
-She had expected him to agree to a simple arrangement, something transactional, almost clinical.
-But now she saw that was a foolish hope.
-Philippe was right—a purely transactional relationship wouldn’t work in this Changed society.
-There would be expectations, rules, and she had to be ready to face them.
-
-She sat up, rubbing her temples as the thoughts swirled.
-She had known Philippe for years, respected him even when they disagreed.
-Beneath his diplomat’s charm, there was a firmness, a quiet resolve that could not be swayed by emotions or pleas.
-He was someone who knew where to draw the line, and he made sure everyone else knew it too.
-What would his red lines be with her?
-And could she live with them?
-
-Mara threw off the covers and slipped out of bed, and slipped into her exercise outfit and ballet shoes.
-
-The dark room offered no comfort, so she moved to the living room, clearing space with ease.
-The polished floor reflected a faint glow as she started her routine.
-Every motion was controlled, beginning with pliés.
-The tension in her muscles was a welcome distraction from the thoughts racing in her mind.
-
-As she continued through the exercises, her body responded, easing the tightness in her shoulders.
-The exhaustion was a relief,
-a way to quiet the storm of thoughts about tomorrow—about Philippe and the terms of their arrangement.
-
-If she was going to go through with this, she needed to be clear about what she wanted from him.
-The virus made that difficult, pushing her to phrase everything in a softer, more deferential way.
-She pictured herself asking him, “May I request that my concerns be considered?
-Please let me work according to my abilities and find a place where I can live with dignity and some independence.”
-
-She stopped.
-These weren’t demands—they were requests.
-The virus was softening her words, making her more submissive.
-But the message was still clear: she wanted to be heard, to use her skills, and most importantly, to trust him.
-
-Mara fell back into her exercises. “Please, never lie to me.”
-
-That one simple sentence carried the weight of everything she had lost.
-She could tolerate many things, but not deception.
-Not from Philippe, not from anyone.
-
-What troubled her most was how she couldn’t use absolutes like she once did.
-She used to be firm in her demands.
-Now, her words felt uncertain, framed as polite requests rather than commands.
-
-The virus hadn’t taken away her intelligence or dulled her mind.
-But it had set boundaries, lines she felt pressured to stay within.
-It hadn’t forced her into submission—it had coaxed her, slowly, through constant suggestion.
-She could fight back, and sometimes she did, but the virus was always there,
-wearing her down, nudging her toward becoming the ideal Changed woman.
-
-When she gave in, the virus rewarded her with a flood of well-being.
-She hated the manipulation, but the rewards were effective.
-It made compliance easier, tempting her to go along with the expected behaviors.
-
-As she stretched into an arabesque, her thoughts returned to Philippe.
-She imagined herself as "Philippe Beaumont’s Mara,"
-and felt the virus push her toward submission, toward the idea of being a ward, of being owned and... protected.
-
-Protected.
-The word lingered in her mind.
-Did she need protection?
-Or was that just another suggestion from the virus?
-She had never needed protection before.
-She had been strong, independent, capable of handling anything.
-But now, the idea of being cared for felt oddly comforting.
-Maybe even… desirable.
-The thought unsettled her.
-
-She remembered almost calling Philippe “sir” during their conversation.
-It had felt natural, even though she resisted it.
-She could picture him setting boundaries for her, his tone calm but firm.
-The thought sent a shiver through her, a mix of dread and something else she wasn’t ready to admit to herself.
-
-The kata Mara had slipped into ended with a frog stretch,
-lowering herself to the floor and kneeling with knees wide apart and feet together, lowering hips to the floor.
-A fitting pose, given the questions her mind has been working on.
-Her body was exhausted, but her mind remained restless.
-Tomorrow would come soon enough, and with it, the answers to the questions she couldn’t stop thinking about.
-Finally, she went back to bed.
-
-In his study, Philippe sat at his desk, a cup of tea growing cold beside him as he went over his notes.
-He knew Mara would approach their meeting like a negotiation, as she had with everything else in her life.
-But this wasn’t a business deal.
-She was no longer the formidable lawyer who could bend the rules to her will.
-The world had changed, and so had she, even if she hadn’t fully accepted it yet.
-
-He took a deep breath and looked at the paper in front of him.
-The first drafts of his thoughts had been too harsh, too rigid.
-He had rewritten them, trying to find the right way to make her understand.
-He needed to be clear, but also compassionate.
-Mara would be his ward, and that meant he had a duty to her—one he intended to take seriously.
-
-"You will always communicate openly, with trust and transparency.
-You will always obey me,” he wrote, the words stark on the page.
-“You will always show decorum and proper conduct.
-You will always maintain your appearance and presentation as befits a ward."
-
-Philippe frowned, reading over the lines again.
-They were non-negotiable.
-The society they lived in demanded these things, and so did he.
-But he also knew this would be difficult for her.
-The Mara he remembered had been fiercely independent,
-and asking her to submit would be a challenge, one that would take time and patience.
-
-He turned to a new page and began to write the promises he would make to her.
-“I will always protect you and provide you with a home.
-I will always guide you and help you grow into your new role.
-I will always offer you care, and yes, love, because I know this will be hard for you.”
-
-Philippe paused, his pen hovering over the paper.
-This last promise was the hardest for him to write.
-Love had not been part of his life for a long time, not since his wife passed.
-But Mara would need it—perhaps more than anything else.
-She needed to know that while he expected her to obey, he would also be there to support her,
-to help her find a new balance in a world that had stripped away so much of who she had been.
-
-Satisfied, he set down the pen and leaned back in his chair, letting out a slow breath.
-Tomorrow, he would explain all this to Mara.
-It wouldn’t be easy, and he expected resistance, but he was ready.
-He would guide her through this, as a proper guardian should.
-
-Mara stood before her wardrobe that morning, her heart pounding as she selected her outfit.
-The virus’s conditioning urged her to dress in a way that was entirely compliant with the Changed society's norms,
-but she fought back, determined to strike a balance.
-She wanted to project power and independence, not just submission.
-Yet, she couldn't ignore the compulsion to present herself as a polished and attractive woman.
-In the end, she chose a form-fitting black skirt dress that hugged her curves,
-paired with a tailored blazer that gave her the sharp, commanding look she was known for.
-The skirt was pencil-slim, falling just below the knee,
-and she wore heels that added height and elegance without compromising her ability to walk with purpose.
-Her conditioning forced short leather gloves and a pillbox on her,
-urging her to do more, going for complete coverage.
-She resisted.
-It was as close to Changed-compliant as she could get without sacrificing the image she wanted to project.
-
-She then drove her small, two-seater car through the streets of Geneva,
-the familiar hum of the engine doing little to calm her nerves.
-The upscale neighborhood of Champel loomed ahead,
-its grand homes and tree-lined avenues a stark contrast to the turmoil inside her mind.
-When she arrived at Philippe's house, she parked and took a deep breath before stepping out.
-As she approached the door, her anticipation mixed with fear, and she felt a knot tighten in her stomach.
-Ringing the doorbell, she stood there, waiting, her mind racing with what was to come.
-
-Philippe opened the door himself, and the sight of him momentarily stole her breath.
-He was tall, stately, dressed impeccably in a tailored suit that emphasized his broad shoulders and commanding presence,
-easily twice her weight, but kept in well in shape.
-His eyes were warm, his expression welcoming, but there was an undeniable authority in his demeanor.
-Without thinking, Mara found herself greeting him with a curtsy, the word "Sir" slipping out before she could stop it.
-This was not how she had imagined starting this meeting.
-
-Philippe smiled, though not unkindly, and stepped aside to let her in.
-"Mara, please, come in," he said, his voice as calm and composed as ever.
-He led her through the elegant foyer and into a sitting room where he offered her a seat.
-The chair was high-backed and firm, clearly chosen with Changed women in mind.
-Mara sat down,
-perched on the edge as if drawn to the posture her conditioning preferred, knees pressed together, back straight.
-
-"Would you like some coffee?" Philippe asked, his tone polite, almost casual.
-
-"Yes, please," Mara replied, trying to keep her voice steady.
-
-Philippe nodded and rang a small bell.
-A maid appeared almost instantly,
-dressed in a traditional and restrictive uniform, her waist was cinched tightly, her movements precise and practiced.
-She curtsied to Mara, addressing her as "Ma'am" before swiftly serving the coffee.
-
-Mara accepted the cup, her fingers trembling slightly as she brought it to her lips.
-She could feel Philippe watching her, but he stayed silent, waiting for her to begin.
-She had come with a plan,
-but now that she was here, face-to-face with him, the speech she had rehearsed seemed inadequate.
-Still, she forced herself to press on, drawing on every bit of confidence she had left.
-
-"I understand that a purely transactional relationship won’t work," Mara began,
-keeping her voice steady despite the urge to lower her gaze.
-"I know this requires commitment from both of us.
-But giving up so much control... it’s not easy for me."
-She paused for a moment, then continued.
-"I need to clarify my expectations.
-I want to keep working in a way that makes use of my skills.
-I need to be heard and to have trust between us.
-I’m willing to be guided, but I also need space to grow and adapt to this new reality."
-
-She hesitated, the last word catching in her throat before she added, almost reluctantly, "Please."
-
-Philippe listened closely, his expression unreadable.
-When Mara finished, he took a moment before replying, his voice steady and reassuring.
-
-"Mara, you’re absolutely right—this can’t just be a formality.
-For this to work, it needs to be a true guardian and ward relationship, in both public and private.
-I understand how difficult this is for you,
-and I want you to know that I’ll be here to support you every step of the way.
-Your requests are reasonable, and I’m willing to meet them."
-
-He paused, letting his words sink in before continuing.
-"I promise you this: I will protect you and provide you with a safe and stable home.
-I will guide you as you navigate this new reality,
-and I will help you grow into this role in a way that honors who you are.
-Above all, I promise to be honest with you, to never deceive you, and to always respect the trust you’re placing in me."
-
-Philippe continued, his tone firm but kind.
-"There are firm demands that I have, and I need you to understand what they are.
-Obedience and submission are non-negotiable.
-Decorum and proper conduct are expected at all times.
-Your appearance and presentation must always reflect your role.
-And finally, you must communicate openly with me—no secrets, no lies."
-
-Mara felt a pang of dread as he laid out these conditions, each one tightening the noose of her new reality.
-But she also felt a strange sense of relief.
-Philippe was being honest with her, as she had asked.
-There were no hidden agendas, no deceit.
-
-Philippe paused, studying her face.
-"I suggest you take some time to think this over, to really consider what this means for you.
-We can meet again after you’ve had time to reflect."
-
-But before he could finish, Mara, almost on impulse, interrupted.
-"I do," she blurted out, then quickly corrected herself, her voice more formal as she said, "I,
-Mara Delacroix, give myself to you of my own free will, as your ward, to become Philippe Beaumont’s Mara."
-
-Philippe raised an eyebrow, surprised by her sudden declaration.
-He leaned forward slightly, his gaze intense.
-"Are you certain, Mara?
-Do you understand what you’re committing to, given the rules I’ve set out?"
-
-Mara nodded, her heart pounding. "Yes, Sir. I understand. And I accept."
-
-Philippe’s expression softened slightly, though his tone remained serious.
-"Very well.
-As your first order as my ward, I want you to repeat back the rules I’ve just explained,
-in the form of ‘I will always.’"
-
-Mara’s initial reaction was to rebel against this command, to push back as she always had.
-But something stopped her.
-She realized what he was trying to do, why he was making her say the words aloud.
-It was a way of cementing her commitment, of making it real.
-With effort, she swallowed her pride and began to recite, her voice steady despite the turmoil inside her.
-
-"I will always obey your commands and the rules you set for me.
-I will always maintain decorum and proper conduct.
-I will always present myself appropriately.
-I will always communicate openly, with trust and transparency."
-
-Philippe nodded, satisfied.
-"You are now formally my ward," he confirmed.
-"We do not have big families and do not need a grand giving away ceremony.
-Instead, we will go and register this with the office later today."
-
-Mara, now no longer simply "Delacroix," felt a strange mix of emotions as she processed what had just happened.
-The identity she had clung to for so long had been replaced in an instant.
-She was now "Philippe Beaumont’s Mara," her name, her very sense of self, defined by her relationship to him.
-
-Was this the right decision?
-Doubt flickered briefly in her mind, but she pushed it aside.
-It was done.
-She had made her choice.
-At least, she thought with a wry smile, she no longer had to hold back her curtsies and "Sir"s.
+Paul shut the door.
+
+"We wanted to thank you properly."
+
+"Do it quickly."
+
+They exchanged a glance.
+
+Antoine said, "The firm exists because of you."
+
+"The firm still exists because I sold it before I tore into the wrong man in the wrong room and made us all a spectacle."
+
+"That is not fair," Paul said.
+
+"No," Mara said. "It is precise."
+
+The pressure flared again. Too blunt. Too aggressive. Some part of her now hated the exact qualities that had built her career. She felt it each time she cut, each time she dominated, each time she used certainty like a weapon. The old reflex rose; the Change pushed back; her body paid for both.
+
+Paul took a step nearer.
+
+"You are not a spectacle."
+
+"I would have been." She looked from one of them to the other. "You have both seen it. The hesitation. The drag. The way conflict catches now. I can still win a room. I cannot stay in one all day without feeling the cost."
+
+That, finally, shut them up.
+
+Mara dismissed them with a glance. When the door closed, she sat very still in her chair and looked at the legal pad on her desk.
+
+At the top of the page, in her own neat hand, was a heading she despised:
+
+Potential guardians.
+
+She had made the list the way she did everything important. Coldly. Comparative strengths. Weaknesses. Likely appetites. Likely vanities. Men to avoid at any cost. Men who would enjoy owning a difficult woman. Men too stupid to manage one. Men who would mistake possession for leadership and become cruel when that failed to flatter them.
+
+At the bottom sat the only name she had not crossed out.
+
+Philippe Beaumont.
+
+Former diplomat. Widower. Old enough not to perform masculinity like a boy showing off a weapon. Precise. Social. Annoyingly perceptive. A man who had once taken a room away from her in Brussels by letting everyone else think the compromise had been their own idea.
+
+She had hated him for that.
+She had respected him for it more.
+
+Mara picked up her phone, set it down again, then forced herself to dial before she could spend another hour pretending there was some nobler option still waiting to emerge.
+
+He answered on the second ring.
+
+"Mara Delacroix. It has been a long time."
+
+His voice was familiar and warm enough to be dangerous.
+
+"It has," she said. "How have you been, Philippe?"
+
+"Busy, as always. I survive. And you?"
+
+Mara crossed to the window before answering. Below her, the city moved through its new order with the unnerving composure of a place already forgetting it had ever been arranged differently.
+
+"Managing," she said. "It has been a difficult season."
+
+His voice softened.
+
+"I have heard enough to know the Change has not been kind to people like you."
+
+That almost made her laugh.
+
+"People like me."
+
+"Sharp women with no interest in becoming decorative."
+
+There it was. One reason she had called him and not one of the smoother, safer names on the list.
+
+"I sold the firm this morning," she said.
+
+He was silent for a moment.
+
+"I am sorry."
+
+"It was necessary."
+
+"I assume you did not do it lightly."
+
+"No."
+
+She rested one hand against the glass.
+
+"The pressure had become too constant. I could still work. I could not go on working in the same way."
+
+"Delacroix & Partners was never only work to you."
+
+"No."
+
+The quiet on the line turned gentler. Not pitying. Attentive.
+
+"What comes next?" he asked.
+
+That was the opening she had been circling from the moment she picked up the phone.
+
+"That is why I am calling."
+
+The words caught more than she wanted them to. The Change had been pushing at her speech for weeks now, trying to soften it, lower it, redirect it into newer forms of female deference that she refused to grant a place this early in the conversation. She held onto the older grammar by force.
+
+"The social expectations for women have changed," she said carefully. "You know that as well as I do."
+
+"I do."
+
+"And it has become..." She hated the pause. "Prudent to make arrangements before one is forced into them badly."
+
+He did not interrupt.
+
+"I have been considering who might be suitable," Mara said. "Someone intelligent. Someone discreet. Someone I could trust not to make a spectacle out of necessity."
+
+"And you have come to a decision."
+
+"I have."
+
+She drew a breath and made herself say it plainly.
+
+"I would ask you to take me as your ward."
+
+Another silence. Not shocked. Measuring.
+
+"You are not a woman who says something like that lightly."
+
+"No."
+
+"And what, exactly, do you imagine the arrangement would be?"
+
+Now she was back on firmer ground. Terms. Scope. Containment.
+
+"Formal. Respectable. Sufficient to satisfy what society now expects. I remain useful. You act as guardian in name. We behave with discretion."
+
+He breathed out softly. Not quite a sigh.
+
+"Mara."
+
+She closed her eyes.
+
+"You are proposing a practical shelter from the weather," he said. "That may not be all this turns out to be."
+
+"I am proposing what is necessary."
+
+"Perhaps. But perhaps necessity now means more than a title and an address."
+
+She stiffened.
+
+"I am not asking for sentiment."
+
+"Nor am I offering an answer on the phone."
+
+That stopped her.
+
+His tone stayed warm. Firm underneath it.
+
+"Come tomorrow to Champel. We will talk properly. If, after that, you still think a guardian only in name is enough, you may tell me so to my face."
+
+Mara bristled immediately.
+
+"Very well."
+
+"One more thing."
+
+"What."
+
+"Do not rehearse too much tonight."
+
+The line was so exactly aimed that she almost hated him for it already.
+
+"You always build an opening position before anyone can touch the real question," he said. "It was effective in Brussels. It will not help you much here."
+
+He ended the call before she could score anything off him.
+
+Mara stood in her office with the dead phone in her hand and a sudden violent wish to throw it through the window. Instead she set it down, gathered the last folders she still intended to review, and kept working until the building emptied around her.
+
+That night she changed into practice clothes and used movement to stop herself from thinking.
+
+No music. No mirror. Just the living room floor and the old grammar of her body: turnout, stretch, extension, balance, hold. Ballet had taught her young that pain could be sorted, absorbed, used. It had also taught her that control lived in repetition long before it lived in comfort.
+
+She moved until sweat cooled on her back and the city lights outside had gone fully blue.
+
+Then the phrases she had meant to use on Philippe began to sound false even in her own head.
+
+I remain useful.
+I require discretion.
+This need not become intimate.
+
+None of that was the real question.
+
+The real question crouched underneath it all, offensive and persistent.
+
+Could the right man make this bearable?
+
+Protection had begun appearing in her thoughts without permission. So had care. So had the far worse possibility that being held inside a structure chosen in time might feel less degrading than going on alone until the Change chose one for her by force or exhaustion.
+
+She sank into a long stretch and stayed there because anger needed somewhere to go.
+
+"Do not lie to me," she said aloud to the empty room.
+
+That, at least, still sounded like Mara.
+
+The next morning she stood before her wardrobe longer than necessary.
+
+She could still dress like the old Mara if she wished. She had the jackets, the sharper cuts, the heels that announced impact. Yet even that calculation had changed. The more aggressive lines now looked strained, like legal arguments made after the court had already turned.
+
+In the end she chose dark silk, a fitted jacket, a skirt with enough shape to read woman before weapon, and heels that made no pretense of comfort. She pinned her hair, put on lipstick, looked at herself once, and saw compromise where she would once have seen strategy.
+
+Then she took her bag, locked the apartment, and went to Champel.
+
+Philippe's villa sat above the lake with the composure of a house built by someone who believed that control should never need to raise its voice.
+
+She met Philippe in his study opening onto the garden. The room had changed less than the city had. Good furniture. Books. Diplomatic prints. Fresh flowers placed by a woman who had either excellent taste or good instructions.
+
+Philippe led her there, wearing a dark suit, silver at the temples, every inch as composed as she remembered.
+
+"Mara."
+
+He did not offer his hand. That was wise.
+
+"Philippe."
+
+He indicated the sofa.
+
+"Sit."
+
+Not please. Not would you like. A small thing. Not small at all.
+
+Mara sat.
+
+Tea arrived, placed and withdrawn with the same smooth efficiency as everything else in the house. Philippe waited until they were alone again before speaking.
+
+"You have had the night to reconsider."
+
+"I have had the night to refine."
+
+That almost drew a smile from him.
+
+"Of course you have."
+
+He sat opposite her, not close enough to crowd, not far enough to make the conversation feel abstract.
+
+"Then let us be precise," he said. "Tell me what you think you are asking for."
+
+Mara had prepared this part.
+
+"A formal guardianship. Respectable, discreet, and administratively clear. I continue to work where I can be useful. You provide social cover, legal standing, and household affiliation. We avoid melodrama."
+
+"And in private?"
+
+She held his gaze.
+
+"In private I remain myself."
+
+"You believe that can be separated so neatly."
+
+"I believe it must be."
+
+Philippe folded one leg over the other.
+
+"No," he said. "That is the part you still have wrong."
+
+The refusal was calm. Worse than anger for that reason.
+
+"Explain."
+
+"A guardian only in name is not stable. Not for society, and not for you." He did not soften the pronoun. "You are already under pressure from the Change. If the public form says one thing and the private life says another, you will be made to live in contradiction every day. That will not preserve you. It will tear you apart."
+
+Mara's jaw tightened.
+
+"I am not asking to be indulged."
+
+"No. You are asking to be allowed to treat this as a paper structure." He leaned back slightly. "I will not do that."
+
+She looked out toward the garden for one measured second, then back.
+
+"What, then, would you do?"
+
+"If I take you, I take you properly."
+
+The line landed so directly that for a moment she only listened to her own pulse.
+
+Philippe continued in the same composed tone.
+
+"You would live here. You would be answerable to me in matters of presentation, household conduct, and anything that affects us both. I would expect honesty before damage control. I would expect obedience, not constant negotiation disguised as professional language."
+
+Mara almost interrupted at that and stopped herself.
+
+He noticed.
+
+"You would still be useful," he said. "I have no interest in making you dull. But usefulness would no longer excuse autonomy in every domain."
+
+"And what do I receive in return?" she asked.
+
+The old instinct was still there, still putting terms on the table even now.
+
+Philippe accepted that without mocking it.
+
+"Clarity. Protection. A house in which you are not asked to perform a role your own changed mind increasingly refuses to sustain. I do not lie. I do not humiliate for entertainment. I do not expect gratitude for necessities. If I set rules, they will be rules I mean to keep."
+
+That was closer to what she wanted than anything he had said on the phone.
+
+"Work?" she asked.
+
+"Yes, where it can be done properly."
+
+"Intellectual work."
+
+"Yes."
+
+"Discretion."
+
+"Public discretion, certainly. Private truth, also."
+
+She took that in.
+
+"And if I find your rules impossible."
+
+"Then you should not come under my care."
+
+No flourish. No attempt to persuade. Just the line itself.
+
+It made the whole thing feel more serious and less escapable.
+
+Mara set her teacup down untouched.
+
+"What rules."
+
+Philippe reached to the table beside him, lifted a single sheet of paper, and handed it to her.
+
+There were not many lines on it. Fewer than she had expected. That made them worse.
+
+I will be truthful with Philippe.
+
+I will inform him before acting in matters that affect us both.
+
+I will obey his decisions in matters of my dress, conduct, and presentation.
+
+I will not treat dependence as degradation.
+
+I will ask rather than seize.
+
+I will allow myself to be cared for.
+
+Mara read them once, then again.
+
+"You prepared this."
+
+"Yes."
+
+"Before I called?"
+
+"No. After."
+
+That, at least, was better.
+
+She held the paper between both hands.
+
+"You understand that this is not equal."
+
+"Of course it is not equal," Philippe said. "It is guardianship."
+
+The bluntness of it should have offended her more than it did.
+
+"And yet you still came."
+
+She hated how easily he could say that.
+
+"I came to negotiate."
+
+"Then negotiate."
+
+Mara looked down at the page.
+
+"I will not be lied to," she said.
+
+"Agreed."
+
+"I will not be paraded as an idiot."
+
+"Agreed."
+
+"I will remain useful."
+
+"Yes."
+
+"I will not be cut off from matters I am capable of understanding."
+
+"No."
+
+"And if you expect obedience, you do not hide that expectation under sentimental language."
+
+That did bring the smallest flicker to his mouth.
+
+"Agreed."
+
+She read the paper again.
+
+The thing she had come to do was already happening, and not in the way she had imagined. She had thought she was arranging a shelter. Instead she was stepping across a line neither of them was pretending not to see.
+
+"You may take time," Philippe said. "A day. Two. I would prefer it, in fact."
+
+Mara lifted her head.
+
+"No."
+
+He waited.
+
+"If I leave this room uncommitted, I will turn it back into theory. I know myself too well for that." She set the paper in her lap. "I accept."
+
+The words changed the room at once.
+
+Not legally. Not yet.
+
+Socially. Personally. Structurally.
+
+She saw it in his face before he said anything. The shift from candidate to guardian. From one former equal deciding whether to help another, to a man who had just been accepted into authority over her.
+
+Philippe rose.
+
+"Then stand."
+
+Mara stood because of course she did.
+
+"Come here."
+
+She crossed the room and stopped in front of him.
+
+He was close enough now that she had to tip her head a little to keep his face in view.
+
+"The legal act can be completed this week," he said. "That is paperwork. This is not."
+
+Her throat tightened.
+
+"You understand that from this moment you are, in every way that matters, Philippe Beaumont's Mara."
+
+There it was.
+
+She had known it already. Hearing it made it real in the body.
+
+"Yes," she said.
+
+"Good."
+
+He took the paper from her hand and held it between them.
+
+"My first command to you is simple. You will say these rules back to me in the first person."
+
+Mara stared at him.
+
+"Why."
+
+"Because I want you to hear your own voice carrying them. Because language accepted aloud settles differently. Because I am not interested in keeping you half outside this."
+
+That was so infuriatingly reasoned that refusal would have sounded childish even to her.
+
+Philippe touched the first line with one finger.
+
+"Begin."
+
+Mara drew a breath that felt far too shallow.
+
+"I will be truthful with Philippe."
+
+"Again. Properly."
+
+The correction was quiet and immediate. She felt it all the way down her spine.
+
+"I will be truthful with Philippe," she said, more steadily.
+
+He moved to the next line.
+
+"I will inform him before acting in matters that affect us both."
+
+The third line caught slightly in her throat.
+
+"I will obey his decisions in matters of my dress, conduct, and presentation."
+
+She heard the asymmetry as she spoke it. Heard it and kept going.
+
+"I will not treat dependence as degradation."
+
+That one hurt more than obedience had.
+
+"I will ask rather than seize."
+
+Philippe's eyes did not leave her face.
+
+"And the last."
+
+Mara looked at the words.
+
+For one foolish second she almost laughed at the obscenity of how much they frightened her.
+
+Then she said them anyway.
+
+"I will allow myself to be cared for."
+
+Silence held after the final line.
+
+Philippe folded the paper once and set it aside.
+
+"Good."
+
+The word landed with far more force than praise had any right to carry.
+
+"Go home now," he said. "Tomorrow you will return, and we will begin with the legal forms."
+
+Mara should have answered with something cutting, something that put air back into the room.
+
+Instead she heard herself say, "Yes."
+
+Not Sir. Not yet.
+
+But when she turned and walked back through the house, past the quiet maid and the ordered flowers and the rooms that had suddenly become legible as the site of her future, she knew the line had already been crossed.
+
+The signatures could wait.
+
+She had entered the villa as Mara Delacroix evaluating a candidate.
+She left it as Philippe Beaumont's Mara.

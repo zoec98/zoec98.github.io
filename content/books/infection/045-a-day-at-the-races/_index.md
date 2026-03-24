@@ -3,6 +3,7 @@ title: "Chapter 45: A Day at the Races"
 weight: 45
 ---
 
+
 # A Day at the Races
 
 The opportunity came the following weekend when Philippe and Henry took their wards to the pony track.
@@ -77,9 +78,9 @@ Mara and Sonia, standing beside their guardians, observed silently.
 Mara was especially intrigued by the intensity of the training and the level of control Julien maintained.
 Sonia signed to Mara, her eyes wide with fascination.
 
-“I’d like to try that someday. It looks intense but rewarding.”
+*That, someday, this one would like to try. Looks intense. Rewarding too.*
 
-Mara nodded, clearly interested. “Maybe we can arrange a session. It would be a good challenge.”
+Mara nodded, clearly interested, then signed back. *Perhaps that can be arranged. It would be a good challenge.*
 
 As Julien guided Anna around the track, her pace steadily increased.
 The physical and mental demands of the training were clear in her every movement.
@@ -115,11 +116,10 @@ Philippe turned to Mara, his voice filled with anticipation.
 I have the necessary attachments for your iGuardian.
 It will be challenging, but I believe you can do it."
 
-Mara nodded, her eyes reflecting her determination. "Yes, Sir. I’m ready," her hands danced.
+Mara nodded, her eyes reflecting her determination, and signed. *Yes, Sir. This one is ready.*
 
-Sonia looked startled, her hands signaling confusion.
-"Why would you need… Oh, you’re in a 'Pro Secure'?
-I didn’t… That’s a lot more discipline than I expected."
+Sonia looked startled and signed her confusion.
+*Why need that...? Ah. You are in a Pro Secure. This one did not realize. That is much more discipline than expected.*
 
 Philippe turned to her.
 "Yes, she is.
@@ -129,8 +129,7 @@ We’ll see."
 Henry then turned to Sonia.
 "And you, would you like to try if we can find a fitting bridle in the stable?"
 
-Sonia’s hands danced, expressing her interest.
-"I’d love to, Sir, but I’d rather not use someone else’s suit."
+Sonia signed her answer. *Gladly, Sir, but if it pleases you, not in someone else's suit.*
 
 Henry interrupted, "I know.
 As it happens…"
@@ -261,7 +260,7 @@ then helped her change back into her normal outfit and day-mask.
 The whole time, Mara fought back her tears, but when she was finally dressed, she couldn’t hold them back any longer.
 She broke down, crying quietly, the sting of failure cutting deep.
 
-“I’m sorry, Sir,” Mara signed with trembling hands, tears streaming down behind eher mask. “I failed you, Sir.”
+Mara signed with trembling hands, tears streaming behind her mask. *I am sorry, Sir. This one failed you.*
 
 Philippe, kneeling and sitting her down on his knee in the stable, gently supporting her with one arm,
 watched her hands move with a sense of sorrow.
@@ -270,10 +269,7 @@ He placed a hand gently around her narrow waist, his voice soft and reassuring.
 Please don’t think that.”
 
 Mara hesitated, her fingers moving slowly, as if she was unsure whether to continue.
-“It feels like I did, Sir.
-I couldn’t keep up.
-I wasn’t strong enough.
-I couldn’t even come close to what you expected.”
+*It feels that way, Sir. This one could not keep up. Not strong enough. Not even close to what Sir expected.*
 
 Philippe shook his head, his tone firm but kind.
 “What I expected was for you to give your best, and you did that.
@@ -281,8 +277,7 @@ Winning wasn’t the goal.
 You showed determination and spirit, and that’s what matters to me.”
 
 Mara’s hands stilled for a moment, the weight of his words sinking in.
-But then, with a soft, almost hesitant gesture, she signed, “I wanted to make you proud, Sir.
-I didn’t want to disappoint you.”
+But then, with a soft, almost hesitant gesture, she signed, *This one wanted Sir proud. Did not want to disappoint Sir.*
 
 Philippe’s expression softened even more, and he took one of her gloved hands in his.
 “Mara, you didn't disappoint me.
@@ -290,7 +285,7 @@ Your dedication and willingness to push yourself are what make me proud.
 You have nothing to be ashamed of.
 Enough for now.”
 
-Mara nodded, her fingers moving slowly in a final sign. “Thank you, Sir, for your understanding.”
+Mara nodded, her fingers moving slowly in a final sign. *Thank you, Sir, for your understanding.*
 
 Later, the three women sat together on the veranda of Philippe's villa in Cologny,
 each secured to her chair.
@@ -299,28 +294,16 @@ Sonia and Anna,
 dressed in niqabs, carefully lifted their veils to enjoy their coffee and small slices of tarte tatin,
 the rich aroma of caramelized apples mingling with the fresh air.
 
-Sonia's fingers moved fluidly as she signed to Anna, "How was your training today?
-You looked amazing out there.
-How do you keep that speed for so long?"
+Sonia signed to Anna. *Today's training, how was it? Out there, you looked amazing. How keep that speed so long?*
 
 Anna paused, then signed back, her movements slow and deliberate.
-"This was mild.
-Julien usually pushes me much harder.
-Lately, he's been focused on obedience and endurance.
-I find comfort in the discipline and routine."
+*This was mild. Usually Julien pushes much harder. Lately, obedience and endurance. In the discipline and routine, comfort is there.*
 
 Mara, watching the exchange, couldn’t help but snort behind her mask at the mention of comfort.
 She shifted slightly, the iGuardian pressing against her in all the familiar places.
 But Anna’s hands moved again, explaining further, her expression thoughtful.
 
-"Yes, comfort," she replied.
-"It might seem strange, but the discipline and routine give me a sense of purpose.
-When I'm pulling the sulky, it’s like everything else fades away.
-The noise in my head, the doubts—they all disappear.
-It’s just me, my body, and Julien’s guidance.
-I know my place, and I know what's expected of me."
-Peace within the boundaries set for me.
-It’s hard to explain, but I feel more myself in those moments than I do anywhere else."
+*Yes, comfort. Strange perhaps, but discipline and routine give purpose. When pulling the sulky, everything else falls away. The noise in the head, the doubts, all gone. Only body and Julien's guidance remain. This one knows her place and what is expected. Inside those boundaries there is peace. Hard to explain, but in those moments this one feels most herself.*
 
 Mara paused.
 She had not expected such a deep and serious answer.
@@ -332,78 +315,55 @@ a place where the struggle to meet Philippe's expectations became her sole focus
 But unlike Anna, Mara wasn’t sure if she could ever call that peace comforting.
 
 Sonia, always curious, tilted her head slightly as she signed to Mara.
-"I’ve never met anyone in an iGuardian Pro Secure before.
-What is it like?"
+*Never before has this one met a woman in an iGuardian Pro Secure. What is it like?*
 
 Mara paused, considering how to respond.
 The iGuardian was a part of her now, something she lived with every moment of every day.
 She wasn’t sure how to explain it, but she would try.
 
 Her hands began to move slowly, with deliberate care.
-"It’s... constant.
-Every part of me is monitored, controlled.
-The device adjusts my posture, my movements, even my thoughts at times.
-It’s there to guide me, correct me, make sure I stay focused and disciplined."
+*It is constant. Every part monitored. Controlled. The device adjusts posture, movement, even thought at times. It is there to guide, correct, keep this one focused and disciplined.*
 
-Sonia’s eyes widened slightly as she signed back. "Is it painful?"
+Sonia’s eyes widened slightly as she signed back. *Painful?*
 
-Mara signed a "No", her hands moving smoothly through the air.
-"Not if I do as I’m supposed to.
-But if I stray, if I forget my place, it can be... harsh.
-The impulses are strong, and they’re meant to teach me, to keep me in line."
+Mara signed a clear no, her hands moving smoothly through the air.
+*Not when this one behaves as she should. But if she strays, if she forgets her place, it can be harsh. The impulses are strong. They teach. They keep her in line.*
 
 Anna, watching the exchange, nodded slightly, her eyes showing understanding.
-She signed, "It sounds difficult, but also... calming.
-Knowing what’s expected, having that guidance all the time."
+She signed, *Sounds difficult, but also calming. To know what is expected. To have guidance all the time.*
 
 Mara hesitated, then nodded, her fingers echoing her agreement.
-"It is.
-There’s a certain peace in it.
-I don’t have to think about what’s right or wrong.
-The iGuardian decides that for me.
-It’s... freeing, in a way."
+*It is. There is peace in it. This one does not have to decide right or wrong. The iGuardian decides for her. In its way, freeing.*
 
-Sonia’s hands paused before she signed again, her movements slow, thoughtful.
-"I never thought of it like that.
-I always imagined it would feel... restrictive."
+Sonia’s hands paused before she signed again, her movements slow and thoughtful.
+*This one never imagined it that way. Always thought it must feel restrictive.*
 
 Mara’s hands moved quickly in response.
-"It is restrictive.
-But it’s also comforting.
-There’s no room for doubt, no room for error.
-Everything is decided for me, and that’s... easier."
+*Restrictive, yes. But comforting too. No room for doubt. No room for error. Everything decided for this one. That is easier.*
 
 Sonia’s curiosity finally got the better of her.
 She glanced at Mara, her hands moving with a mix of concern and curiosity.
-"Mara, if I may ask, why are you in an iGuardian Pro Secure?
-I thought it was only used for women who disturb the harmony of society."
+*If this one may ask: why are you in an iGuardian Pro Secure? She thought it was for women who disturb social harmony.*
 
 Mara’s eyes flickered with a mix of emotions, but she quickly masked them.
 Her fingers moved with careful precision.
-"I made choices that led me here, Sonia.
-Philippe was right to use it.
-He has every right to expect the highest standards from his ward, and the iGuardian helps reinforce those standards."
+*Choices were made that brought this one here, Sonia. Philippe was right to use it. He has every right to expect the highest standards from his ward, and the iGuardian reinforces those standards.*
 
 Sonia wasn’t entirely satisfied with the answer.
-She pressed on, her hands dancing with a hint of persistence.
-"But what about the rewards?
-Surely there’s more to it than just discipline?"
+She pressed on, her hands carrying a hint of persistence.
+*But the rewards? Surely it is more than discipline only?*
 
-Mara hesitated, then signed, "A ward silently enjoys what her guardian offers."
+Mara hesitated, then signed, *A ward silently enjoys what her guardian offers.*
 Her movements were controlled, almost too controlled, as if she were holding something back.
 
 Sonia and Anna exchanged glances, a flicker of amusement passing between them.
 Their fingers moved quickly, sharing a private joke, their eyes glinting with slightly lewd humor.
 
-Mara watched them for a moment, then signed with a calm resolve, "Whatever you've heard about it, it's probably true.
-It’s sometimes harsh, but I don’t wish to be without it anymore."
-She paused, her hands slowing, the weight of her words sinking in.
-"That has not always been the case."
+Mara watched them for a moment, then signed with calm resolve. *Whatever you have heard, probably it is true. Sometimes harsh, yes, but this one does not wish to be without it anymore.* She paused, her hands slowing as the weight of the admission settled. *This was not always so.*
 
 Sonia and Anna looked at her, sensing there was more she hadn’t said.
-Mara met their gaze, her fingers moving with an almost ominous weight.
-"The device also has an edging mode.
-If discipline mode doesn’t bring a ward in line, that will do the trick."
+Mara met their gaze, her fingers moving with almost ominous weight.
+*The device also has an edging mode. If discipline mode does not bring a ward in line, that one will.*
 
 As the sun set, casting a golden light over the veranda, Philippe approached, signaling it was time to go.
 
@@ -419,10 +379,9 @@ With final curtsies, the group parted ways.
 Philippe led Mara inside, while Henry, Sonia, Julien, and Anna walked toward the tram stop.
 
 As they waited, Sonia turned to Anna, her hands moving subtly.
-"The iGuardian in edging mode must be tough.
-I wonder what Mara did to deserve it."
+*The iGuardian in edging mode must be hard to bear. This one wonders what Mara did to merit it.*
 
-Anna nodded, signing back, "I can't imagine the strain. I'd lose my mind."
+Anna nodded and signed back. *This one cannot imagine that strain. She would lose her mind.*
 
 Their conversation was cut short by Henry, who caught Sonia's small signs nonetheless and reprimanded her.
 "Sonia, no gossiping.
@@ -430,8 +389,7 @@ I won’t tolerate it.
 Whatever Mara did, she’s been corrected, and that’s the end of it.
 You know better."
 
-Sonia quickly signed, "Yes, Sir.
-I apologize."
+Sonia quickly signed, *Yes, Sir. This one apologizes.*
 She knew exactly what kind of correction Henry might have in mind if she gossiped about edging,
 and she definitely didn’t want that experience.
 She hated being denied.

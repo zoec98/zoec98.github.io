@@ -3,183 +3,152 @@ title: "Chapter 42: Two years earlier: Breaking Point"
 weight: 42
 ---
 
+
 # Two years earlier: Breaking Point
 
-Mara knelt on her cushion on the polished marble floor of Philippe’s study, her back perfectly straight,
-her hips pushed upright, and her shoulders held back in the exact posture the iGuardian demanded.
-She had grown accustomed to the feel of the Yoyah Sheengzoh underskirt constricting her legs,
-but it was the act of sitting that had become a challenge she for now avoided.
-Kneeling, she had learned, it was far easier to maintain the required posture.
-It also avoided the painful pressure on the crotch belt
-that shifted her entire iGuardian upwards whenever she sat too far back on the chair,
-and it presented a more submissive stance that Philippe seemed to appreciate.
+Mara knelt on her cushion on the polished marble floor of Philippe's study, her back perfectly straight, her hips held upright, and her shoulders drawn back in the exact posture the iGuardian demanded.
+She had grown accustomed to the way the Yoyah Sheengzoh underskirt constrained her legs, but it was sitting that had become difficult enough that she now avoided it whenever she could.
+Kneeling, she had learned, was much easier.
+It avoided the painful pressure of the crotch belt that shifted the whole iGuardian upward whenever she sat too far back in a chair, and it also presented a more submissive posture that Philippe seemed to appreciate.
 
-Philippe was in the middle of a conversation with a visiting diplomat,
-his voice steady and commanding as he discussed trade agreements.
-Mara remained silent, her hands folded neatly in her lap, her eyes downcast.
-She was the picture of calm composure,
-even though her muscles ached from the tension of holding her body in this precise position for so long.
+Philippe was in the middle of a conversation with a visiting diplomat, his voice steady and authoritative as he discussed trade agreements.
+Mara remained silent, hands folded neatly in her lap, eyes lowered.
+She was the picture of calm composure, even though her muscles ached from the strain of holding herself in that precise position for so long.
 
-As the diplomat made a sharp remark, questioning a decision Philippe had made,
-Mara’s instinct was to respond—to defend Philippe,
-to correct the visitor's impolite tone.
-But she caught herself, knowing that such an outburst would only result in a painful correction from the iGuardian.
-Instead, she focused on her breathing, ensuring it remained steady,
-and when Philippe addressed her with a glance, she responded with a polite affirmative hand sign and nothing more.
+When the diplomat made a sharp remark, questioning one of Philippe's decisions, Mara's instinct was to answer, to defend Philippe, to correct the visitor's tone.
+But she caught herself, knowing that an outburst would only earn her a painful correction from the iGuardian.
+Instead she focused on her breathing, keeping it steady, and when Philippe acknowledged her with a glance, she answered with a polite affirmative sign and nothing more.
 
-When the meeting ended, Philippe dismissed the diplomat and turned his attention to Mara.
-“You may stand now,” he instructed and offered a hand.
+When the meeting ended, Philippe dismissed the diplomat and turned to Mara.
 
-Mara slowly rose to her feet, careful to keep her posture perfect as she did so.
-She moved with the grace of a dancer, each step a careful glide, her weight evenly distributed.
-She had learned, over the past few weeks, how to rise without disturbing the balance the iGuardian enforced.
+"You may stand now," he said, offering her a hand.
 
-Philippe studied her for a moment, then gestured to a pair of boots on a nearby stool.
-“Today, we’re going to try something different,” he said.
+Mara rose slowly, careful to keep her posture perfect as she did.
+She moved with a dancer's grace, each step measured, her weight precisely controlled.
+Over the past few weeks she had learned how to rise without disturbing the balance the iGuardian enforced.
 
-Mara’s eyes fell on the boots—ballet boots, with an impossibly high arch that forced the wearer onto their toes.
-She felt a flicker of apprehension but quickly quelled it.
-She had learned not to question Philippe’s decisions.
-Instead, she waited silently as he retrieved the boots and gestured for her to sit.
+Philippe studied her for a moment, then gestured toward a pair of boots on a nearby stool.
 
-Mara carefully lowered herself onto the edge of a nearby chair.
-Philippe knelt and began changing her boots for the new ones.
-The moment she tried to stand, she felt her balance shift dramatically,
-her body forced into a position that was all too familiar.
+"Today we are going to try something different," he said.
 
-“Up on your toes now,” Philippe said, guiding her into position. “You’ll find this helps with your posture.”
+Mara looked down at them.
 
-Mara stood, feeling the tight stretch in her calves as the boots forced her into an en pointe position.
-The sensation was both uncomfortable and strangely familiar, reminding her of her days as a ballet student.
-She adjusted her stance, focusing on keeping her balance,
-and found that the boots did indeed make it easier to maintain the posture Philippe expected of her.
-The arch forced her hips upright,
-her chest naturally pushed out as she aligned herself with the strict requirements of the iGuardian.
+Ballet boots, with an impossibly high arch that forced the wearer onto her toes.
 
-“Good,” Philippe said, stepping back to observe her.
-“You see?
-These boots will help you maintain the correct posture without as much effort.”
+A flicker of apprehension ran through her, but she pushed it down at once.
+She had learned not to question Philippe's decisions.
+Instead she waited silently as he retrieved the boots and motioned for her to sit.
 
-Over the next few days, Mara grew accustomed to the ballet boots.
-She found herself moving with even more grace,
-the lessons from her ballet training merging with the demands of the iGuardian
-to create a sense of fluidity in her movements.
-She knelt more often, preferring the ease it offered compared to sitting, and her posture became second nature.
+Mara lowered herself carefully onto the edge of a nearby chair.
+Philippe knelt and changed her boots for the new ones.
+The moment she tried to stand, her balance shifted dramatically, her body forced into a position that felt all too familiar.
 
-Then, one day, as Mara stood before Philippe,
-her posture perfect and her hands folded neatly in her lap, he looked her over with a pleased expression.
+"Up on your toes now," Philippe said, guiding her into place. "You will find this helps your posture."
 
-“I must say, Mara, I’m impressed,” Philippe said, his voice calm and even.
-“Your behavior has improved significantly.
-You’re a different woman now—thanks to the iGuardian.
-Who would have thought it could be so simple?”
+Mara stood, feeling the stretch pull through her calves as the boots forced her en pointe.
+The sensation was uncomfortable and strangely familiar, reminding her of her years as a ballet student.
+She adjusted her stance, concentrating on balance, and found that the boots did indeed make it easier to hold the posture Philippe expected.
+The arch forced her hips upright, while her chest was naturally pushed out as her body aligned itself with the iGuardian's demands.
 
-Philippe’s words echoed in Mara’s mind, striking her like a cold wave.
-Simple?
-Did he really think that everything she had gone through was simple?
-The months of constant pressure, the relentless control,
-the loss of every shred of autonomy—did he truly believe that her transformation had been easy?
+"Good," Philippe said, stepping back to observe her. "You see? These boots will help you maintain the correct posture with less effort."
 
-The thought ignited a fire inside her,
-and before she could stop herself, Mara’s hands flew up, signing furiously at Philippe.
-Her movements were sharp, angry, her gestures obscene.
-She poured out her frustration, her rage,
-her despair—she wanted him to understand just how much she had suffered, how much she still suffered,
-trapped in the iGuardian with no escape.
+Over the next few days, Mara grew used to the ballet boots.
+She found herself moving with even greater grace, the habits of ballet merging with the demands of the iGuardian to produce a new kind of fluidity.
+She knelt more often, preferring the ease of it to sitting, and her posture began to feel almost natural.
 
-But as her hands moved, Mara knew she had made a terrible mistake.
-The iGuardian detected her defiance almost instantly, and without warning, it switched into discipline mode.
-Pain shot through her body, searing and relentless, as the electrodes in her most sensitive areas activated.
-The shocks were harsh, punishing her for her outburst.
-But despite the pain, Mara’s resolve didn’t waver.
-She gritted her teeth, her body tensing but refusing to give in completely.
-She had endured worse—pain was something she could push through.
+Then one day, as Mara stood before Philippe with perfect posture and her hands folded neatly in front of her, he looked her over with a pleased expression.
 
-Philippe watched her closely, his expression shifting as he observed her response.
-When the shocks finally ceased, Mara stood trembling, not from fear but from the sheer physical toll.
-Her anger was still there, simmering beneath the surface, but now mixed with a deep sense of frustration.
-The pain, though intense, had not taught her as Philippe had hoped.
+"I must say, Mara, I am impressed," he said, calm and even. "Your behavior has improved significantly. You are a different woman now, thanks to the iGuardian. Who would have thought it could be so simple?"
 
-Philippe realized that something was wrong.
-The approach he had relied on—the use of pain to enforce discipline—was not having the desired effect on Mara.
-In fact, it was only hardening her resistance.
-He could see it in her eyes, in the way she held herself even after the correction.
-Pain, he suddenly understood, wasn’t the answer for someone like Mara.
+Simple.
 
-In that moment, Philippe realized he needed a different approach.
-Pain wasn’t working with Mara, so he searched through the iGuardian’s control app for an alternative.
-His eyes landed on edging mode.
-He decided to try it—pleasure, not pain, might be what Mara responded to.
+The word struck her like cold water.
 
-With a firm tap, Philippe activated the program.
-The iGuardian immediately began to stimulate Mara, focusing on her most sensitive areas with relentless precision.
-The sensation took her by surprise, overwhelming her.
-Her breath quickened,
-her body reacting instinctively,
-her legs trembling as the device kept her on the edge of satisfaction without ever letting her reach it.
-Her hands wandered, drawn to the stimulated areas,
-but she had already learned and internalized the restriction that she was not allowed to touch herself.
-Unsure where to put her hands and what to do with them, she gesticulated,
-desire melting her mind.
+Simple.
 
-For the first time, Mara couldn’t push through what she was feeling.
-She was used to enduring pain, but this was different.
-The iGuardian adapted to her responses, keeping her in a constant state of unfulfilled need.
-The anticipation, the teasing, the possibility of release—it was impossible to ignore.
+Did he truly think that was what he had done to her?
+The months of pressure. The shell. The feeding. The humiliation of being managed down to posture, appetite, sleep, and silence. Did he truly believe all of that had become simple because she had learned to hold still beautifully while it happened?
 
-“Mara,” Philippe said quietly, watching her closely, “you’ll learn. You’re already on your way.”
+The anger rose too fast to contain.
+Her hands flew up before caution could catch them.
+The signing was vicious, stripped of elegance, full of the old Mara's temper and vocabulary. She told him what he had reduced. What he had enclosed. How much of every day was spent enduring. How every graceful line he admired had been bought by force. The gestures turned coarse and ugly under the weight of it. She wanted him to see that whatever he thought he had achieved, he was not looking at peace. He was looking at strain made presentable.
 
-Mara didn’t respond. She was completely overwhelmed by the iGuardian’s new strategy.
+Even as she signed, Mara knew she had made a terrible mistake.
 
-As the days passed, the iGuardian continued its relentless conditioning.
-Mara quickly learned
-that any sign of defiance or misstep would lead to the withdrawal of the stimulation she had come to crave.
-This withdrawal alone was enough to motivate her toward compliant behavior.
-The desire to be a "Good Girl" and maintain that constant, tantalizing stimulation became her driving force.
-If she still resisted, the iGuardian resorted to painful corrections,
-but the pain was less effective than her growing need to avoid the absence of pleasure.
+The iGuardian detected her defiance almost at once and switched into discipline mode.
+Pain shot through her body, hard and searing, as the electrodes in her most sensitive areas came alive.
+The shocks were harsh, punishing her for the outburst.
+But despite the pain, Mara's resolve did not collapse.
+She gritted her teeth, her body tensing, and forced herself through it the same way she had forced herself through pain all her life.
 
-Deep down, Mara knew the iGuardian would never grant her release.
-But the constant stimulation, the teasing, the hope that maybe, just maybe,
-Philippe would eventually allow her the satisfaction she longed for,
-drove her to new levels of obedience.
-She started seeking ways to please Philippe, to avoid the painful corrections,
-and to keep the stimulation going for as long as possible.
+Philippe watched her closely, his expression changing as he observed her response.
+When the shocks finally stopped, Mara stood trembling, not from fear but from the sheer physical toll.
+Her anger still burned beneath the surface, now mixed with deep frustration.
+The pain had not taught her what Philippe had hoped it would.
 
-Her posture, once something she had to think about, became automatic.
-She spoke with extreme politeness and deference,
-never raising her voice or showing any sign of the frustration that still simmered beneath the surface.
+Philippe saw it at once when the correction ended.
+She was shaking, but she was still looking at him with the same furious clarity. Held, not changed.
+
+He did not say much. He only took out the control phone, glanced once at the screen, and made a different selection.
+
+With a firm tap, he activated the program.
+
+The iGuardian immediately changed what it was doing to her.
+
+The sensation took Mara by surprise so completely that for a second she did not even understand it. Then her breath caught. Her legs weakened. The stimulation landed with a precision that left no room to dismiss it as anything but deliberate. It found her, held her, and kept holding her just short of anything she could complete.
+
+Her body reacted before thought did.
+Her thighs tightened. Her breathing turned quick and shallow. One hand drifted downward on instinct and stopped halfway because the prohibition against touching herself was already too deeply learned to break cleanly. She did not know where to put her hands after that. They hovered, opened, closed, moved uselessly at the edges of her body while the device kept her in that bright impossible state.
+
+Pain she could organize herself against.
+This was harder to oppose because it crowded her from the inside. The teasing pressure adapted each time she tried to settle around it. There was no clean peak, no clean failure, only mounting need and the humiliating fact that her body had become fully legible to whatever program Philippe had just chosen.
+
+"Mara," Philippe said quietly, watching her closely, "you will learn. You are already on your way."
+
+Mara did not answer.
+She was too overwhelmed by what the iGuardian had discovered how to do to her.
+
+As the days passed, the iGuardian continued its conditioning.
+Mara learned quickly that defiance or carelessness led to the loss of the stimulation she had begun to crave.
+That absence alone was enough to drive her toward more compliant behavior.
+The desire to be a good girl and keep that constant tantalizing thread alive became a force in her daily life.
+If she still resisted, the device could always return to pain, but pain mattered less now than the risk of losing what her body had started wanting.
+
+Her posture, once something she had to think about constantly, became automatic.
+Her voice and signing grew more polite, more careful, more deferential.
+She started looking for ways to please Philippe before she had fully admitted that was what she was doing.
 
 Philippe noticed the change.
-“You’ve come a long way, Mara,” he remarked one day,
-watching her as she knelt before him, after a day of flawless demeanor.
-“I hoped you would finally make progress, but you’ve exceeded my expectations.”
 
-Mara’s hands moved smoothly and gracefully as she responded, “Thank you, Sir.
-With your guidance, I’m trying to be the best I can be.”
+"You have come a long way, Mara," he remarked one day, watching her kneel before him after a day of flawless behavior. "I hoped you would finally make progress, but you have exceeded my expectations."
+
+Mara's hands moved smoothly and gracefully as she responded.
+
+*Thank you, Sir. With your guidance, I am trying be best I can be.*
 
 She knew she was being conditioned, trained into obedience, but there was no escape.
-Day by day, the iGuardian stripped away her resistance,
-molding her into the obedient, submissive woman society demanded her to be.
+Day by day the iGuardian stripped away her resistance, shaping her into the obedient, submissive woman society expected her to become.
 
 Satisfied with her progress, Philippe decided to reward her.
-He leaned over,
-disabling the edging mode on the iGuardian.
-He set the device to deliver a full reward with release, and also ordered her to come.
-The sudden wave of pleasure that followed left Mara breathless, her body trembling from the intensity of it.
-For a brief moment she teetered on the edge,
-then she experienced the crashing wave of release she had been denied for days.
+He leaned over, disabled edging mode, and set the device to deliver a full reward with release.
+Then he ordered her to come.
 
-Philippe watched her with a pleased expression. “Good girl, Mara,” he said, his voice warm. “You’ve earned this.”
+The sudden wave of pleasure left Mara breathless, her body trembling with the force of it.
+For a brief moment she hovered at the edge, then the release she had been denied for days crashed through her.
 
-Mara, still catching her breath, signed her gratitude. “Thank you, Sir.”
+Philippe watched with clear satisfaction.
+
+"Good girl, Mara," he said warmly. "You have earned this."
+
+Still trying to catch her breath, Mara signed her gratitude.
+
+*Thank you, Sir.*
 
 The iGuardian remained in place, its control over her as unyielding as ever.
-Philippe had granted her a rare release, and also had finally turned the relentless edging off.
+Philippe had granted her a rare release, and it felt to Mara as though he had finally turned the relentless edging off.
 
-At least that is what it felt like for Mara.
-Unbeknownst to her, the mode continued to run in the background at a very low level, subtly shaping her behavior.
-The constant, barely noticeable stimulation persisted,
-reinforcing her obedience by quietly withdrawing whenever she approached undesirable behavior.
-The conditioning continued, now operating below her conscious awareness,
-guiding her toward the submission she needed to learn.
+At least, that was how it felt to her.
+
+Unbeknownst to Mara, the mode continued to run in the background at a very low level, subtly shaping her behavior.
+The constant, barely noticeable stimulation remained, withdrawing whenever she drifted toward undesirable conduct.
+The conditioning continued beneath her conscious awareness, guiding her toward the submission she still needed to learn.

@@ -3,152 +3,162 @@ title: "Chapter 41: The Charity Gala commences"
 weight: 41
 ---
 
+
 # The Charity Gala commences
 
-Philippe carefully supported Mara as she walked through the ballroom, her dress allowing only minimal steps.
-He led her to a tether bar where two other women waited for their guardians.
-Philippe clicked Mara into the bar, then stepped back to look for staff and Tom Holland to follow up on that affair.
-Zendaya's rebellion would make for an interesting evening.
+Philippe carefully supported Mara as she crossed the ballroom, her dress allowing only the smallest possible steps.
+He led her to a tether bar where two other women were already waiting for their guardians.
+Philippe clicked Mara into place, then stepped back to look for staff and for Tom Holland, wanting to follow up on that earlier incident.
+Zendaya's rebellion, brief as it had been, might yet turn into one of the evening's more useful stories.
 
-The women beside her were unmistakably Saudi, their faces veiled behind layers of gauze, exposing only their eyes.
-The inner veils were dark and mysterious, covered by an outer veil made of gold coins that jingled softly.
-Their hair was hidden beneath embroidered niqabs, and each abaya was adorned with flower patterns.
-The older woman’s abaya had red hues with desert roses and Arabian jasmine,
-while the younger’s abaya had white and yellow flowers like Arabian primrose and desert marigold.
-Chains clinked beneath their attire when they shifted.
+The two women beside Mara were unmistakably Saudi, their faces hidden behind layers of gauze that left only their eyes visible.
+The inner veils were dark and mysterious, covered by outer veils made of gold coins that chimed softly whenever they moved.
+Their hair was hidden beneath embroidered niqabs, and each abaya was decorated with floral patterns.
+The older woman's abaya was washed in red tones with desert roses and Arabian jasmine, while the younger's was white and yellow with flowers like Arabian primrose and desert marigold.
+Chains clinked beneath the cloth when they shifted.
 
-Mara, feeling the constraints of her dress, began the formal introduction.
-“Philippe Beaumont’s Mara,” she signed.
+Mara, acutely aware of the restrictions of her own dress, began the formal introductions.
 
-The older woman responded warmly, “Abdulaziz Al-Faraj’s Layla.”
+*Philippe Beaumont's Mara.*
 
-The younger followed, “Hassan Al-Saud’s Amina.”
+The older woman answered warmly.
 
-With formalities done, they began to converse more informally.
+*Abdulaziz Al-Faraj's Layla.*
 
-“Mara, your outfit is breathtaking,” Layla said. “It must be demanding to wear.”
+The younger followed.
 
-Mara signed amusement. “Thank you, Layla. It is literally breathtaking. Ballet and yoga help me manage.”
+*Hassan Al-Saud's Amina.*
 
-Amina’s eyes sparkled. “That’s impressive, Mara. I can’t imagine wearing something so restrictive with such grace.”
+Once the formalities were done, the tone softened.
 
-Mara's barked arms signed thanks for the compliment, and she continued.
-“Your outfits are stunning too. I noticed the sound of chains. Are they symbolic?”
+"Mara, your outfit is breathtaking," Layla said. "It must be difficult to wear."
 
-Layla nodded, the coins on her veil chiming softly.
-“They are very real and solid, but they also have a symbolic meaning.
-The chains show our guardians are wealthy and can afford women who never have to work.
-It’s a matter of pride and status since the Change.”
+Mara signed with amusement.
 
-Amina added, “They are permanent, welded on as is customary.
-We wear them with pride, showcasing our guardians’ care and our commitment to our roles.”
+*Thank you, Layla. It is literally breathtaking. Ballet and yoga help me manage.*
 
-Mara listened, understanding the cultural significance and shared experiences of strict societal expectations.
-“That is fascinating.
-It must require a lot of dedication.”
+Amina's eyes sparkled.
 
-Layla’s eyes crinkled in a smile.
-“It does.
-But we are honored to wear them and have help.
-Being chained means having a maid to take care of many daily needs.”
+"That is impressive, Mara. I cannot imagine wearing something so restrictive with such grace."
 
-Their discussion turned to fitness.
-Mara, feeling the constraints of her stiff tree-like dress, started the discussion.
-“I’ve found that wearing a long-term chastity belt presents certain challenges,
-especially in maintaining flexibility and strength.
-I rely on yoga and ballet.”
+Mara's bark-covered arms signed thanks for the compliment before she went on.
+
+*Your outfits beautiful too. Heard sound of chains. Symbolic?*
+
+Layla nodded, the coins of her veil chiming softly.
+
+"They are real, and they are symbolic as well. The chains show that our guardians are wealthy enough to afford women who never need to work. Since the Change, it has become a matter of pride and status."
+
+Amina added, "They are permanent, welded on as custom requires. We wear them with pride, showing our guardians' care and our commitment to our roles."
+
+Mara listened with interest, recognizing the familiar blend of cultural difference and shared female discipline.
+
+*Fascinating. Must require great dedication.*
+
+Layla's eyes crinkled with a smile.
+
+"It does. But we are honored to wear them, and to have help. Being chained means having a maid for many of the practical needs of daily life."
+
+The conversation shifted toward physical discipline and fitness.
+Mara, keenly aware of the constraints imposed by her stiff tree-like dress, started it.
+
+*Found long-term chastity belt creates certain challenges, especially for flexibility and strength. I rely on yoga and ballet.*
 
 Layla brightened.
-"Yoga and ballet sound wonderful, Mara.
-I’ve heard they are excellent for flexibility.
-How do you manage the exercises with the belt on?"
+
+"Yoga and ballet sound wonderful, Mara. I have heard they are excellent for flexibility. How do you manage the exercises with the belt on?"
 
 Mara smiled slightly.
-"I’ve adapted many poses to accommodate the belt.
-It’s about finding the right balance and being gentle with your body."
+
+*Adapt many poses around belt. It is matter of finding balance and being gentle with body.*
 
 Amina nodded.
-"That’s impressive, Mara.
-For us, being chained presents challenges.
-We rely on tailored exercises that focus on the areas we can move freely."
 
-Layla elaborated, “We do a lot of seated and standing exercises.
-Resistance bands are great for working our arms and legs within our limited range of motion.
-We also practice a modified form of Tai Chi, which helps with balance and flexibility without needing wide movements.”
+"That is impressive. For us, the chains bring their own challenges. We rely on exercises designed around the areas we can still move freely."
 
-Mara's eyes widened with interest. "Tai Chi sounds perfect.
-I might try some of those movements. Do you find it difficult to stay motivated?"
+Layla elaborated.
 
-Amina chuckled softly.
-"Motivation can be a challenge, but our guardians support us and provide us with the… encouragement we need.
-We also have a maid who assists with our exercises, ensuring our routine is safe."
+"We do many seated and standing exercises. Resistance bands are excellent for working the arms and legs within our limited range. We also practice a modified form of Tai Chi, which helps with balance and flexibility without wide movements."
 
-Philippe returned with a tray of snacks and drinks.
-He offered water in a bag to Mara, making light-hearted jokes that elicited soft laughter from Amina and Layla.
+Mara's interest sharpened.
 
-“You probably need plenty of water, Mara. You know, photosynthesis and all,” he teased, connecting the bag.
+*Tai Chi sounds perfect. Might try some of those movements. Difficult stay motivated?*
 
-Mara smiled, her eyes crinkling with amusement.
-“Thank you, Sir,” she signed, feeling the cool water refresh her throat.
+Amina laughed softly.
 
-Meanwhile, the charity auction was in full swing.
-Zendaya, despite her restrictive outfit and gag, moved with practiced elegance.
-Her elbow and knee joints were visibly locked, adding to her restraints.
+"Motivation can be difficult, but our guardians support us and provide the encouragement we need. We also have a maid who assists with the exercises and makes sure the routine remains safe."
 
-She presented various items gifted by celebrities to the audience.
-The auctioneer, a charismatic man named Charles Dupont,
-described each item with enthusiasm, his voice resonating through the ballroom.
+Philippe returned carrying a tray of snacks and drinks.
+He offered Mara water in a bag and made a joke light enough to draw soft laughter from both Layla and Amina.
 
-“Ladies and gentlemen, our next item is a one-of-a-kind necklace donated by Harry Styles!” Charles announced.
-“This stunning piece features rare emeralds set in platinum.”
+"You probably need plenty of water, Mara. You know, photosynthesis and all."
 
-Zendaya presented the necklace with stretched arms, the stage lights catching the brilliant green of the emeralds.
-The audience gasped in admiration, the wards encouraging their guardians to bid.
+Mara's eyes crinkled with amusement.
 
-“We’ll start the bidding at ten thousand euros. Do I hear ten thousand?” Charles called out.
+*Thank you, Sir.*
 
-A hand shot up. “Ten thousand!” a man near the front shouted.
+The cool water soothed her throat.
 
-“Fifteen thousand!” another man quickly countered, his ward clapping excitedly beside him.
+Meanwhile, the charity auction had begun in earnest.
+Zendaya, despite her increasingly restrictive outfit and gag, still moved with practiced elegance.
+Her elbow and knee joints were visibly locked now, adding another layer of restraint.
 
-The bids climbed rapidly. “Twenty thousand! Twenty-five thousand!” Charles called out.
+She presented the items donated by celebrities while the auctioneer, a charismatic man named Charles Dupont, described each one with enthusiasm, his voice carrying through the ballroom.
 
-“Thirty thousand!” a voice from the back rang out.
-It was Lord Hargreaves, his presence commanding respect.
-Caroline, his ward, stood beside him, her veiled head held high in pride.
+"Ladies and gentlemen, our next item is a one-of-a-kind necklace donated by Harry Styles," Charles announced. "This stunning piece features rare emeralds set in platinum."
 
-“Thirty thousand from Lord Hargreaves! Do I hear thirty-five?” Charles urged.
+Zendaya lifted the necklace with outstretched arms, the stage lights catching the deep green brilliance of the stones.
+The audience gasped appreciatively, and several wards visibly encouraged their guardians to bid.
 
-“Forty thousand!” came the next bid, from a distinguished man in a sharp suit.
-His ward, dressed in an elegant gown adorned with ivy, beamed with delight.
+"We will start at ten thousand euros. Do I hear ten?"
 
-The room buzzed with excitement. Philippe and Mara watched with interest.
+A hand rose at once.
 
-“Fifty thousand! Fifty-five thousand!” Charles kept the momentum going.
+"Ten thousand!"
 
-“Sixty thousand!” the man in the sharp suit bid again.
+"Fifteen!" another man countered almost immediately, his ward clapping excitedly at his side.
 
-“Going once, going twice…” Charles paused.
-“Sold!
-To the gentleman in the sharp suit for sixty thousand euros!
-Congratulations!”
+The numbers rose quickly.
 
-The room erupted in applause, the successful bidder receiving pats on the back from nearby guests.
-His ward looked up at him with admiration, clearly proud of his win.
+"Twenty! Twenty-five!"
 
-“Next, we have an exclusive vacation package to a private island in the Maldives,
-donated by Leonardo DiCaprio!” Charles announced,
-moving seamlessly to the next item.
-Zendaya, moving around with rigid knees, presented the package with a flourish,
-the imagery of pristine beaches and luxury accommodations captivating the audience.
+"Thirty thousand!" came a call from the back.
 
-“Bidding starts at twenty thousand euros,” Charles began, the room coming alive with excitement.
+It was Lord Hargreaves, carrying the quiet authority that made rooms adjust around him.
+Caroline, his ward, stood beside him with her veiled head held high in visible pride.
 
-As the bids soared, Philippe leaned in close to Mara.
-“The enthusiasm tonight is incredible.
-The funds raised will do so much good.”
+"Thirty thousand from Lord Hargreaves! Do I hear thirty-five?" Charles pressed.
 
-Mara nodded, her eyes shining. “Yes, Sir. It’s wonderful to see such generosity. This will make a significant impact.”
+"Forty thousand!" came another bid from a distinguished man in a razor-cut suit.
+His ward, dressed in an ivy-trimmed gown, beamed up at him in delight.
 
-The charity auction continued, each item fetching impressive sums.
-Mara and Philippe observed with satisfaction, knowing their efforts had paid off.
+The room buzzed with excitement.
+Philippe and Mara watched with interest.
+
+"Fifty thousand! Fifty-five!"
+
+"Sixty!" the man in the suit called again.
+
+Charles paused dramatically.
+
+"Going once, going twice... sold! To the gentleman in the sharp suit for sixty thousand euros. Congratulations!"
+
+The room erupted in applause.
+Nearby guests offered congratulatory pats on the back, and the successful bidder's ward looked up at him with obvious admiration.
+
+"Next, we have an exclusive vacation package to a private island in the Maldives, donated by Leonardo DiCaprio," Charles announced, shifting smoothly to the next lot.
+
+Zendaya, moving carefully on rigid knees, presented it with a flourish while images of beaches and luxury villas glowed behind her.
+
+"Bidding starts at twenty thousand euros."
+
+As the bids climbed again, Philippe leaned slightly toward Mara.
+
+"The enthusiasm tonight is extraordinary. The money raised will do a great deal of good."
+
+Mara nodded, her eyes shining.
+
+*Yes, Sir. Wonderful see such generosity. This will make significant impact.*
+
+The auction continued, one item after another fetching impressive sums.
+Mara and Philippe watched with deep satisfaction, both of them knowing how much work had gone into making the evening succeed.

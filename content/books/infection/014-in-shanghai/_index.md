@@ -3,160 +3,127 @@ title: "Chapter 14: In Shanghai"
 weight: 14
 ---
 
-{{% details title="**Storycodes**" open=true %}}
-Mf, FF, bdsm, con, mind-control, submission, humiliation, conditioning, corsetry, hobble-skirts,
-retro-femininity, silence, masks, obedience, correction,
-arranged-marriage, ritual, giving-away, tea-ceremony, dystopia
-{{% /details %}}
-
-{{% details title="**Disguised as a maid in Shanghai, Sonia submits to corsets, collars, and silence to spy on the man who built the virus. Returning to Geneva, Sonia balances rebellion and temptation as Anna embraces marriage,  ritual, and the virus’s vision of harmony.**" %}}
-
-Sonia’s mission takes her deep into Shanghai,
-where the Change has already transformed public life into a theater of corsets, masks, and ritualized silence.
-To get close to Dr. Cheng, she buries her pride beneath maid’s uniforms and enforced etiquette,
-every gesture rehearsed, every word stolen from her by a porcelain mask.
-The deeper she plays the role, the more the role plays her, testing her resolve and eroding her sense of self.
-Returning to Geneva with stolen secrets, Sonia finds her city equally transformed,
-her closest friend Anna serenely preparing for her giving-away ceremony.
-With data that could expose the truth but a society that welcomes its own restraint,
-Sonia must decide whether she is resisting for others—or resisting alone.
-
-Back from Shanghai with stolen data, Sonia learns the virus is more than a tool of control—it rewrites memory itself,
-weaving new traditions and loyalties into the very fabric of society.
-While she struggles with masks, corsets, and the lure of support in a world that anticipates her every need,
-her friend Anna prepares joyfully for her Giving-Away, serenely pledging obedience to Julien and to the Changed ideals.
-Sonia, caught between resistance and belonging,
-must decide whether to cling to her autonomy or accept the peace that Anna offers her in the form of a vial that would complete her transformation.
-
-{{% /details %}}
-
 
 # In Shanghai
 
-Sonia stepped off the plane into Shanghai's humid air, immediately feeling the weight of change around her.
-The airport hummed with efficiency, but there was an undercurrent of formality that prickled her skin.
-Women moved with precise steps, their bodies cinched at the waist by corsets,
-and men carried themselves with newfound rigidity.
+Sonia stepped off the plane into damp Shanghai heat and understood at once that Geneva had only been a beginning.
 
-She breezed through luggage claim and customs, her eyes taking in every detail.
-Shanghai was even further along than Geneva; the Change here felt more... complete.
-Sonia steeled herself,
-realizing she'd have to tread carefully if she wanted to fit in without losing sight of her mission.
+The airport was bright, crowded, and so disciplined it made her skin tighten. Women moved through it in restrictive elegance so consistent it no longer looked like fashion. Fitted jackets over corseted waists. High collars. Gloves. Narrow skirts or local variants that forced the same short, careful gait. Men beside them varied more in age, build, and dress, but not in bearing. They all carried the same settled authority Sonia had started noticing back home, only here it looked older, deeper, fully at home in itself.
 
-A Mirende Gingciao boutique caught her eye as she exited towards the taxi stand.
-She hesitated, then pushed open the door.
-The bell chimed softly behind her as she stepped inside,
-the scent of fresh fabric and polished wood filling her nostrils.
+More complete, she thought.
 
-The saleswoman greeted her with a polite bow, her own corset creaking slightly as she moved.
-"Welcome to Mirende Gingciao," she said, her voice pitched higher than usual.
-"How may we assist you today?"
+No one here looked as if they had been talked into any of it last month.
 
-Sonia approached the rack, running her fingers along the silks and laces.
-She picked up a deep blue corset and held it against herself in the mirror.
-It was beautiful, but it felt like admitting defeat.
+By the time she reached the outer concourse, she knew her Geneva wardrobe would not be enough. It had worked there as camouflage, enough to blunt attention and let her move. Shanghai was further along. She needed a local version if she wanted the city to stop reading her as a visitor.
 
-"I need something... suitable," she said, choosing her words carefully. "For business meetings."
+A Mirende Ginciao storefront solved that problem for her.
 
-The saleswoman nodded knowingly.
-"Of course," she replied, selecting a Gowbao Yoohoo blouse to pair with the corset.
-"This one is designed for self-donning, perfect for evenings out or formal events."
+The boutique stood just beyond the airport flow, all lacquered wood, quiet light, and polished self-possession. The mannequins in the window were dressed for a world that had stopped pretending functionality was neutral. Severe collars. Controlled waists. Skirts that asked for help without ever admitting the need aloud.
 
-Sonia took the garments, her resolve wavering.
-But this was just surface deep, she told herself.
-She wasn't changing who she was inside; she was simply playing a part.
+Sonia stood outside for one breath too long, then went in.
 
-With that thought, she made her way to the fitting room, leaving her old self behind the door.
-For now, she'd be another woman in Shanghai - corseted, restrained, and Changed on the outside.
-But her heart still burned with determination to undo the Change.
+The saleswoman who greeted her wore a fitted jacket over a narrow dress with long cuffed sleeves and a soft head covering pinned close along the jaw. She bowed slightly.
 
-She had to undress down to her lowest layer, a cotton spaghetti-strap top, over which the corset would go.
-The stiff front busk closed with seven steel hooks, and she grabbed the laces behind her,
-feeling for the crossed laces at the top and bottom.
-Pulling each "X" gradually tightened the corset,
-working her way downwards and upwards to the to the waist
-where the loose laces could then be pulled to pick up the slack.
-The first iteration made the corset feel snug, and she could feel the posture it imposed on her.
-She arranged her breasts into the cups, which provided some serious uplift and positioning,
-and following tightening passes turned snugness into serious pressure, holding her upright.
+"Welcome, miss. How may we help you?"
 
-After fastening the garters, the Yoyah Sheengzoh went back on over it.
-It hugged her legs tightly, the reinforced hem a barrier against wider steps.
-Experimentally, she took a few cautious strides, feeling the fabric catch and hold her knees together.
+Sonia hated how quickly the answer came.
 
-She then proceeded to put on her new Gowbao Yoohoo.
-The blouse was a simple silk design with an internally boned mandarin collar
-extending up to the back of her head and buttons that reached from her right shoulder to the collar.
-Closing the buttons from the shoulder upward, the collar gradually tightened around her neck like a corset,
-It was regal, yes, but restrictive too.
-Any attempt to look up or turn her head met with resistance and eventually became painful.
+"I need something suitable for business."
 
-The ensemble was completed with a Chinese-style narrow overskirt, much like a pencil skirt,
-covering the Yoyah Sheengzoh.
-Confused by the new sensations of restriction imposed by her dress, she almost forgot her hat, purse, and gloves,
-turning around and shuffling back to the changing room to retrieve them.
-She had to bend at the knees because the corset and blouse effectively prevented her from bending any other way.
+The woman nodded as if the request contained more than the words.
 
-In her new attire, Sonia immediately felt a shift in her posture and movement,
-serving as a constant, unspoken reminder of the Change's influence.
-The relentless pressure of the corset and the neck corset of the blouse imposed the same posture on her
-as that shared by all the Changed around her.
-Each step and breath reminded her of the concessions she had made,
-fueling a mix of resignation and resistance within her.
-While the attire was a tool for blending in,
-it also symbolized the very phenomenon she aimed to resist and possibly undo.
-Her movements, now dictated by the confines of her new wardrobe, mirrored the controlled elegance of those around her,
-reflecting the deep and personal impact of the Change on individuals and society.
+"Of course."
 
-During her journey to the Campanile Shanghai Jing'an Hotel via the subway,
-Sonia observed the diversity among the Changed around her.
-Despite the fact that their attire was uniformly restrictive—corsets, high-collared Gobao Yoohoo blouses,
-hobbling underskirts, and high-heeled shoes were mandatory—the outfits were a blend of Victorian styles,
-New Look ideas, and uniquely local Chinese-influenced designs.
-Gloves were a universal accessory,
-varying from delicate lace to more practical leather, apparently depending on the wearer's needs or tasks.
-Heels clicked harshly on the subway floor, each pair thoughtfully chosen to complement the wearer's ensemble.
-Hair coverings varied—some women wore stylish hijabs matching their outfits,
-while others opted for local Chinese head coverings or fashionable hats,
-each adding a personal touch to the uniformity prescribed by their Changed status.
+What she brought was not Geneva's language copied directly, but a local dialect of the same coercion. A deep blue corset. A Gowbao Yoohoo blouse designed to close without assistance but still cut to keep the shoulders back and the head properly placed. A narrow overskirt to hide the Yoyah Sheengzoh beneath it. Gloves. Heels chosen to alter the body all day, practical enough for walking, but only just.
 
-Men favored sharp business suits or slightly more casual attire.
-Their suits were impeccably tailored, with narrow waists and broad shoulders,
-projecting an air of authority and control.
-Casual wear, while less formal, still adhered to a neat, polished aesthetic,
-with tucked-in shirts and cuffed trousers paired with pristine loafers or brogues.
+"This will travel well," the saleswoman said. "Respectable. Restrained. Serious."
 
-After a lengthy journey of nearly an hour and a half, Sonia arrived at Jing'an Temple station,
-retrieved her luggage, and made her way to the Campanile Shanghai Jing'an Hotel.
-Once checked in, she eagerly shed her restrictive attire.
-Peeling off the high-collared blouse and stepping out of her confining Yoyah Sheengzoh, she breathed a sigh of relief.
-Sonia carefully untied the bow of her corset laces, gradually easing the tightness around her waist.
-She then slipped off her stockings and garters, quickly headed into the bathroom for a refreshing shower,
-and collapsed into bed, utterly spent from the flight.
+Sonia took the stack and went into the fitting room before she could argue with herself.
 
-The next morning, following breakfast, she began to delve into Dr. Mingyu Cheng's background.
-As she pieced together information,
-the details of Dr. Cheng's life painted a picture of a man with both the means and expertise
-to have engineered LASS-VASH to cause the Change.
-From his humble beginnings as an American-born Chinese to his ascendancy among Shanghai's biotech elite,
-every detail seemed to underscore his capability for such a monumental undertaking.
+She stripped down to her base layer and stared at the garments hanging from their hooks.
 
-Dr. Cheng was well known for his work in neurophysiology and biotechnology.
-He had an illustrious career that took him from the academic circles of New York to the forefront of Shanghai's elite.
-He was the founder of Cheng Biotech Industries (CBI),
-and his work had revolutionized the treatment of neurological disorders, propelling him to billionaire status.
-He reportedly lived in the upscale Xuhui District.
+Camouflage, she reminded herself.
 
-As Sonia delved deeper into Dr. Cheng's life, she felt awe, but also revulsion.
-The idea that one individual could wield such enormous influence,
-reshaping the very essence of society and personal identity, was both intriguing and terrifying.
-Despite her disdain for the Change,
-Sonia couldn't help but admire the sheer brilliance and audacity required to conceive and execute such a sweeping plan.
+Then she put the corset on.
 
-Realizing the elusive nature of Shanghai's elite, Sonia understood that direct approaches would be fruitless.
-The city protected its secrets diligently, especially those involving prominent figures like Dr. Cheng.
-It dawned on her
-that her best chance to infiltrate Cheng's world was
-to become part of the unseen workforce that maintained the luxurious lifestyles of the wealthy.
+She knew enough now to manage it. Busk first. Laces next. Tighten from top and bottom toward the waist, then again, then once more after the body has accepted the first lie about what counts as comfortable. The pressure settled around her ribs with a familiarity she resented. Her posture changed. Her breathing changed. Sweat gathered under her breasts in the humid air and stayed there, trapped. Her thoughts narrowed toward the body instead of staying above it.
 
-She needed to become a maid.
+The Yoyah Sheengzoh followed, and with it the immediate correction lower down: shorter steps, closer knees, a different relationship to balance. Then the blouse. Shoulder closures first, then the collar. By the time she fastened the top, her head no longer belonged entirely to her. Looking up took effort. Turning meant the whole body had to agree.
+
+She stepped into the overskirt and then the heels.
+
+The gloves came last.
+
+The woman in the mirror had become legible to Shanghai in a way Sonia no longer was.
+
+It worked.
+
+That was the first humiliating truth.
+
+The second came a beat later and landed lower in her body: part of her liked how coherent it felt. Not morally. Not politically. In the body. Every piece spoke to every other piece. Upright here, narrowed there, guided above, limited below. The whole system made sensual sense once it closed around her.
+
+She hated that almost as much as she believed it.
+
+When she stepped out, the saleswoman's eyes flicked over her once, not lingering, only confirming.
+
+"Yes," she said softly. "Much better."
+
+Approval moved through Sonia with a small, ugly force.
+
+She paid too much, took her luggage, and entered the city dressed in obedience she did not believe in.
+
+The subway ride to Jing'an gave her too much time to look.
+
+Women around her wore versions of the same life in different fabrics: neat jackets, shaped waists, narrow sleeves, gloves, controlled hair, every public movement already edited down to something composed and modest. A young woman stood when an older man approached and lowered her gaze before he touched her elbow to steady her back into her seat at the next stop. A businessman shifted aside to make room for an older woman, then took her shopping bag without discussion and carried it for her until she left the train. Near the door, a girl no older than twenty waited with her hands folded while the man beside her checked the route on his phone and told her when to move.
+
+None of it drew stares.
+
+That was what made it worse.
+
+By the time she reached the hotel, the collar had started to feel like a hand at the back of her neck. The corset held her in one exact shape. The humidity had turned the blouse tacky under her arms. She checked in, got to her room, closed the door, and began pulling the clothes off in the first wave of private relief.
+
+The blouse first. Then gloves. Then heels. The overskirt. The underlayer. Last, carefully, the corset.
+
+When the pressure released, she had to sit on the edge of the bed and wait for herself to come back fully.
+
+Underneath the relief sat a faint disappointment.
+
+She swore at herself under her breath, showered, changed into a hotel T-shirt, ordered bad noodles, and spread Mara's files and Jiang Han's material across the desk.
+
+Dr. Mingyu Cheng emerged from the documents piece by piece rather than all at once. American-born Chinese. Family money sharpened by personal brilliance. Neurological biotech. Cheng Biotech Industries. Rich. Respectable. Untouchable in his villa in Xuhui. Sonia read old interviews, board notes, clipped profiles, and the careful little public myths wealthy men accumulated around themselves. Visionary. Modernizer. Philanthropist. The vanished collaborators sat at the edge of all that polished material like missing teeth. Nothing linked cleanly enough to force a door open. Everything suggested a perimeter built to absorb curiosity and redirect it into admiration.
+
+She read until the lines blurred.
+
+The city glowed beyond the window. Somewhere out there lived the man who had either built the virus or stood close enough to its making to matter. Somewhere between him, the boutiques, and the women on the subway, the same lesson kept repeating itself in different forms. Structure women beautifully. Teach dependence through grace, inconvenience, praise, relief. The rest followed faster than anyone liked admitting.
+
+By morning she had reduced her options to three, then to one.
+
+Business contact would fail.
+
+Journalistic pressure would fail.
+
+Scientific inquiry would be blocked, redirected, delayed, watched.
+
+The one kind of person who moved through households and private rooms without being important enough to remember was the one kind of person Sonia had spent her whole life being determined never to become.
+
+A maid.
+
+She sat with that for a long time, elbows on knees, one hand against her mouth.
+
+The logic was simple enough. The recoil was not.
+
+Service fit the world Cheng had built. Service fit the boutiques, the subway, the men who guided without asking and the women who made that guidance look natural. Service fit the shape the clothes kept trying to teach her body even when her mind rejected the lesson.
+
+And under the disgust waited another feeling she did not want to examine too closely: the suspicion that she could do it.
+
+Worse, that she might do it well.
+
+She reached for Jiang Han's card.
+
+"I need placement," she said when he answered. "Domestic staff. High-level household. Close to Cheng if possible."
+
+He was quiet just long enough to make her wonder what expression he was wearing.
+
+"That can be arranged," he said. "Not cheaply."
+
+"Nothing about this has been cheap."

@@ -3,333 +3,577 @@ title: "Chapter 11: Anna and Julien"
 weight: 11
 ---
 
+
 # Anna and Julien
 
-While Sonia was in Shanghai, Anna became increasingly involved in Julien's life,
-drawn in by the urges instilled by her viral conditioning.
-She woke up early, the dawn's light barely filtering through her curtains when her alarm sounded.
-Today was significant; Julien had summoned her to his apartment, and she would, of course, comply.
-Obedience was no longer just a duty; it had become her delight, a deep-seated pleasure that had become second nature.
-She selected her attire with care, aiming to impress Julien and appear desirable and attractive.
+While Sonia was in Shanghai, Anna's life narrowed and deepened around Julien.
 
-First, she slipped into her stockings, fastened with garters to a girdle that sculpted her waist.
-Next came her heels, a moderate seven centimeters high,
-enough to alter her posture and remind her of the femininity she was to project and embrace.
+It did not happen all at once. That was part of why it felt so natural. One morning became several. Breakfast became a habit. Being expected became a pleasure so steady she started waking a few minutes before the alarm, already warm with it.
 
-The restrictive Yoyah Sheengzoh posed a greater challenge;
-it was stiff and designed to limit her stride, serving as a constant reminder of her place and purpose.
-Above the waistline, she chose a nude longline bra that sculpted her figure and accentuated her virally augmented assets,
-covered by a cream and dark blue striped Victorian blouse.
-Its high collar and intricate lace reflected the modesty and elegance expected of her,
-the slight pressure of the collar encouraging her to hold her head high and move with grace and deliberation.
-The skirt, also dark blue, followed.
-It was poofed out by a petticoat, A-line and falling gracefully over her hobble slip,
-completing the silhouette of propriety and demure femininity.
+One morning, she dressed with more care than usual because Julien had told her to come early.
 
-Her makeup was applied with precision,
-enhancing her features but never overshadowing the natural beauty deemed appropriate.
-A cream hijab was the final adornment, covering her hair completely as required.
+Stockings first, clipped to a girdle. Then heels, enough height to alter her carriage without making the stairs impossible. The Yoyah Sheengzoh came next, drawn up and settled into place. A nude longline bra that sculpted her figure, the stiff collar of her blouse reminding her not to slouch and not to forget herself. She finished with a dark blue skirt, a cream hijab, gloves, soft makeup, well aware that she was making herself pleasant for him to look at.
 
-As she dressed, Anna felt a surge of anticipation.
-She was making herself attractive for Julien as well as for herself.
-This was who she was now, and there was profound satisfaction in that acceptance.
-She imagined his approval, the possibility of becoming "Julien Moreau's Anna,"
-and it filled her with a sense of purpose.
+That thought no longer embarrassed her; she was comfortable in that knowledge.
 
-Arriving at his apartment, Anna used the key Julien had given her to let herself in.
-She moved quietly to his bedroom, taking short steps enforced by her underskirt,
-displaying the learned grace she had acquired since the Change.
-Gently waking him, she saw his eyes open, a hint of surprise followed by satisfaction at her presence.
+She let herself into his apartment with the key he had given her and paused just inside the door. Quiet. Early light. The apartment still held the trace of sleep and the faint smell of yesterday's coffee.
 
-"Thank you, Miss Anna," Julien said, "and a good morning to you.
-Good girl."
-A wave of pleasure washed through Anna as he spoke.
-"Good morning, Sir," Anna replied with a smile, "your breakfast will be ready soon, if that is convenient."
-She waited, standing next to his bed with folded hands, until he acknowledged her.
-"Thank you again, Miss Anna.
-You may begin with that now."
-Only then did she curtsy and proceed to the kitchen.
+She went to his bedroom and stopped a respectful step from the bed.
 
-Preparing breakfast was a joyous task for Anna.
-She had familiarized herself with Julien's kitchen,
-knowing exactly where everything was, and performed her role efficiently.
-From cracking eggs to brewing coffee, each act of service was performed with love.
-She meticulously set the table, ensuring everything was perfect for Julien,
-then waited as she remembered her mother teaching her the proper pose, 
-standing at attention, hands folded, gaze lowered, ready to be commanded.
+"Sir," she said softly. "Good morning."
 
-After Julien dressed, he joined Anna at the table she had carefully set.
-"This looks delicious, Miss Anna," he said, smiling at her.
-"You may serve now."
+Julien woke without jolting. He had started doing that. The new order sat in him more comfortably now, but not carelessly. He looked at her, took in the outfit, the folded hands, the fact that she had come as asked, and his face changed in that way she had already learned to crave.
 
-Anna had been waiting for this moment.
-She sprang into action, serving the eggs and pancakes she had prepared, pouring his coffee just the way he liked it.
-"Is everything to your satisfaction, Sir?" she asked softly.
+Approval first.
+Then warmth.
 
-"It is perfect, Miss Anna," Julien replied with approval. "Good girl, well done."
+"Good morning, Anna," he said. "Come here."
 
-A wave of pleasure washed over Anna at his words.
-She felt it course through her, from her head down to her fingertips and toes,
-converging in a delightful warmth in her core.
-It made her feel both weak and deeply aroused.
-"You may bring a cushion and kneel here, Miss Anna," Julien instructed, pointing to the spot at his feet.
+She stepped closer.
 
-Anna complied, bringing her cushion and kneeling on it gratefully.
-She positioned herself facing him, hands folded in her lap, gaze lowered.
-She made sure to sit upright, chest out, hips aligned, presenting herself attractively as she had been taught.
+"Thank you for being prompt."
 
-As Julien began to feed her, he was mindful of her preferences, choosing her favorite foods.
-Anna had always loved simple, wholesome meals—scrambled eggs with a pinch of salt and pepper,
-slices of ripe avocado, and whole-grain toast lightly buttered.
-Julien made sure each bite was to her liking, a silent show of his care and attention.
+The words settled low in her body, less sharply than `good girl` did, but with the same direction.
 
-Anna received each offering with gratitude, feeling pride and satisfaction.
-Being fed by Julien, being under his care, was a deeply profound experience for her.
-Their ritual was not just about the food, it also celebrated their connection and the dynamics of their roles.
+"You are welcome, Sir."
 
-When the meal was over, Julien broke the comfortable silence.
-"Miss Anna, please clean up and then proceed with your duties at GAIA."
+His gaze moved over her once more, not greedily, simply with attention.
 
-Anna rose gracefully, her movements slightly hindered by her dress but carried out with practiced ease.
-"Thank you, Sir, for allowing me to serve," she replied, her voice filled with genuine warmth and gratitude.
-She cleared the table and loaded the dishwasher quickly and efficiently,
-her mind wandering as she reflected on the morning's interactions and fantasized about being "Julien Moreau's Anna."
-Then, she grabbed her gloves and purse and hurried to work.
+"You look very pretty."
 
-As evening descended, Anna found herself once again in Julien's kitchen, preparing dinner.
-The menu was simple yet elegant: savory roast chicken seasoned with fresh herbs,
-accompanied by roasted vegetables and garlic mashed potatoes.
-When dinner was ready, Anna served Julien with grace,
-presenting each dish with pride, then knelt on her cushion, waiting to be fed.
+That reached her even deeper. She lowered her eyes to contain the reaction and felt herself smile despite the effort.
 
-As he tasted the first bite, his face lit up with satisfaction,
-and he uttered the words she had come to cherish: "Good girl."
-The praise sent a wave of joy through Anna,
-her conditioning responding to the approval with a deep sense of fulfillment.
-She closed her eyes for a moment, savoring the sensation, the tangible reward for her efforts and obedience.
+"Thank you, Sir."
 
-After sampling the first bite and approving it,
-Julien made it a point to first feed Anna before allowing himself his portion,
-making sure she got the best pieces.
-Anna assumed the pose she had found now almost familiar,
-waiting for the next bite, taking it, and then slowly savoring it.
-What had initially felt a bit awkward had, over time, become an intimate ritual between them,
-building an unexpectedly close bond.
+Julien sat up and rubbed one hand over his face.
 
-As dinner concluded and Anna began to clear the table, Julien's voice carried a note of genuine appreciation.
-"Miss Anna, you have outdone yourself tonight.
-Thank you for this wonderful meal."
-Anna responded with her usual mix of humility and pride.
-"Thank you, Sir, for the opportunity to serve.
-It is my pleasure to do so."
+"I am still getting used to this," he said, half to himself. "Having someone here. Expecting someone."
 
-Despite enjoying Julien's praise, Anna longed for more.
-She dreamed of becoming "Julien Moreau's Anna,"
-but her conditioning prevented her from expressing these feelings unless prompted.
-Instead, she focused on being the best she could be,
-hoping Julien would recognize her value and eventually ask her father to give her away to him.
+Anna lifted her head just enough to answer.
 
-One evening, as they sat together in quiet comfort, Anna knelt gracefully beside Julien's chair.
-Her heart raced as she decided to voice a question that had been on her mind.
-"Sir," she began softly, "do you find my style pleasing?"
+"I am glad to be expected, Sir."
 
-Julien looked at her, a thoughtful smile playing on his lips.
-"Miss Anna," he said warmly, "your style is always lovely.
-You have a way of dressing that shows your grace and elegance.
-But I'm curious—are there any changes you're considering?"
+He looked at her for a second longer than the sentence required.
 
-With his permission to speak, Anna felt a flutter of excitement.
-"Sir," she said carefully, "I've noticed Maylee Shufoo has some new corsets and blouses.
-They're quite elegant.
-Would it please you if I included them in my wardrobe?"
+"Yes," he said. "I think you are."
 
-Julien's eyes lit up with interest.
-"I've seen those, Miss Anna.
-A corset can add such elegance to a woman's form.
-It's quite remarkable."
+That, too, felt good.
 
-Anna's heart skipped a beat, thrilled by his reaction.
-"May I explore these options further, sir?" she asked, her voice hopeful.
+"Go on," he said. "Make breakfast. Then come back."
 
-"Absolutely, Miss Anna," Julien replied, a note of approval in his voice.
-"Your manners and taste are impeccable.
-Good girl."
+"Yes, Sir."
 
-Anna felt warmth spread through her at his praise, a glow that filled her with happiness.
-"Thank you, sir.
-Your guidance means everything to me.
-I promise to choose outfits that reflect the dignity and respect you inspire."
+In the kitchen she moved quickly and carefully, already knowing where he kept the pans, the eggs, the butter, the better coffee. She liked the practical intimacy of that knowledge. It made the space feel partially hers, though only through service.
 
-Feeling ready and excited, Anna headed to Maylee Shufoo the next day.
-She was eager to see Lily, the friendly saleswoman who had helped her before.
-"I'm here to explore corsets as the new foundation of my appearance," Anna said with a smile.
-"Julien encouraged me, and I want to make our next meeting special."
+She set the table, cooked, poured, arranged, then returned to wait for him in the posture her mother had once taught and the virus had restored to absolute importance: still, hands folded, shoulders open, gaze lowered, ready.
 
-Lily smiled warmly.
-"Of course, Anna.
-We have just the thing to make you unforgettable.
-Let's start with a comfortable night corset, then explore the more dramatic options."
+When Julien came out dressed for work, he stopped and looked at the table, then at her.
 
-Anna nodded, trusting Lily's expertise. "Show me what you recommend."
+"Very nice," he said. "Serve."
 
-Lily explained the importance of a good fit.
-"We used to take a lot of measurements, but now we use a 3D body scanner.
-It ensures precision."
-She led Anna to the scanner, surrounded by modesty drapes.
-"Please undress, stand on the platform, and hold still."
+She did.
 
-Anna did as instructed, standing on the platform as the scanner's green lasers mapped her body.
-Lily guided her through various poses, both with and without heels.
-The result was a detailed body scan and a sheet with precise measurements.
+The first days taught them both that he liked being looked after and that she liked being directed through the small domestic details that had once seemed beneath notice. Coffee poured for him at the right strength. Eggs set down hot. His bag placed by the door before he remembered to ask. Her body answered each successful anticipation with relief and readiness. The work was ordinary. The approval was not.
 
-Based on Anna's preferences and measurements, Lily selected a comfortable night corset and two dramatic S-line corsets.
-Anna's eyes widened as she examined the posture corsets; they looked impressive yet efficient.
+One morning, after tasting the eggs, Julien glanced at the second plate and then at her waiting posture.
 
-"Don't be fooled by the design and lace," Lily said.
-"These are designed to be effective.
-This one, with integrated shoulder braces, will dramatically accentuate your figure.
-It's designed for maximum impact, enhancing your posture to present you in the most flattering light."
+"Are you going to stand there until I tell you to eat?"
 
-Lily assisted Anna into a changing cabin, carefully guiding her into the elegant embrace of a "dress to impress" corset.
-As the laces tightened, Anna felt her posture align, the corset molding her body into a predetermined shape.
-The sensation was intense, and Anna felt her breath catch.
+Anna hesitated.
 
-"It's… incredibly tight. I can hardly breathe," Anna managed, a note of alarm in her voice.
+"If that is what you prefer, Sir."
 
-Lily stopped immediately.
-"That's not right.
-It shouldn't impede your breathing or hurt.
-If it does, it's not a good fit and needs to be changed or swapped for a different model."
+Something softened in his expression, closer to care made firmer by authority than to pity.
 
-Anna rechecked herself and gestured to Lily to proceed, but slowly.
-Lily reminded her:
-"It's a thing to get used to, Anna.
-Remember, elegance comes with a certain level of restraint.
-The posture it encourages—bottom out, chest forward—demands attention but also symbolizes a need for support."
+"Bring the cushion," he said. "Kneel here."
 
-Anna gazed at her reflection, struck by the dramatic S-curve the corset gave her figure.
-The rigid structure and shoulder braces forced her into a pose that was both vulnerable and commanding.
-"I look… different," she murmured.
-"Powerful, yet delicate."
+Her pulse jumped.
 
-Lily smiled approvingly.
-"Exactly, Anna.
-These corsets transform not just your appearance, but also how you're perceived.
-Julien will be captivated.
-It's a delicate dance of visibility and vulnerability."
+"Yes, Sir."
 
-Anna took a deep breath, processing her feelings.
-"I feel like I'm on display, but there's a strength in this helplessness.
-It's like the corset is a shield as much as it is an adornment."
+She fetched it from where she had quietly begun leaving it near the dining table and placed it by his chair. Kneeling there felt at once humiliating and perfect. Her skirt settled around her legs, the underlayer and heels keeping her in a carefully limited posture even now. She folded her hands and waited.
 
-Lily nodded.
-"That's right.
-Wearing a corset like this is a statement.
-It's about creating a dynamic where you're both the focus and the orchestrator.
-The corset is confining, but it also gives you power over your shape and influences your interactions.
-Every movement, every pose—you're crafting the narrative you want to present."
+Julien cut a piece of toast, added avocado, and held it toward her.
 
-Anna felt a surge of excitement and anticipation.
-The corset was demanding, but it also granted her a new form of influence and control.
-"Thank you, Lily," she said.
-"I feel more ready than ever to present myself to Julien.
-This corset is more than a garment; it's a tool to show myself at my best."
+"Open."
 
-Lily smiled.
-"You're welcome, Anna.
-Remember, embracing these corsets means taking control of your shape and poise.
-Enjoy the journey, and let the corsets work their magic."
+She did.
 
-Lily led Anna to the Gowbao Yoohoo blouses, highlighting their unique features.
-"These blouses make as much of a statement as the corset," Lily explained,
-holding up a Hanfu-style blouse adorned with intricate patterns reminiscent of Chinese art.
-The cream-colored silk felt luxurious under Anna's fingers, the detailed craftsmanship evident in every stitch.
+The bite was small, simple, and almost impossibly intimate. She took it from his fingers, chewed, swallowed, and felt heat rise all through her.
 
-The blouse was tailored to fit over the corset, with a row of intricately patterned Pankou knots fastening the front.
-The sleeves were bell-shaped, made from partly transparent gauze,
-and ended in long, close-fitting cuffs that covered half the lower arm, secured with more Pankou knots.
+Julien watched her closely.
 
-As Lily helped Anna into the blouse, the complexity of its design became clear.
-The multitude of small buttons required Lily's skilled hands to fasten.
-Once dressed, Anna couldn't undress herself, especially not with gloves on.
-The high, reinforced collar acted like a neck corset,
-pressing gently against Anna's chin and urging her head into an elevated, dignified position.
-Her gaze naturally lowered, the blouse dictating her posture with an authority she hadn't expected.
+"Well?"
 
-"The Gowbao Yoohoo is designed for those who understand the power of appearance," Lily said,
-watching Anna adjust to the constraints.
-"Its structure enhances not just your figure, but also your demeanor."
+"Very good, Sir."
 
-Anna stood before the mirror, transformed.
-The S-line corset and Gowbao Yoohoo blouse created a vision of refined elegance,
-combining the corset's enforced posture with the blouse's head-up, gaze-down requirement.
-She felt like a character from a bygone era, imbued with grace and mystery.
+He fed her again.
 
-Her reflection captivated her.
-The restrictions of her attire, rather than feeling cumbersome, now seemed to elevate her.
-"This is how I want Julien to see me," she thought, a surge of confidence blooming within.
-"Dressed to impress, indeed."
-She chose two more blouses—one in a Victorian aesthetic and another
-that blended Chinese and Victorian designs in a modern,
-daring style.
+It became their habit after that, not every morning, but often enough that Anna started hoping for it the moment she laid the table. Julien was attentive in a way that made obedience easier to bear and therefore more dangerous. He remembered what she liked. He noticed if the coffee was too bitter for her, if the toast scratched, if she had a faint mark at her waist from yesterday's belt. He would tell her to kneel, then feed her carefully, then praise her for the meal she had made with her own hands.
 
-Keeping her new garments on, Anna stepped out of the boutique to explore her new posture and movement.
-Every step and gesture required careful planning and execution.
-Her heels and underskirt constrained her stride,
-while the collar in her blouse forced her to maintain a specific pose—head held high, face slightly tilted downward.
-Any deviation from this pose resulted in a painful reminder from the collar.
-The shoulder braces and corset ensured she remained upright, preventing any slouching or relaxation.
-Each movement was deliberate, every stance carefully held, embodying the elegance and control her attire demanded.
+The contradiction should have felt absurd.
 
-Anna paused in front of a shop window, struck by her reflection.
-The corset cinched her waist, accentuating her hips and pushing her chest forward,
-creating a dramatic S-line silhouette.
-She was more restricted than ever, but she exuded a blend of power and grace that commanded attention.
-Her carefully crafted persona projected elegance and authority, with an undercurrent of vulnerability that drew the eye.
+Instead it made sense in the place inside her that had been taught to answer care with surrender.
 
-This realization empowered her.
-In the world of the Changed, men and women lived in distinct roles,
-and Anna's attire served as a non-verbal cue to the men around her.
-She was the queen, commanding presence and care, while they were the knights, pledged to serve and protect.
-This dynamic felt right, embodying the harmonious balance of power and dependency that their society upheld.
+At dinner he was less hurried, more settled. They fell into a second ritual there. Anna cooked. Julien tasted the first bite. If pleased, he said so. Sometimes he told her to sit. Sometimes to kneel. Once, after she served roast chicken with potatoes and thyme, he said "Good Girl" so softly it felt almost private, and the force of it made her grip the edge of the table to stay steady.
 
-As Anna walked home, her rapid, staccato steps dictated by her heels and skirts, she naturally fell into her role.
-The glances and assistance she received confirmed that her attire was working as intended.
-She was a queen in her realm, where beauty and strength, vulnerability and power coexisted,
-guided by the unspoken rules of their society.
+He noticed and put down his fork.
 
-Her new way of dressing forced her to present herself in a manner that Julien would appreciate—
-"a very advantageous cut, and easy on the eyes."
-Wearing a corset and the Gowbao Yoohoo blouse made it necessary for Julien to help her dress and undress,
-an act of intimacy and practicality.
+"Come here."
 
-"Sir, I must inform you that my new attire,
-particularly the corset and Gowbao Yoohoo blouse, necessitates assistance to put on and remove.
-Would you find it bothersome to offer me your aid, in the absence of another suitable person?"
+She crossed the room and stopped beside him.
 
-Julien smiled, delighted to take on his role.
-"Miss Anna, it would be my honor to assist you.
-Your dedication to these forms of dress, your willingness to embrace such refined elegance, is quite commendable."
+"Look at me."
 
-Dressing and undressing her became their morning and evening ritual.
-Lacing her into the corset,
-fixing the shoulder braces,
-closing the myriad of buttons at the arms,
-and tightening the neck corset-like collar of the blouse was an act of intimacy.
-Julien locked her into her armor for the day,
-and she would be protected, but also stuck until he released her in the evening.
-She would also be stuck in the enforced pose, unable to slouch, or to move her head much.
+She did. It took effort now. The reward had a way of making her want to hide inside the posture it created.
 
-Each task, at home for Julien or at work,
-became an endeavor that required first planning and then careful execution.
-She could still function, mostly,
-but only with planned and forced grace and within the limits her restraints set her.
+"I don't say this to toy with you," he said. "Do you understand that?"
 
-Their evenings, when Julien would gently unbutton the blouse and unlace the corset, became moments of deep connection.
-These were times when Julien could see the physical marks of the day's restrictions on Anna's body,
-a reminder of her dedication.
-And for Anna, being released from the day's confines by Julien's hands was a deeply intimate experience,
-one that reaffirmed her choice to fully immerse herself in the demands of her dress,
-and in turn, her relationship with Julien.
-Julien was enchanted.
-Each "Good Girl" from him affirmed Anna's commitment to her new role.
+"Yes, Sir."
+
+"Good. I say it because you do well, and because I like what it does to you."
+
+There was nothing cruel in it. 
+Anna breathed in carefully.
+
+"I like what it does to me too, Sir."
+
+Julien's mouth curved at one corner.
+
+"I had gathered that."
+
+Another evening, when the dishes were done and the apartment had fallen quiet around them, Anna knelt beside his chair with her hands on her lap and worked up the courage to ask for something she had been turning over in her mind for days.
+
+"Sir."
+
+"Yes?"
+
+"May I ask a question?"
+
+"You may."
+
+She chose the words with care.
+
+"Would it please you if I dressed more... seriously?"
+
+Julien looked down at her.
+
+"More seriously how?"
+
+"Corsets," Anna said, then forced herself not to rush. "And some of the new blouses at Maylee Shufoo. The more structured ones. I have been thinking about them."
+
+He was quiet for long enough to make her pulse climb.
+
+"Have you," he said at last.
+
+"Yes, Sir."
+
+"For yourself?"
+
+The question landed directly.
+
+"For both of us, Sir."
+
+Julien leaned back, considering her with an attention that made her feel as if he were adjusting something in her without touching her.
+
+"Tell me why."
+
+Anna swallowed.
+
+"Because I think I would wear them well. Because I want to please you. Because I want..." She paused, hating the heat in her face and unable to stop it. "I want to be more fully what I am becoming."
+
+Julien did not rescue her from the sentence. He made her stay in it.
+
+"And what is that?"
+
+Her voice came out softer.
+
+"Yours, if that is acceptable to you, Sir."
+
+The silence after that was not long, but it changed the room.
+
+Julien set his glass down.
+
+"All right," he said. "Go and have a proper fitting. Choose carefully. Then show me."
+
+The relief was so immediate she nearly swayed with it.
+
+"Thank you, Sir."
+
+"And Anna."
+
+"Yes, Sir?"
+
+"Do not choose things that only look dramatic. Choose things that truly suit you."
+
+She felt absurdly cherished by the practicality of that.
+
+"I will, Sir."
+
+Lily recognized her the moment she entered Maylee Shufoo.
+
+"Anna. Back already."
+
+"Yes."
+
+Anna smiled despite herself.
+
+"I am looking at corsets now."
+
+Lily glanced once over Anna's current silhouette and nodded as if the decision had merely arrived on schedule.
+
+"That follows."
+
+She did not ask intrusive questions. That was one of the things Anna liked about her. Lily understood the pleasure of being arranged without pretending it was innocent or reducing it to a speech.
+
+"Daywear, evening, or sleep?" Lily asked as she led Anna inward.
+
+"Daywear first."
+
+"For support or for effect?"
+
+Anna thought of Julien's eyes on her, of the way praise had started reaching further into her body than thought could follow.
+
+"Both."
+
+"Sensibly answered."
+
+Lily scanned her measurements, checked fit, and drew three options. One was soft enough for gradual wear. One was firmer and elegant. The last had shoulder shaping built into it and promised a more dramatic line than anything Anna had worn before.
+
+"Try this one second," Lily said, setting the firmest aside for later. "You need to know the difference."
+
+The first corset was serious but tolerable. It narrowed her, straightened her, made every breath more considered. Anna liked it at once.
+
+That worried her.
+
+Lily saw the look and gave a small nod.
+
+"Yes," she said. "That is usually how it starts."
+
+The second corset was the one that mattered.
+
+Lily laced her in slowly, pausing whenever Anna needed to adjust, then tightened again. The pressure gathered around her waist and ribs with deliberate patience. Her shoulders drew back. Her lower spine curved. Her chest rose. By the time Lily tied the last knot, Anna could feel the whole architecture of the garment dictating how she would stand, turn, sit, bend, and ask for help.
+
+She opened her eyes to the mirror and almost did not know herself.
+
+The line was beautiful.
+So was the loss of ease.
+
+"Breathe," Lily said.
+
+"I am."
+
+"You are thinking about breathing. That is different."
+
+Anna let out a small breath that made them both smile.
+
+"It is tight."
+
+"It should be. Correctly, not cruelly."
+
+Lily moved around behind her and adjusted the shoulder structure.
+
+"There. Better. This one wants a certain woman. If you fight it, it will exhaust you. If you cooperate, it becomes very persuasive."
+
+That was true at once. Fighting the line of it made her feel trapped. Yielding to it made her feel arranged, finished, held.
+
+Anna touched the front busk lightly.
+
+"Julien will like this."
+
+"I expect so."
+
+Lily brought her one of the newer blouses afterward, a Gowbao Yoohoo in pale silk with a high reinforced collar and cuffs that were much too elaborate for independent dressing. The fabric was lovely. The cut was not kind.
+
+"Arms," Lily said.
+
+Anna obeyed.
+
+The blouse went on over the corset in stages: sleeves guided into place, cuffs closed one knot after another, the back fastened for her, the collar secured last. By the time Lily finished, Anna's body belonged to a very narrow set of acceptable movements. She could stand beautifully. She could turn with care. She could not slump, tug, reach back, or free herself.
+
+Her chin lifted slightly under the collar's guidance. Her gaze fell without needing to be told.
+
+The result in the mirror was almost shocking.
+
+Elegant.
+Helpless.
+Radiant.
+
+Anna felt a pulse of shame at how much she liked that third part because of the second.
+
+"Too much?" Lily asked.
+
+"No," Anna said, then corrected herself into honesty. "Yes. But in a useful way."
+
+Lily's expression softened into something almost approving.
+
+"Exactly."
+
+Anna turned as far as the blouse allowed and felt at once how much of the rest would require assistance. Dressing. Undressing. Bathroom logistics. Reaching dropped things. Endurance. Planning.
+
+Julien's hands at her back in the morning.
+Julien's hands at her throat in the evening, undoing the collar.
+
+Her breath changed.
+
+Lily noticed that too and had the decency not to comment.
+
+"Take a few steps," she said.
+
+Anna did. The corset held her, the blouse corrected her, the collar guided her head, and her underskirt finished the work below. Every part of her outfit now collaborated with every other part. Grace was no longer a preference; it was the only option.
+
+She stopped before the mirror again.
+
+"I cannot manage this alone."
+
+"No," Lily said. "That is part of why it works."
+
+Anna looked at herself for one more long moment.
+
+The woman in the mirror would need help to dress. Help to undress. Help to endure long hours gracefully. She would receive that help from a man whose approval already went through her like heat.
+
+The thought was so intimate it almost counted as a confession.
+
+"I will take this one," she said.
+
+Lily helped her out of the set slowly, which was an education of its own. Relief came in stages. So did disappointment.
+
+By the time Anna carried the boxes home, she was flushed, sore, and impatient for evening in a way that made her feel younger and more womanly at once.
+
+Julien opened the door before she could use her key.
+
+His eyes went to the boxes, then to her face.
+
+"That promising?"
+
+"Yes, Sir."
+
+He stepped aside to let her in.
+
+"Show me after dinner."
+
+Anna's whole body answered before her mouth could.
+
+"Yes, Sir."
+
+Dinner that night was almost impossible to get through with dignity. Julien noticed. Of course he noticed.
+
+"You are distracted."
+
+"Yes, Sir."
+
+"Excited?"
+
+There was no safe answer but the true one.
+
+"Very, Sir."
+
+His expression sharpened with pleasure.
+
+"So am I. I am looking forward to what you have to show me."
+
+Later, in the bedroom, he stood behind her while she opened the first box with careful fingers.
+
+"Tell me what you chose," he said.
+
+Anna lifted the corset out by its straps and turned enough for him to see it.
+
+"A day corset, Sir. And a blouse to wear over it. The blouse cannot be managed alone."
+
+Julien took the blouse from her hands, and inspected it with quiet interest.
+
+"No," he said. "I don't think it can."
+
+Anna looked at him through the mirror.
+
+"Would you help me, Sir?"
+
+He met her eyes there.
+
+"Yes. Undress."
+
+The word went through her like a command and a caress at once.
+
+She obeyed, slower than usual because she wanted him to see what she was offering, and because the knowledge that he would soon be the one fastening her into something she could not escape had already begun to color every breath.
+
+By the time she stood in her stockings and bra, Julien had gone very still.
+
+He did not touch her at once. He looked first, openly and with concentration, as if the thing she was offering him deserved to be studied before it was handled. That alone made heat move low and slow through her.
+
+"Come here," he said.
+
+She crossed to him on careful feet.
+
+Julien set the S-line corset around her waist and drew her hair forward over one shoulder.
+
+"Hold still."
+
+"Yes, Sir."
+
+The busk closed first. Then the laces. Julien tightened them in stages, not roughly, but with the steady patience of a man adjusting something that mattered. Each pull changed her a little more. Her waist drew in. Her spine arched. Her shoulders opened. When he fastened the shoulder straps and settled them properly, her posture shifted again, less fit for work now, more obviously meant to be seen.
+
+Anna watched it happen in the mirror and felt her breathing change with each correction.
+
+"Too tight?" he asked.
+
+"No, Sir."
+
+He tested that answer with one more deliberate pull.
+
+Her breath broke around a small sound she could not hide.
+
+Julien's eyes lifted to hers in the glass.
+
+"Still all right?"
+
+"Yes, Sir."
+
+His mouth moved slightly, not quite a smile.
+
+"Good."
+
+That one word alone was enough to leave her weak in the knees.
+
+The underskirt came next. Julien gathered the dress up enough for her to step into it, then fastened it under the corseted waist himself. The moment it settled into place, she felt the familiar narrowing at her thighs and knees, the limit laid on every future step she would take in it.
+
+"Again," he said softly. "Step."
+
+She tried one careful pace and felt the constraint answer at once.
+
+"Very good," he said.
+
+The dress was worse in the best possible way.
+
+![](011-anna-and-julien.jpg)
+
+*Julien buttoned Anna's dress slowly from behind.*
+
+It was darker than the blouse she had tried at the shop, more severe, cut to work with the corset rather than soften it. Julien held it open for her and guided her arms into place, then drew it up over the corset with a patience that made the whole thing feel ceremonial. Once the fabric settled, he moved behind her and began fastening the long back closure.
+
+Button by button.
+
+Then the sleeves, each row closed at her wrists by fingers that were not hers.
+
+The high collar came last.
+
+When he secured it, her chin lifted a little and her gaze fell without permission. Her body accepted the new limits at once. She could feel how little freedom remained in her neck, shoulders, and arms. She would not reach easily in this. She would not undress herself. She would not do much of anything carelessly.
+
+Julien knelt to fasten her heels.
+
+That almost undid her.
+
+The whole sequence had been too intimate already, but this made the helplessness plain. She stood there while he settled the straps around her ankles, the dress and corset holding her upright for inspection, for display, for care.
+
+When he rose, Anna barely recognized the woman in the mirror.
+
+The S-line corset pushed her forward into a posture that was equal parts invitation and restraint. The shoulder straps held her open. The collar made her look composed even while it denied her ordinary movement. The back-buttoned dress closed her in. The underskirt made any natural stride impossible. The heels tipped her weight just enough to turn stillness into a pose.
+
+This was not for work.
+
+This was to be looked at in.
+
+And helped in.
+
+Her face grew warm.
+
+"Turn for me," Julien said.
+
+She obeyed as best she could, discovering the dress in the act of moving through it. It took several small, managed steps to do what would once have been one easy pivot. By the time she faced him again, his gaze was fixed on her with a kind of quiet hunger that made her pulse jump.
+
+"Beautiful," he said.
+
+The praise went through her so hard she had to steady herself on the dressing table.
+
+"Thank you, Sir."
+
+He stepped closer and touched the side of her waist, then the line of the sleeve, then the fall of the skirt over her hips, small proprietary adjustments that made it impossible to pretend she had dressed for herself alone.
+
+"Can you manage alone in that?" he asked.
+
+Anna looked at herself in the mirror and answered honestly.
+
+"Not well, Sir."
+
+"Tell me."
+
+The directness of it made her swallow.
+
+"I can stand. Walk slowly. Sit with care, if I am helped. I cannot dress myself. I cannot undress myself. I will need help with the buttons, the collar, and anything I drop. Quite a lot, really."
+
+Julien absorbed that with visible satisfaction, but not cruelty.
+
+"Then you will ask when you need help."
+
+That simple permission made pleasure tighten through her again.
+
+"Yes, Sir."
+
+He kept his hand at her waist, warm and steady.
+
+"This is not a practical dress."
+
+"No, Sir."
+
+"This is something to be displayed in."
+
+"Yes, Sir."
+
+His thumb moved once against the fabric.
+
+"And looked after in."
+
+The sentence struck even deeper than the praise had. Her arousal sharpened at once, threaded through with relief so intense it nearly felt like gratitude. That was the truth of it. If she had been left alone in this, it would have become ordeal. With him there, fastening her into it and promising himself as the answer to everything it took away, it became something else entirely.
+
+Something warmer.
+
+Something frighteningly sweet.
+
+"I like that, Sir," she said.
+
+Julien watched her through the mirror.
+
+"I know."
+
+"Walk to me."
+
+She obeyed, crossing the room in the tiny managed steps the dress demanded. By the time she reached him, the helplessness of the outfit had become a physical fact she could not ignore. He was the one who had put her into it. He would be the one to let her out again. In between, her body would have to move through the world on the terms he had helped impose.
+
+And both of them liked that.
+
+Julien took one of her gloved hands and raised it to his mouth.
+
+"Good girl," he said softly.
+
+The reward shivered through her from throat to thighs. Her breath caught. Her knees weakened. If he had not still been holding her hand and watching her with that calm, caretaking attention, the dress might have frightened her.
+
+Instead it made her ache.
+
+"You feel it," he said.
+
+"Yes, Sir."
+
+"Say it."
+
+Her face burned, but she obeyed.
+
+"I need help in this."
+
+"Yes."
+
+His thumb moved once over her knuckles.
+
+"And you like needing it from me."
+
+There was no room left for evasion.
+
+"Yes, Sir."
+
+Julien drew her a little closer.
+
+"Good."
+
+That word carried praise, possession, permission, and care in proportions she could no longer separate. Anna stood before him in the impossible dress, unable to free herself from it, unable to move naturally in it, and so aroused by the combination of display and dependence that she could barely think straight.
+
+The worst part was how safe it felt.
+
+Or perhaps that was the best part.

@@ -3,229 +3,372 @@ title: "Chapter 7: Sonia meets the Changed Anna"
 weight: 7
 ---
 
-# Sonia meets the Changed Anna
 
-Anna and Sonia had planned to meet at their usual spot, the Lakeside Café.
-But that did not work out, because Sonia felt unwell after returning from Shenzhen,
-and the infection outbreak that followed and brought the Change to them.
-As Sonia arrived now, a good week later, the atmosphere at the café had been completely transformed.
-To her, it felt like a weird costume drama, evoking a sense of nostalgia that made her uneasy.
-The café was filled with the Changed—both women and men.
-Both looked as though they had stepped out of mid-twentieth-century fashion magazines.
-The men were all in tailored suits, crisp white shirts with black ties,
-some opting for a sporty casual look with cardigans over polo shirts and dress trousers.
-But it was the women who particularly caught her eye.
-They were all in dresses or skirts, with gloves and either hats or stylish headscarves,
-the faces with meticulously applied makeup, sporting small clutches.
+# Sonia Meets the Changed Anna
 
-Sonia navigated the crowd, searching for Anna.
-She felt like an outsider.
-Although she had attempted to adjust her look to match the look of the Changed,
-it was clear she wasn't wearing the "uniform" correctly.
-Dressed in casual 2020s office chic, with low heels, pantyhose,
-a knee-length skirt and blouse, and mild makeup, she tried to blend in.
-However, she quickly realized she was the only one without gloves and with uncovered hair,
-and was underdressed compared to everyone else.
-Some people looked at her with disdain, as if she was a filthy clochard or maybe half-naked.
+The Lakeside Cafe had changed faster than Sonia was ready for.
 
-When she finally spotted Anna, she barely recognized her.
-To Sonia, she looked like a complete stranger.
+She saw it before she even reached the terrace.
+Men in neat suits and ties.
+Women in skirts, dresses, gloves, hats, headscarves, all of them arranged with the same sharp precision she had started noticing on the street that morning.
+Worse than identical. Coordinated by taste, rules, and some underlying agreement about what people should look like now.
 
-Anna's transformation was complete.
-Gone were the casual runner's chic and sneakers.
-Instead, she wore an A-line skirt that gained volume with pettcoats,
-and a richly embroidered Victorian-style button-up blouse with a high, tight collar brushing against her chin.
-White satin gloves covering her hands, and her hair was completely covered by a sand-colored hijab.
-She also wore sophisticated high heels—a stark departure from her usual sneakers—
-and her makeup was meticulously applied in a bold, defined 1950s style.
+Sonia slowed at the entrance.
 
-Sonia had recovered from her sickness late and only the day before,
-and found her body grotesquely transformed and manipulated by the Virus.
-Today, filling up her depleted fridge and later, on her way to the café,
-Sonia's unease had been accumulating.
-She had spotted the large number of Changed in the street,
-easily recognizable from the so far uninfected in dress and behavior.
-She knew she should also dress this way, the "correct way," 
-but easily ignored this ridiculous suggestion.
-Going down to the Lakeside Café, she saw larger numbers of Changed,
-and her unease mounted, accumulating as a simmering rage underneath the surface.
+She had tried to compromise with the city before coming down here. A skirt instead of trousers. Low heels. A blouse buttoned higher than she liked. Enough makeup to avoid looking openly out of place. It had seemed reasonable in her flat.
 
-As she saw the Changed Anna, Sonia's shock unleashed her fury, 
-when she realized that the grotesque alterations forced upon her own body and Anna's were just the surface;
-there was a vast, unseen force at work that was orchestrating a widespread transformation.
-An artificially engineered virus, a tool of subjugation,
-had been unleashed to mold her and countless others into grotesque parodies of womanhood.
-This was not just a physical change.
+Here it made her feel half-dressed.
 
-It was a sinister assault on their very essence, a calculated erasure of autonomy,
-programming their flesh and minds to fit someone else's twisted fantasy.
-Women were being reduced to mere objects, sculpted for the pleasure and scrutiny of the male gaze.
-The virus was designed to turn her and everyone else into *this*.
-Sonia's fury burned brightly.
-She was more than this reductive vision of femininity, more than a puppet manipulated by patriarchal designs.
-She was a woman, a sovereign entity, not an ornament to be passively admired.
+No gloves.
+Hair uncovered.
+Too modern.
+Too blunt.
 
-Sonia stopped, and took a deep breath, trying to maintain her composure.
-She could not do much right now, and had to try to connect to Anna in order to better understand
-what had happened and why Anna and the other Changed acted the way they did.
-Apparently she herself was somehow different.
-"Anna?" Sonia's voice trembled slightly as she reached the table.
+People looked at her and then away again with the discreet distaste reserved for someone who had violated a dress code in a way too intimate to name.
 
-Anna looked up, her smile serene yet somehow distant.
-"Sonia, it's wonderful to see you," she replied, her tone measured and more formal than Sonia was used to.
-They exchanged a brief, awkward hug—Anna's embrace was stiff, formal.
-Sonia pulled back, searching Anna's face for signs of the friend she knew.
-She took a seat opposite Anna, signaling a server to approach.
-"Two coffees, please," Sonia ordered.
-The server nodded and moved away.
+She kept walking.
 
-"So," Sonia began, her eyes locking onto Anna's, "I thought we could talk about... everything.
-Compare notes on what we've been going through."
-Her words were cautious, chosen carefully to bridge the growing gap between them.
+Anna was at their usual table near the lake.
 
-Anna nodded, sitting upright, her hands neatly folded on the table.
-"Yes, I think that's a very sensible approach," she agreed, her language almost scripted.
-"It's important to understand the changes systematically."
+Sonia saw her and stopped.
 
-"The sickness was brutal," Sonia began, barely containing her anger.
-"But waking up to this… this caricature of femininity, it's a nightmare.
-It's like being trapped in someone else's distorted fantasy.
-It's completely wrong, sick and depraved."
+The body changes were one thing. She had expected those after looking at herself in the mirror that morning and trying not to throw up. The manners were worse.
 
-Anna looked down at her gloved hands, then back at Sonia, smiling with deeply rooted, unnatural happiness.
-"Sonia," she began, steady and composed, "I know it's hard for you to understand right now,
-but the virus has been a gift.
-It erased years of insecurity, reshaping my body in ways I never thought possible.
-I am now slender and elegant, and my skin is smooth and flawless.
-The imperfections I once loathed have vanished.
-Even my hair—it's grown fuller, more vibrant.
-I stand in front of a mirror, and the reflection I see is perfect, beautiful.
-For the first time, I feel truly at peace with myself."
+Anna sat with her back straight, one gloved hand resting beside her cup, the other in her lap. Her blouse was richly worked and high at the throat. Her skirt spread in a controlled A-line shape over petticoats. The sand-colored headscarf covered her hair completely. Even from a few meters away Sonia could see the care in her makeup.
 
-She paused, her smile fixed and gentle.
-"I understand that this transformation feels like an intrusion to you, but for me, it's been liberating.
-The changes have brought a sense of harmony that I never imagined I could achieve.
-It's as if the virus knew my deepest insecurities and gently erased them,
-leaving behind a version of myself that feels whole and confident."
+She looked beautiful.
 
-Sonia's hands clenched into fists on her lap, her coffee untouched.
-"Harmony?
-You call this manipulation harmony?
-They didn't just change our bodies, Anna.
-They're trying to erase who we are, force us into roles we never asked for!"
+![](007-sonia-meets-the-changed-anna.jpg)
 
-Anna's smile faded slightly into a confused frown.
-"But I feel peaceful.
-Pleasurable even.
-Isn't it better to find peace in what we've become?
-I feel connected to something greater.
-The changes, they're enhancements, Sonia.
-Why fight it when we can embrace it?"
+*Sonia saw Anna at her table at the lakeside café.*
 
-"Enhancements?"
-Sonia's frustration boiled over, her voice rising despite her efforts to remain calm. 
-"They violated us.
-My body, your body—it's not ours anymore.
-And you're just… okay with that?
-With losing yourself?"
+The thought hit first and sickened Sonia immediately after.
+It was exactly the kind of thought the virus wanted people to have.
 
-Anna leaned forward, her voice soft, but full of conviction.
-"I haven't lost myself.
-I've found a version of me that fits better in this world.
-The world has changed, and adapting means surviving, thriving even.
-Can't you see the possibilities?"
+"Anna?"
 
-"Possibilities?"
-Sonia laughed bitterly.
-"You mean the chance to become something we're not?
-This isn't adapting.
-It's submission.
-And I won't be a part of it."
+Anna looked up.
+For one second the face was almost ordinary with simple recognition and pleasure.
+"Sonia."
 
-Anna sighed, looking at Sonia with sadness.
-"I wish you could see it as I do, Sonia.
-There's peace in acceptance, in fulfilling the roles we've been given.
-Fighting it… what's the point if we end up alone, alienated?"
+Then the rest of the new manner settled over it.
+"It is wonderful to see you."
 
-Sonia stood up, her chair scraping against the ground.
-"The point, Anna, is to remain true to ourselves.
-I'd rather be alone and myself than lose who I am for a false sense of belonging.
-I can't…
-I won't just sit back and accept this."
+The words were warm.
+The structure of them was not.
 
-![](lake-scene.jpg)
+Sonia came closer and let Anna stand for the awkward little embrace, though she almost wished she had not. Anna hugged her carefully, as if there were already a correct way to do even that.
 
-*Anna and Sonia at their table in the Lakeside Café.*
+Sonia sat down before she lost her nerve.
+"You too."
 
-Sonia paused, her anger simmering as she searched for another way to reach Anna.
-She sat down again.
-"What about Elena, your mother?" she asked, almost desperate.
-"She was a beacon of independence, a brilliant scientist.
-She never bowed to anyone.
-She taught us to stand tall, to question, to be our own persons."
+The waiter appeared at once.
+Anna glanced toward him, lowered her gaze automatically, and folded her hands.
+Sonia watched that with a rising, private nausea.
 
-Anna's reaction was immediate, but not as Sonia expected.
-Her smile was serene, her tone gentle, as if correcting a child's simple mistake.
-"My mother was indeed a great scientist, but she always knew her place.
-She was supportive, obedient, always putting her family and her duties before her own ambitions.
-She embraced her femininity and taught me the importance of our roles as women."
+Anna turned to the waiter with a small, careful smile.
+"Sir, if it would be convenient, I would be very grateful for two coffees."
 
-Sonia's heart sank, a cold realization dawning on her.
-"No, that's not…
-That can't be right.
-Elena fought against those stereotypes all her life.
-She wouldn't—"
+"Of course."
 
-Anna interrupted, her voice still calm, "Sonia, I remember my mother well.
-She always said, 'A woman's strength lies in her grace and obedience.'
-She lived by those words.
-She was my role-model."
+"Thank you, Sir."
 
-The revelation hit Sonia like a physical blow.
-Unlike herself, Anna had been changed even more than she.
-Not just her body, her entire personality has been reconstructed,
-rewritten to fit the fantasy of the unseen man who had constructed the virus.
-Her rising anger bubbled to the surface.
-She got loud.
-"That's bullshit, Anna!
-They've messed with your head, changed your memories.
-They didn't just change our bodies–it's our minds, our selves they've been editing!"
+Sonia wanted to start with something sharp enough to crack the whole thing open.
+Instead she heard herself say, "How are you feeling?"
 
-Anna's expression tightened.
-Her patience had reached its limit.
-"Sonia, please, lower your voice.
-A woman should be seen, but never be heard.
-You know that very well.
-There's no need for such language or behavior.
-It's… unbecoming."
+Anna answered immediately.
+"Much better."
 
-Sonia felt something snap within her, a fierce energy breaking free.
-"Unbecoming?
-You think it's 'unbecoming' to fight for our right to be who we are?
-To not have our memories, our identities, rewritten by some… some virus?"
-Sonia was almost shouting now, attracting stares from nearby tables.
-"I refuse to accept this.
-I refuse to let them take who we are!"
+"That's not what I mean."
 
-Anna looked around, embarrassed by the attention they were drawing.
-"Sonia, please.
-This isn't the way.
-We should strive to be more composed, more… feminine."
+Anna's fingers tightened under the white satin of her gloves.
+Sonia saw it. A tiny betraying motion. The old Anna was not gone. She was trapped somewhere in there, paying for every wrong answer before it reached the air.
 
-But Sonia was beyond hearing.
-"No, Anna.
-I won't be quiet.
-I won't be 'composed.'
-And I certainly won't let them take you, me, or anyone else without a fight."
-Her chair clattered to the ground as she stood.
+"I know," Anna said.
 
-"This isn't over," Sonia declared with conviction.
-"I will fight this virus, its conditioning, everything it's trying to do to us.
-And I'll start by remembering Elena as she truly was—a woman who would not have stood for any of this.
-Not for a second."
+The coffees arrived.
+The waiter set them down.
+Anna thanked him softly and did not touch hers until he had moved away.
 
-Without another word, Sonia turned and stormed off.
-Anna went home, thinking hard.
-Why couldn't Sonia see the good in their roles?
-Anna felt sure now, more than ever, that this was the right way.
-Sonia's resistance felt wrong to her now.
+Sonia stared at her.
+"What was that?"
+
+Anna blinked.
+"What?"
+
+"You waited."
+
+Anna looked down at the cup as if it might explain itself.
+"It was more polite."
+
+"Did it?"
+
+The flush that rose under her makeup was not shame. It was irritation at being asked.
+
+Sonia leaned forward.
+"Anna, I need you to stop smoothing this over for one minute and just tell me what happened."
+
+Anna met her eyes then, and for the first time there was no gentle public mask in the expression. Only a flash of old irritation under a much steadier new composure.
+
+"I got sick," she said. "Then I got better."
+
+"No."
+
+"Sonia."
+
+"No. I got sick too. I know what the fever felt like. I know what my body looks like now. What I do not know is why you are sitting here like..." Sonia gestured helplessly at the gloves, the scarf, the posture, the exquisite correctness of the whole arrangement. "Like this."
+
+Anna's throat worked.
+She looked away toward the lake and back again.
+"Because this is how I want to present myself."
+
+Sonia almost laughed.
+"Try again."
+
+Anna's eyes narrowed. A familiar look, yes, but cleaner now. Less messy. Less spontaneous.
+"You are being rude."
+
+"Good. Maybe rudeness still gets through."
+
+At the next table, a man glanced over and then away. A woman in gloves pretended not to listen. That, more than anything, made Sonia's anger focus. They were doing this in public. Under observation. Inside rules Anna had already started obeying even while talking about them.
+
+"Fine," Sonia said more quietly. "Walk me through it."
+
+Anna took a breath.
+"There are... changes."
+
+"I noticed."
+
+"Not only physical ones."
+
+"I noticed that too."
+
+Anna's mouth tightened.
+"Must you do this in that tone?"
+
+"Yes."
+
+That got the tiniest twitch at one corner of Anna's mouth, gone almost before it formed. Sonia felt a rush of grief at how much that one small expression looked like her friend.
+
+"The clothes help," Anna said at last.
+"How?"
+
+Anna looked at her own gloved hands.
+"They make things align."
+
+"What things?"
+
+"Behavior. Thought. Presentation." She hesitated over the last word, then forced herself on. "When I do what now feels proper, it gets easier."
+
+"Easier because?"
+
+Anna did not answer.
+
+Sonia waited.
+
+At last Anna said, very low, "Because I am rewarded."
+
+The words left a little silence between them.
+Sonia looked at her coffee and then back up.
+"Rewarded how?"
+
+Anna's face colored again.
+"Relief first."
+
+"And after that?"
+
+Another pause. Longer.
+"Pleasure."
+
+There it was.
+No manifesto. No philosophy. Just the obscene mechanism in one word.
+
+Sonia sat back.
+"Jesus."
+
+Anna flinched.
+"Please."
+
+"No, don't please me. Don't do that polite little correction thing. They did this to you."
+
+Anna's gaze snapped back to Sonia's.
+"I know they did."
+
+Sonia stopped.
+"You know."
+
+"Of course I know."
+
+The force in that answer was real and unmistakably Anna's.
+
+"I know the virus changed me," Anna said. "I know the memories are inconsistent. I know some of the rules were not mine before. I know what operant conditioning is. I also know I like this version of myself better."
+
+"Then why are you defending it?"
+
+Anna exhaled and some of the anger drained out again, leaving calm behind it.
+"I am not defending the way it started."
+
+"It started with violation."
+
+"Yes."
+
+"And now?"
+
+Anna looked out toward the lake.
+"Now it feels..." She stopped.
+
+Sonia waited.
+
+"It feels structured," Anna said. "And calm. And much closer to the woman I ought to have been all along."
+
+That answer landed harder than any ideological speech would have.
+
+Sonia rubbed at her forehead.
+"No, that is you liking the cage."
+
+"Yes," Anna said, and there was no hesitation in it now. "In part, yes."
+
+"Anna."
+
+"Sonia, I was sick for days. It got into everything. The body. The dreams. The thoughts that came after the dreams. Every correction that I resisted made me feel worse. Every concession made it easier to breathe." She looked back at Sonia now. "Then the fever ended and I could finally see myself more clearly. I was rude before. Abrasive. Careless with people. Careless with how I dressed. I thought that was strength."
+
+Sonia did understand.
+In part.
+Her own body had changed. The only difference was that the deeper hooks had not sunk all the way into her mind.
+
+"Yes," she said.
+"Then stop looking at me as if I have simply become stupid. I have become more polished than I was. More disciplined. More aware of what is proper."
+
+That stung because Sonia knew she had been doing exactly that, taking Anna's polish as an indicator of a loss of intellect.
+
+She changed tack.
+"All right. Tell me about your mother."
+
+Anna went still.
+
+Not tense in the obvious way. More like an instrument held just past the point of vibration.
+
+"What about her?"
+
+"Tell me what you remember."
+
+Anna's voice softened at once, and Sonia hated the softness because it had that same smooth, guided quality as everything else.
+"She was brilliant."
+
+Hope moved, small and desperate, through Sonia.
+"Yes."
+
+"And disciplined."
+
+The hope faltered.
+
+"And gracious," Anna continued. "Very gracious. She cared for my father, for our family, for her work in that order. She taught me that a woman's mind is not diminished by obedience. It is refined by it."
+
+Sonia actually recoiled.
+"No."
+
+Anna's eyes flickered.
+"That is what I remember."
+
+"No, it isn't. That is what they put there."
+
+"It is still what I remember."
+
+Sonia heard the trap in that at once. Anna was not claiming it had always been true in some objective sense. She was telling the truth from inside the altered structure. That was worse, because it meant argument alone would never be enough.
+
+"Elena would never have said that."
+
+Anna's fingers tightened again.
+"You did not know her as I did."
+
+Sonia laughed once in disbelief.
+"I knew her well enough to know she did not spend her life dressing up compliance as virtue."
+
+Two tables over, cutlery stopped.
+The little radius of attention around them tightened.
+
+Anna heard it too.
+"Please lower your voice."
+
+"Why?"
+
+"Because everyone is listening."
+
+"Good."
+
+Anna's expression changed. Fear. Public fear. Then the second reaction came behind it: the trained recoil from impropriety.
+
+"A woman should not make a scene," she said automatically.
+
+The moment the words were out, Sonia saw something happen in her. A tiny slackening around the mouth. A faint shift in the shoulders. The reward.
+
+Anna had just self-corrected in public and her body had paid her for it.
+
+Sonia saw that and felt something harden.
+
+"There," she said quietly. "That. You say the line, your body gives you a treat, and then you call it truth."
+
+Anna looked hurt now, not shocked.
+"Do not say it as if that makes it false."
+
+"How else should I say it?"
+
+"I don't know." Her voice dropped. "More honestly."
+
+That almost undid Sonia.
+Anna was not only trapped inside the cage. She had begun to take pride in how well she fit there.
+
+Sonia looked at the woman across from her: the careful makeup, the white gloves, the full skirt, the covered hair, the upright posture that had become half habit and half restraint. She could see both things at once now. Anna had been altered. Anna was participating. Neither canceled the other.
+
+"Come with me," Sonia said.
+
+Anna went visibly still.
+"No."
+
+"Why not?"
+
+"Because I do not want to."
+
+"Or because you can't?"
+
+Anna held her gaze.
+"Because I do not want to go back to being that person."
+
+Sonia asked again, more gently. "Which is it?"
+
+Anna's eyes dropped to her lap.
+"If I can choose at all, then I am choosing this."
+
+That was worse than uncertainty.
+
+They were both quiet after that.
+The terrace noise returned around them in little pieces. Cups. Chairs. Water against the edge of the promenade. Someone laughing too loudly at something several tables away.
+
+Finally Sonia said, "I am not letting this go."
+
+Anna nodded without looking up.
+"I know."
+
+"And you know this isn't over."
+
+"Yes."
+
+Sonia stood.
+The chair legs scraped louder than she meant them to.
+Heads turned again.
+
+Anna winced almost imperceptibly.
+
+Then she looked up at Sonia one last time.
+"Please remember that I am still here."
+
+Sonia's throat tightened.
+"I know you are."
+
+She left money for the coffees and walked away before she could say anything softer that might break whatever held her upright.
+
+Behind her, Anna remained at the table, straight-backed and gloved and outwardly composed.
+But Sonia had seen enough.
+
+Anna knew what had been done to her.
+She also believed, in the most dangerous way possible, that what had been done to her had improved her.

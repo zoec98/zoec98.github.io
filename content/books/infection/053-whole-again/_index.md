@@ -3,6 +3,7 @@ title: "Chapter 53: Whole again"
 weight: 53
 ---
 
+
 # Whole again
 
 Philippe took Mara to the fitting room.
@@ -54,8 +55,7 @@ It could edit what she saw, filter her environment, and ensure that she only foc
 
 Her new gloves, fitted with position sensors, allowed her to communicate through hand-dancing,
 which the iGuardian recognized and responded to.
-The system could synthesize a voice for her, one chosen by Philippe,
-and could even edit her words before they were spoken, if needed.
+The system could synthesize a voice for her, one chosen by Philippe.
 
 As she experimented with the functionality,
 feeling the electrodes gently pulse across her skin, Mara began to feel whole again.
@@ -69,7 +69,7 @@ As she stood there,
 encased in the familiar and advanced embrace of her new iGuardian Pro Secure,
 she knew she could start to heal, with Philippe by her side, guiding her every step of the way.
 
-Turning to Philippe, her mouth finally filled by a proper and civilized feed gag again, her hands danced with happiness.
+Turning to Philippe, her mouth finally filled again by a proper and civilized feed gag, Mara signed her happiness. *Thank you, Sir.*
 Philippe smiled and touched his phone.
 His synthesized voice came through her mask’s earplugs, commanding, "Follow me."
 A green ring appeared around him,

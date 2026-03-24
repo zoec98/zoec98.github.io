@@ -3,104 +3,137 @@ title: "Chapter 27: Anna and Julien's departure for London"
 weight: 27
 ---
 
+
 # Anna and Julien's departure for London
 
-As Anna and Julien prepared to embark on their "taking possession" journey to Britain,
-Anna was buzzing with excitement about exploring the unique fashion and cultural nuances of Changed Britain.
-She had thoroughly researched the adaptations made in response to the region's changing climate.
+Anna packed for London as if she were preparing for a long-promised education.
 
-![](anna-packing.jpg)
+The suitcases lay open across the bedroom, Julien's side all practical order and folded shirts, hers a more complicated arrangement of underlayers, gloves, veils, and the first British purchases she had insisted on acquiring in advance. She stood between them in a pale house dress and half-mask, gesturing with bright quick hands while Julien sat on the edge of the bed and watched her enthusiasm sharpen itself into lists.
+
+![Anna standing amidst the luggage in their Geneva home.](anna-packing.jpg)
 
 *Anna standing amidst the luggage in their Geneva home.*
 
-Standing amidst their luggage in their Geneva home, Anna animatedly gestured to Julien.
-Her hands moved gracefully in the air, conveying her enthusiasm.
-Her fingers danced as she explained the distinctive elements of British Changed fashion.
-"I am looking forward to experimenting with British fashion, sir," she signed,
-her eyes sparkling with excitement, "Latex catsuits with integrated hoods to shield against the frequent rain.
-And capes!
-Latex walking skirts!"
-Julien watched her with an amused smile, nodding as he followed her descriptions.
+*Latex hoods for rain. Walking skirts. Capes with no arm slits. The hats, Sir. And the veils.*
 
-"They also have a fascination with visible restraints," Julien added with a smile.
-"Arm binders integrated into capes, and muffs that lock around the waist, securing the hands when needed.
-You will look splendid in this."
+Julien smiled.
 
-Anna was glad she wore the mask, otherwise, she might have stuck out her tongue at him,
-which would have earned her a correction.
-Instead, she signed with a flourish, "And the hats, Edwardian styles,
-fastened with wide ribbons and adorned with layers of face veils.
-It's both protective and incredibly chic."
-Her hands painted an image in the air, capturing the elegance and complexity of the attire.
+"And the visible restraints."
 
-Julien pointed at the travel guide.
-"And, for decency and protection, chastity belts are commonly worn," he stated.
-As they made their way to the Eurostar station, Anna's gestures continued, her excitement barely contained.
-Julien,
-fully absorbed by her enthusiasm and the detailed description of their destination's customs,
-felt a growing anticipation for the experiences that awaited them.
-He appreciated how these cultural insights excited Anna
-and was intrigued by how these practices would be woven into the fabric of their honeymoon experience.
+Anna's hands flickered faster.
 
-Together, they boarded the Eurostar, ready to dive into the rich tapestry of British Changed culture,
-exploring both the physical and social landscapes that would add depth and texture to their new life together.
-Anna's enthusiasm was infectious,
-and Julien found himself looking forward to discovering these unique fashion elements firsthand,
-seeing Anna embrace and perhaps even adopt some of these styles during their stay.
+*Yes.*
 
-Julien had booked first-plus seats for them, a small desk for two,
-the size of the usual first-class group seating for four,
-and marked it as one male, one female seat in the reservation.
-As they made their way to their seats,
-he found a comfortable fauteuil-style seat for himself and a cushioned kneeling pad
-next to it that provided various attachment points for Anna
-so that he could leave her safely unattended by British standards.
-It included a lockable belt, attachment points for corsets, and optional heel clamps for complete immobilization.
-He guided Anna to her seat and secured her with the belt provided, pocketing the key.
-He then proceeded to stow their luggage
-and adjusted the information display
-so that Anna could conveniently see it without straining against her Gobao Yoohoo collar.
+The sign carried so much delighted agreement that he laughed.
 
-As the train sped towards Paris,
-covering the 550 km distance in just three hours,
-Anna and Julien settled into their journey with comfort and ease facilitated by the high-speed service.
-They would be changing trains in Paris for the continuing leg to London,
-and appreciated the efficiency of travel, twice as fast as and way more convenient than by car.
+"You have been studying."
 
-Julien took a moment to review the information brochure which outlined the responsibilities of a Guardian during travel.
-It reminded him that he must keep Anna locked or escorted at all times while on board.
-He had already secured Anna to her seat with a lockable belt around her corseted waist.
+*I want to understand local standards before we arrive. I do not wish to look continental in the wrong way.*
 
-Anna's travel dress was a practical yet elegant charcoal dress with a Yoyah Sheengzoh underneath.
-The underskirt restricted her adequately with its knee-binding design.
-The stiff collar of her blouse worked together with her corset to ensure her posture remained upright, facing forward,
-but Julien was attentive to her needs and watched for any signs she might give.
+"There are many wrong ways to look continental?"
 
-Anna wore a Jinshuwan half-mask, less obtrusive than her usual full coverage,
-and normally had a wide-brimmed hat pinned neatly to her hair,
-which was styled in a braided knot at the back of her head.
-She opted to remove the hat here inside the train
-and had put it neatly on the hook provided for that purpose next to her.
-Then she folded her hands, covered in cream-colored gloves, in her lap
-and, for the moment, followed the information shown on the display in front of her.
+She paused just long enough for the joke to land, then signed with exaggerated dignity:
 
-Julien pointed out a feature
-integrated into her seat—a docking adapter
-meant for use with the full chastity belts that were popular with many British women.
-It would handle waste elimination without the need to navigate the complexities of her attire in a train restroom.
-Though Anna was skeptical of such an apparatus, she recognized its utility,
-especially given the British inclination for elaborate dresses and visible restraints.
+*Apparently there are.*
 
-While the practicality of the feature intrigued her,
-Anna was hesitant to discuss or inquire further about it in the public setting of the train,
-wary of others catching her signing.
-Instead, her thoughts drifted to what awaited them in London.
-In the privacy of their hotel room, Julien would take full possession of her,
-a moment she both anticipated and fantasized about.
-The idea stirred a mix of excitement and nervousness within her,
-as she imagined the deeper submission and intimacy that would mark their new life together.
+Julien set one of her folded scarves into the suitcase and watched her continue.
 
-Julien, aware of her quiet contemplation, gave her hand a reassuring squeeze.
-They shared a moment of connection, unspoken yet profound, as the landscapes outside blurred by.
-Anna leaned into the security that Julien's presence provided,
-her heart filled with both anticipation and trust in him as her guardian and partner.
+London excited her for reasons that reached further than fashion, though fashion provided the easiest vocabulary. Britain, from everything she had read, had taken the same Changed principles and pushed them outward into visible systems: hardware, public attachments, clothing that admitted dependence more openly, a city arranged to make female supervision seem both practical and elegant. Geneva still asked women to internalize the structure. London, as Anna imagined it, built the structure into walls, trains, weather gear, and streets.
+
+The prospect thrilled her.
+
+When they left for the station, she wore a charcoal travel dress over a corset and Yoyah Sheengzoh, cream gloves, a high-collared blouse, and a soft veiled travel hat she had insisted on trying in the British style for the journey. Julien carried the luggage. Anna kept one hand lightly on his sleeve and moved in the careful, shortened rhythm her underlayer required.
+
+At the station the British carriage standards began before the train itself did.
+
+Julien had reserved a first-plus compartment configured specifically for one man and one woman. His seat was broad, upholstered, and ordinary in a luxurious way. Beside it, where a second fauteuil might once have stood, was a kneeling pad with a fitted female travel position built into the floor and sidewall: belt points, posture supports, optional heel restraints, and a narrow display mounted at precisely the right angle for a collared woman whose head movement would be limited.
+
+Anna stopped and looked at it with unveiled interest.
+
+Julien noticed.
+
+"Too much?"
+
+Her hands answered immediately.
+
+"Not at all, Sir."
+
+He seated her carefully, guiding the fall of her skirt and then fastening the lockable belt around the corseted line of her waist. The restraint settled her neatly into place beside him, not harshly, but with unmistakable intention. Once he had pocketed the key, he adjusted the small screen so she could read it without straining against her collar.
+
+Anna sat very still for a moment, testing the arrangement through the body rather than thought.
+
+"Practical," she said, testing her voice after being mostly masked for weeks.
+
+Julien glanced at the brochure tucked into the side compartment.
+
+"And approved. During travel, a guardian must keep his ward either escorted or secured."
+
+Anna's eyes brightened behind the veil.
+
+"That sounds restful."
+
+"For whom?"
+
+Her hands moved in a smaller, prettier line this time.
+
+"Both, if managed well."
+
+He touched the back of one gloved hand in agreement.
+
+The train pulled away.
+
+Fields blurred, then towns, then the wide industrial edges of movement between countries. Anna loosened the outer veil once they were underway and settled the hat more comfortably against the headrest. Without the heavier layering over her face, she looked younger and somehow more serious at once.
+
+Julien read the travel notes while she read the carriage instructions. The British system had thought of everything, including bodily consequences. Integrated dock points for women traveling in full chastity belts. Guidance on hydration. Privacy protocols. Recommendations for layered rain gear and outdoor escort systems on arrival. The whole thing was so matter-of-fact that Anna felt the same dangerous pleasure she always felt when dependence was treated as a solved civic problem instead of a private shame.
+
+She pointed toward the brochure in his hand.
+
+"They plan beautifully here."
+
+"You approve?"
+
+"I am impressed."
+
+He watched her for a second.
+
+"That is not the same thing."
+
+Anna lowered her gaze in acknowledgment and then signed more carefully:
+
+"I believe I may approve when I know more."
+
+That answer pleased him.
+
+She spent part of the journey following the route display and part of it imagining London in layers: wet streets, guarded women under capes, rail systems tracing roofs and interiors, the practical shamelessness of British restraint. Beneath the image of the city was the more private anticipation she did not need to tell because Julien could already read it in her.
+
+This was their taking-possession journey.
+
+The phrase did not embarrass her anymore, not even in her own head.
+
+At one point Julien folded the brochure, set it aside, and took her hand.
+
+"You are thinking too loudly."
+
+Anna's eyes smiled behind the veil.
+
+"Forgive me, Sir."
+
+"No."
+
+He turned her gloved hand once in his own.
+
+"I like when you look forward to things."
+
+The words entered her body with familiar force.
+
+She signed more slowly then, because the restraint, the privacy, and his attention made precision feel intimate.
+
+"I am looking forward to London, Sir. I am looking forward to being shown what suits me there."
+
+His gaze sharpened.
+
+"Good."
+
+That one word settled her for the rest of the journey.
+
+By the time the train carried them on toward Paris and the next leg after it, Anna had stopped thinking of London as a destination and started thinking of it as an extension Julien's guidance so far: a wetter, stranger, more visibly organized version of the life she had already chosen, waiting to close around them both.

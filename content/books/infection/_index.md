@@ -12,6 +12,7 @@ description: |
 
 ---
 
+
 ![](masked-title.jpg)
 
 # Books
@@ -21,6 +22,12 @@ description: |
 - [Book 3: Anna and Sonia - Chapter 26](026-fashionista)
 - [Book 4: Mara - Chapter 35](035-reunion-in-the-garden)
 - [Book 5: Mara - Chapter 45](045-a-day-at-the-races)
+
+# EPUB
+
+Read below, or click on the image for the EPUB download:
+
+[![](masked-title.jpg)](infection.epub)
 
 # Dedication
 
@@ -34,165 +41,84 @@ they should not be attributed to Shmabahamoha.
 
 # Introduction
 
-## Sonia: Meet Lass-Vash-2024
+## Sonia: Meet LASS-VASH-2024
 
-Subject: Meet Lass-Vash-2024: A Plot Twist in Viral Evolution?
+Subject: Meet LASS-VASH-2024
 
-Hey Anna,
+Anna,
 
-Hope this finds you well and not too buried in your latest genomic conquests.
-I came across something bizarre and immediately thought, "This is a job for Anna's superpowers!"
-So, here's the scoop on the latest viral diva making waves:
-the Large Self-Stabilizing Viral Airborne Shenzhen Strain, or as I've affectionately dubbed it, Lass-Vash-2024.
+I am back in Shenzhen airport, half dead, under-caffeinated, and carrying a sample that makes no sense.
 
-This little monster is sporting a genome so massive it's like it's trying to compensate for something.
-We're talking way beyond the usual viral bling,
-and into the territory of "Are you sure you're not a misplaced eukaryote?"
-Its genomic sequence is a sprawling metropolis,
-and tucked within its concrete jungle are genes that act like meticulous city planners,
-ensuring replication fidelity is top-notch.
-Basically, it's got its own internal QA team running 24/7 checks to avoid typos in its genetic manuscript.
+The local reports call it the Large Self-Stabilizing Viral Airborne Shenzhen Strain. I shortened that to `LASS-VASH-2024` because I refuse to type the full thing every time. The symptoms sound almost insulting for something this elaborate: three to five days of fever, vomiting, headaches, and unusually vivid dreams. Nasty, yes. Catastrophic, no.
 
-Now, for the weird part (because, of course, there had to be one):
-despite its genetic overkill, Lass-Vash-2024 seems to fancy itself as a dramatist rather than a doomsday device.
-The symptoms are straight out of a B-rated sci-fi–think a nasty three-day cold meets a horror movie marathon,
-complete with headaches, vomiting, and, get this, vividly bad dreams.
-It's like our viral friend is moonlighting as a mediocre dream director.
+But the genome is absurd.
 
-The disproportionality of it all is baffling.
-With such a complex genome, you'd expect it to be plotting world domination,
-not sending people on guilt trips for eating the last cookie in their dreams.
-It's like bringing a quantum computer to a tic-tac-toe game.
+I am not talking about “unusually large.” I am talking about something engineered by a team that wanted to show off. It is far too stable for its size. Whole sections look less like viral code and more like stored data with built-in correction. It should fall apart. It does not.
 
-I've got a hunch there's more to this story, and who better to unravel this genomic Gordian knot than you?
-How about we tag-team this?
-A bit of "Anna and Sonia's Excellent Adventure: Pandemic Edition?"
-We could use some of your sequencing magic to dig deeper.
-Maybe it's hiding something revolutionary in its overly ambitious genetic script.
+I keep circling back to the same thought: nobody builds something this complicated to cause a bad cold and a few ugly nights.
 
-Let's chat more over coffee?
-My treat–and I promise to keep the dream talk to a minimum.
-Say, your favorite café by the lake, this Saturday?
-
-Stay awesome and uninfected,
+I’m bringing a chilled sample under permit. If you still want it, I can bring it straight to the lab after I land. Coffee after that, if neither of us is infected with the thing.
 
 Sonia
 
-## Anna: Re: Meet Lass-Vash-2024
+## Anna: Re: Meet LASS-VASH-2024
 
-Subject: Re: Meet Lass-Vash-2024: A Plot Twist in Viral Evolution?
+Subject: Re: Meet LASS-VASH-2024
 
-Hey Sonia,
+Sonia,
 
-Absolutely thrilled (and a tad terrified) about our new viral star, Lass-Vash-2024.
-Your description had me at "genomic overkill."
-Count me in for a deep dive into its genetic labyrinth –
-sounds like the kind of challenge that gets my sequencers humming.
+Of course I still want it.
 
-Yes, let's team up.
-I'm already brainstorming some unconventional analysis angles we might explore.
-However, brace yourself for the time warp we're about to enter, given the behemoth genome we're dealing with.
-Remember, our sequencing throughput isn't quite at light speed yet,
-so the more complex the sequence, the longer we'll be playing the waiting game.
-Let's not let our eagerness for discovery write checks our PCR cycles can't cash.
-Just something to keep in mind as we plan our assault.
+You had me at “far too stable for its size.” If the sequencing confirms what you think it does, this is not just unusual. It is designed.
 
-Really hoping you can make it back from Shenzhen without the extra luggage of jet lag.
-And speaking of luggage, please do bring a sample of Lass-Vash-2024.
-I've got the perfect spot on my bench waiting for it.
+Bring the sample straight to GAIA when you get back. I’ll keep the sequencers ready. We won’t get a full readout right away, but if the structure is as strange as you say, we should at least get enough to know whether we’re looking at something artificial.
 
-Coffee by the lake sounds perfect.
-It'll give us a chance to strategize and maybe even solve a few world problems while we're at it.
-Saturday is a date–looking forward to hearing all about your adventures and getting started on this genomic puzzle.
+And yes, coffee after. Assuming you’re not delirious and I’m not buried under a mountain of data.
 
-Take care and travel safe. See you soon, dream director. 😆
-
-Best,
+Travel safe.
 
 Anna
 
-## Sonia: Maylee Shufoo's Closet of Wonders and Woes
+## Sonia: Maylee Shufoo
 
-Subject: Fashion Finds: Maylee Shufoo's Closet of Wonders and Woes
+Subject: One more thing from Shenzhen
 
-Hey Anna,
+Anna,
 
-You won't believe the fashion odyssey I've stumbled upon here in Shenzhen.
-Picture this: a boutique chain named Maylee Shufoo (美丽束缚) that's essentially what you'd get if a Victorian-era tailor,
-a modern office fashion designer, and a bondage gear creator decided to collaborate.
-Yes, it's as bizarre and fascinating as it sounds.
+There is something else here you’d enjoy hating.
 
-First off, the pencil skirts here redefine "restrictive"–imagine trying to navigate a lab in one of those.
-I reckon I'd need a couple of those gene-splicing skills just to make it to the coffee machine without toppling over.
-And the heels–oh, the heels!
-They're skyscrapers!
-I'm half-convinced they're designed for people who've evolved past the need for feet.
+A boutique chain called `Maylee Shufoo` keeps turning up in the shopping districts here. The name is written in Chinese on the windows, and the whole thing looks like a very expensive dare.
 
-Then there are the corsets, available with or without shoulder braces,
-because why not add a dash of posture correction to your daily fashion?
-It's like saying, "I'm not only breathlessly chic, but I'm also literally breathless."
+The style is impossible to miss. Pencil skirts so tight they change the way women walk. High collars that look half blouse, half restraint. Gloves with too many buttons. Corsets sold as if they were office basics. Some pieces look Victorian, some look like polished corporate wear, some look almost ceremonial. It has that fascinating thing you sometimes get here, where fashion crosses over into discipline and nobody acts as if that is strange.
+
+The almost open, everyday bondage aspect is wild. Not nightclub fashion, not costume, not even subculture exactly. Just a shop on a normal street selling elegance, restraint, and inconvenience as if every woman obviously wants that.
+
+It should look ridiculous. Instead it looks expensive, polished, and weirdly convincing.
+
+I took a photo.
 
 ![](maylee-shufoo-2.jpg)
 
-*Photo Attachment: Inside Maylee Shufoo's in Shenzhen.*
+Maybe it means nothing. Maybe it is just Shenzhen being Shenzhen and me being too sleep-deprived to walk past a novelty shop without writing you a field report.
 
-And let's not even start on the blouses–buttoned at the back,
-with a collar tight enough to ensure you remember every decision that led you to wear it.
-They are complemented by long gloves adorned with an absurd number of minuscule buttons.
-It's like they were designed for someone with the patience of a saint and the dexterity of a surgeon.
-
-The mix of aesthetics is wild –
-there's an air of office chic meets Victorian discipline meets a splash of traditional Chinese elegance.
-All tied up with a hint of "I might need a safe word to get out of this outfit."
-It's a peculiar style-mix that somehow works here,  
-or at least, attracts enough attention to sustain a chain of stores.
-
-I can almost hear your laughter from here,
-imagining the look on your face as you try to picture me navigating my way through the boutique,
-doing my best not to look completely out of my element.
-I promise to bring back photos, and maybe a souvenir or two–though I might skip the corset.
-The last thing I need is an impromptu lesson in Victorian fainting techniques.
-
-Looking forward to our coffee chat
-and your thoughts
-on whether genomics can explain why someone would design a blouse that requires an assistant to put on.
-
-Stay fabulous and free-moving,
+See you tomorrow if I survive customs and jet lag.
 
 Sonia
 
-## Anna: Re: Maylee Shufoo's Closet of Wonders and Woes
+## Anna: Re: Maylee Shufoo
 
-Subject: Re: Fashion Finds: Maylee Shufoo's Closet of Wonders and Woes
+Subject: Re: One more thing from Shenzhen
 
-Hey Sonia,
+Sonia,
 
-"50 Shades of Shenzhen Chic," huh?
-Should I be concerned about these newfound hobbies of yours, or is this purely for "research" purposes?
-🤔😂
-I'm kind of expecting you to return with a PhD in Fashion Restraint Dynamics at this rate.
+That shop looks like someone crossed a boardroom, a bridal salon, and a fetish house, then hired a very serious art director.
 
-Seriously though, a photo or, dare I say, a haul video?
-Now, that would be priceless!
-Imagine the commentary –
-"And here we have a blouse so intricately buttoned, one might need an engineering degree to undress.
-Perfect for those who enjoy a challenge…"
-I'd pay good money to see that, or at least treat you to an extra fancy coffee when you're back.
+So yes, I hate it already.
 
-"If you make it here, I'll help you out of that clothing, but only if you behave and ask nicely."—sounds
-like something out of a very academic and dignified version of "50 Shades of Grey,"
-don't you think?
-😆
-Just kidding.
-But seriously, if you bring any of those "innovative" fashion pieces back,
-I'm curious to see how they integrate with the Geneva chic.
-And yes, I'll offer my assistance, strictly in a scientific capacity, of course.
+It also looks like Fifty Shades of Shenzhen opened a flagship store and got a tax break.
 
-On a more serious note, safe travels back, and make sure you're not too jet-lagged for our coffee catch-up.
-And remember, no corsets on the flight back; we wouldn't want you to pass out somewhere over Siberia.
+I would like to see you wear that blouse with the impossible collar purely in the interests of international cultural understanding.
 
-Looking forward to your return–and maybe, just maybe, a glimpse into the fascinating world of Maylee Shufoo.
-
-Stay safe and stylish (but mostly safe),
+Bring the photo. Bring the sample. Bring yourself in one piece. If this thing really is engineered, I want to know who made it and what they thought they were doing.
 
 Anna

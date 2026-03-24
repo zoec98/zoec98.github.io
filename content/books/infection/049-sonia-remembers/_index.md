@@ -3,6 +3,7 @@ title: "Chapter 49: Sonia remembers"
 weight: 49 
 ---
 
+
 # Sonia remembers
 
 Sonia smiled softly as memories of her early days with Henry came back to her.
@@ -94,12 +95,12 @@ They sat with their backs to the room,
 removed their masks, and donned veils that allowed them to share a coffee together.
 Anna’s eyes sparkled with curiosity.
 
-“Sonia, it’s so good to see you again,” Anna signed warmly.
+Anna signed warmly. *Sonia, it is so good to see you again.*
 
-“It’s wonderful to see you too, Anna,” Sonia hand-danced back, pulling out the small vial and placing it on the table.
+Sonia signed back as she pulled out the small vial and placed it on the table. *It is wonderful to see you too, Anna.*
 Anna’s eyes widened.
 
-“You still have it,” Anna signed, clearly surprised.
+Anna signed, clearly surprised. *You still have it.*
 
 Sonia nodded.
 “I kept it, just in case.
@@ -119,7 +120,7 @@ Anna listened closely.
 I thought submission made me weak, but he showed me it was the greatest gift I could offer.
 He guided me, corrected me, and helped me find my place in this world.”
 
-Sonia’s signs became more confident. “Eventually, I realized I had ‘fixed’ myself. I found harmony within.”
+Sonia’s signs became more confident. *Eventually this one realized she had fixed herself. She found harmony within.*
 
 Anna took Sonia’s hand and squeezed it gently. “I’m so proud of you, Sonia. You’ve found your path, your peace.”
 

@@ -3,6 +3,7 @@ title: "Chapter 48: A Night at the Opera"
 weight: 48
 ---
 
+
 # A Night at the Opera
 
 Philippe had arranged for a limousine with a driver for the evening.
@@ -81,10 +82,9 @@ Sonia responded with a deep curtsy.
 Mara, it’s wonderful to see you,” Henry replied, smiling with pride at Sonia’s appearance.
 Mara curtsied deeply.
 
-Mara couldn’t help but admire Sonia’s dress.
-The contrast between the soft, floating veils and the cold steel chains was captivating.
-“Good evening, Sir,” she signed formally at Henry before turning to Sonia.
-“Sonia, you look like a vision,” she hand-danced, her chains clinking softly.
+Mara couldn’t help admiring Sonia’s dress.
+The contrast between the soft floating veils and the cold steel chains was captivating.
+She signed formally to Henry. *Good evening, Sir.* Then she turned to Sonia. *Sonia, you look like a vision.*
 
 Sonia turned toward Mara.
 “Thank you, Mara.
@@ -212,22 +212,16 @@ The show will go on."
 Meanwhile, Philippe led Mara and Sonia into the opera box as quickly as their restraints allowed.
 Once inside, he closed and locked the door, then stood by, cellphone in hand, waiting for a message from Henry.
 
-Sonia felt a twinge of worry, unsure of what to do.
-She glanced at Mara, who stood next to her kneeling pad, poised and calm.
+Sonia felt a twinge of worry, unsure what to do.
+She glanced at Mara, who stood beside her kneeling pad, poised and calm.
 Her curiosity got the better of her.
-“Mara, how do you always stay so composed?
-You never seem to falter.”
+She signed. *Mara, how do you stay so composed? You never seem to falter.*
 
-Mara responded with calm, precise hand signs.
-“Discipline isn’t a choice for me, Sonia.
-It’s ‘perfection or correction,’ just like the iGuardian says.”
+Mara responded with calm, precise hand-dancing. *Discipline is not a choice for this one, Sonia. It is perfection or correction, exactly as the iGuardian says.*
 
-Sonia, thankful for the distraction, felt her interest growing. “Perfection or correction? What do you mean by that?”
+Sonia, thankful for the distraction, signed back. *Perfection or correction? What does that mean?*
 
-Mara’s expression softened as she signed her explanation.
-“Philippe chose the iGuardian because I used to push boundaries, always testing limits.
-I’d try to twist situations in my favor.
-The iGuardian keeps me focused, making sure I stay within my role and duties.”
+Mara’s expression softened as she explained. *Philippe chose the iGuardian because this one used to push boundaries, always testing limits. She would try to twist situations to her own advantage. The iGuardian keeps her focused and makes sure she remains within her role and duties.*
 
 Sonia nodded thoughtfully, reflecting on her own experience.
 “When I became Henry’s ward, he took a similar approach.
@@ -239,11 +233,7 @@ It felt too much, too harsh.
 But Henry was patient.
 Over time, I learned, and now I understand why he did it.”
 
-Mara, noticing Sonia’s need for distraction, continued signing.
-“It’s not so different from what I went through.
-Philippe knew I needed something firm, something that wouldn’t bend to my will.
-The iGuardian reminds me of my responsibilities.
-It guides me, and corrects me when I step out of line.”
+Mara, noticing Sonia’s need for distraction, continued signing. *It is not so different from what this one went through. Philippe knew this one needed something firm, something that would not bend to her will. The iGuardian reminds her of her responsibilities. It guides her, and corrects her when she steps out of line.*
 
 Sonia met Mara’s gaze, and a quiet understanding passed between them.
 “Henry was the same with me.
@@ -251,6 +241,4 @@ His corrections felt harsh at first, but now I see they were acts of care.
 He shaped me into someone better.
 I’ve grown because of it.”
 
-Mara agreed, signing carefully.
-“Love is shown through the discipline that molds us into our true selves,
-whether it comes from a guardian’s guidance or something like the iGuardian.”
+Mara agreed, signing carefully. *Love is shown through the discipline that shapes us into our true selves, whether it comes from a guardian's guidance or from something like the iGuardian.*

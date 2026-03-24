@@ -3,165 +3,319 @@ title: "Chapter 17: Return from Shanghai"
 weight: 17
 ---
 
+
 # Return from Shanghai
 
-Sonia's plane touched down in Geneva as the sun set,
-casting a golden glow over the city that almost seemed welcoming.
-The familiar landscape did little to ease the tension that had built during her flight.
-"Home at last," she muttered, dragging her minimal luggage through the arrivals gate.
-The air felt different—not just the typical chill of Geneva evenings, but something more stifling,
-a change in the atmosphere that made her uneasy.
+Sonia came back to Geneva at sunset and knew before she reached passport control that the city had moved on without her.
 
-After a restless night trying to shake off jet lag in her small apartment,
-Sonia's mind buzzed with thoughts of her next steps.
-"I need to see Anna.
-She needs to know everything," she thought, fingers hesitating over her phone before dialing Anna's number.
-The call was brief;
-they agreed to meet at the Lakeside Café,
-a spot that held memories of discussions that now seemed from another lifetime.
+It was there in the posture of the women ahead of her in line, in the practiced way they managed luggage with gloved hands and short, contained movements, in the men beside them who stepped in without discussion to lift, carry, direct, decide. Two months were not long enough to rebuild a city from the ground up. Long enough, apparently, to make what would once have looked theatrical start passing for ordinary.
 
-Sonia had been away for almost two months,
-and approaching the Lakeside Café, she noticed the changes right away.
-The quaint charm of the café seemed overshadowed by the patrons.
-Changed women and men were now the majority,
-moving with an eerie uniformity, despite the varied styles and colors of their dress.
-Women, tightly corseted and impeccably dressed,
-showcased the latest in Changed fashion—restraint taken to a new level of public acceptance.
-"This isn't the Geneva I left," Sonia whispered, her heart sinking as she scanned the crowd for Anna.
+By the time she reached her apartment she was too tired to do anything useful with the data from Cheng's household. She showered, stood too long under hot water, then lay awake in her own bed with Shanghai still pressed into her body. Her shoulders kept trying to settle into the set the corset had taught them. When she turned on her side, she missed the rigid certainty of being laced.
 
-Finding Anna proved more difficult than expected; her friend was almost unrecognizable,
-transformed not just by the corset but by the aura she now exuded.
-Anna sat alone, her posture perfectly rigid,
-dressed in an elaborate Victorian-inspired outfit that announced her acceptance of her Changed status.
-Her hair was neatly styled under a stylish hat, her expression serene yet distant.
+That bothered her enough to keep her awake another hour.
 
-As Sonia approached, her heart ached with sorrow and anger.
-"How can she just sit there, looking so... content?
-Doesn't she realize?" she thought, her steps faltering.
-"Of course, she does," Sonia answered herself.
-"She knows she's been altered by the virus, yet it makes her accept her Change."
+In the morning she called Anna.
 
-"Anna," Sonia greeted, her voice catching as she sat down.
-Anna smiled warmly, but her behavior showed the formal restraint typical of the Changed.
-"You look... different," Sonia said, struggling to hold back the emotions stirring within her.
+The sound of her friend's voice hurt more than Sonia had expected.
 
-"Thank you, Sonia.
-It's good to see you," Anna responded in the polite tone of the Changed,
-yet with a genuine smile for her friend.
-"You've been away for some time.
-How was your trip?"
+"Sonia?"
 
-"It was... enlightening," Sonia replied,
-her mind racing with how to explain her findings without overwhelming Anna or revealing her own turmoil.
-"I discovered a lot, Anna.
-Things that... we need to discuss.
-About the Change, about what it's really doing to us."
+Warm. Bright. Glad to hear her.
 
-Anna nodded, her expression unchanged.
-"I look forward to hearing about it," she said, signaling the waiter with a grace that was both flawless and unsettling.
-Sonia sought a way to share her news, organizing her thoughts from the past two months.
-"This isn't just about catching up, Anna.
-It's about understanding what's happened to us, to you.
-And it's about figuring out where we go from here."
-The information she carried burned inside her, and she needed to share it with Anna,
-hoping to use Anna's deep knowledge of genetics to help decode the virus.
+"I'm back."
 
-But before Sonia could start to explain, Anna shared her own news.
-"Sonia, I have something wonderful to tell you," Anna began, her voice filled with joy.
-"Julien and I are having my giving-away ceremony next weekend.
-It's at The Jade Garden, that beautiful tea house just north of Geneva.
-I would love for you to be there."
+"Oh, good. Are you well?"
 
-Sonia's heart sank slightly, but she managed a smile.
-"Anna, that sounds lovely.
-Can you tell me more about the ceremony?"
+No, Sonia thought. Not in any useful sense.
 
-Anna clasped her hands, excitement shining in her eyes.
-"Of course!
-The giving-away is a beautiful tradition.
-It's when I'm formally transferred from being under my father's guidance to Julien's.
-As a woman, I move from obeying my father to my husband.
-It symbolizes the continuity and respect for family values that we cherish so much now."
+"Tired. Can we meet?"
 
-Sonia listened, her thoughts swirling.
-She really believes in this, Sonia thought grimly.
-She sees it as harmony, not subjugation.
+"Of course. Lakeside Café?"
 
-Anna continued, "The ceremony will be simple but meaningful.
-We'll start with a procession in the garden, followed by the formal giving away by my father.
-Then Julien and I will lead a tea ceremony.
-It's a symbol of our new life together, sharing and serving each other."
+"Yes."
 
-"The Jade Garden is the perfect setting," Anna added, her eyes dreamy.
-"Its tranquility and beauty reflect the harmony and peace I now feel.
-Julien and I chose it because it feels like a natural extension of our relationship—serene and grounded in tradition."
+The walk there gave her too much time to look.
 
-Sonia felt a pang of sadness seeing her friend so transformed by the Change.
-She struggled internally, her mission clashing with the desire to support her friend.
-She's happy, but at what cost?
-Sonia wondered silently.
+Geneva had not become Shanghai. It had become itself more decisively. The women on the streets were still less uniform, less overtly stylized, but the direction of travel was obvious now. Corsets showed under tailored jackets. Skirts narrowed. Heels clicked in shorter rhythms. Men held doors, set hands at waists and elbows, steered women gently through crossings and into trams. Sonia passed a couple in front of a bakery: the woman, elegant and blonde and visibly over-dressed for buying bread, stood with her hands folded while the man chose for both of them. She looked calm. Pleased, even. That was the part Sonia could not stop tripping over. Not misery. Not humiliation performed under protest. Settlement.
 
-Anna seemed to sense Sonia's hesitation.
-"Sonia, I know this is a lot to take in, especially with everything you've been through.
-But being part of this ceremony would mean the world to me.
-You've always been such a dear friend, and I hope to share this important moment with you."
+The Lakeside Café had kept its awning, its polished windows, its view of the water. Inside, the balance had shifted. More structured women. More lowered gazes. More little pauses before women sat, stood, spoke, reached. Sonia felt it before she consciously counted it. The room ran differently now.
 
-Sonia nodded slowly, her resolve firming even as she agreed.
-"Anna, I wouldn't miss it for the world," she assured her friend, masking her turmoil with a supportive smile.
-I need to be there, not just for her, but to understand how deep this goes and to find a way to help her,
-she thought resolutely.
+She saw Anna at once and still had to stop for half a second before walking over.
 
-"Thank you, Sonia!
-It really means so much to have your blessing," Anna beamed, unaware of Sonia's internal conflict.
+Anna was dressed for afternoon rather than display, but that only made the change harder to dismiss. Dark fitted jacket. Pale high-collared blouse. Gloves laid neatly beside her cup. A hat pinned with understated care. Her corset set her upright in a way that no longer looked imposed from the outside. It looked inhabited. She sat with a composure Sonia had once associated with very old paintings of very expensive women who had never been allowed to slump in their lives.
 
-Sonia took a deep breath, readying herself to share her burden.
-Across from her, Anna waited, calm and expectant.
-The bustle of the Lakeside Café faded into the background as Sonia began to speak.
+Then Anna looked up and smiled, and for a moment the years before the virus came flooding back so hard Sonia almost hated her for it.
 
-"Anna, while I was away, I wasn't just gathering data for academic purposes.
-I was investigating the Change,
-trying to understand its origins and implications," Sonia said, her voice low and serious.
+"Sonia."
 
-Anna leaned forward, interest sparking in her eyes. "What did you find, Sonia?"
+She rose carefully. Sonia stepped in and let herself be kissed once on the cheek.
 
-"I infiltrated Dr. Cheng's mansion in Shanghai.
-He's one of the key figures behind the Change, the creator of LASS-VASH-2024.
-I managed to access his private lab
-and copied a lot of data—data
-that might help us understand how the virus works and maybe even how to counteract its effects,"
-Sonia confessed,
-watching Anna closely.
+"Hello."
 
-Anna's eyes widened, a flicker of the woman Sonia once knew. "That's incredible, Sonia. How can I help?"
+Anna drew back just far enough to look at her properly.
 
-Sonia paused, the weight of her next words heavy.
-"Would you help me go through the data?
-With your expertise, we might understand better, maybe even find a cure."
+"You've lost weight."
 
-"To serve in finding a cure would be a great honor," Anna replied, smiling serenely. "I am happy to serve, Sonia."
+"Shanghai food wasn't the problem."
 
-Sonia's heart sank and soared at once.
-She really means it, Sonia thought, she'll help because she's conditioned to serve… and she thinks this is serving.
-"You do mean that, don't you, Anna?"
-Sonia asked aloud.
-"You want to help?"
+That made Anna's mouth soften with concern.
 
-"Yes, Sonia. I am happy to serve in any way that can contribute," Anna affirmed, her tone gentle yet firm.
+"Sit down, please."
 
-Sonia realized a crucial aspect of the conditioning:
-It didn't account for the existence of immunity.
-Anna, conditioned to serve, would help because it aligned with her ingrained desire to be useful,
-especially to someone she cared about.
+Sonia sat. The waiter appeared almost immediately. Anna did not order for her, thank God, but there was still something Changed in the way she handled the interaction: not submissive exactly, because he was only a waiter, but measured, composed, polished down to the smallest movement.
 
-"Using Anna's conditioning to fight what changed her feels wrong, but what choice do I have?"
-Sonia thought, her internal conflict growing.
-This was a tool, unexpected and powerful,
-and while it made Sonia uncomfortable, she knew the stakes were too high to ignore any advantage.
+When he was gone Anna folded her hands lightly on the table.
 
-"Thank you, Anna.
-Your help could make a real difference.
-We'll start as soon as possible," Sonia said, forcing a smile.
+"You look exhausted."
 
-As they parted ways, Sonia felt a twinge of guilt for leveraging Anna's conditioned loyalty,
-but she steeled herself with the reminder of her mission's importance.
-It's about saving her, too, she reassured herself.
+"I am."
+
+"Was it useful?"
+
+Sonia looked at her for a second.
+
+Useful.
+
+She had infiltrated a house built around feminine service, stolen evidence from a man who spoke about social coercion like a product rollout, watched the prototype of female silence polished into luxury goods, and come home carrying enough data to ruin lives if anyone believed her.
+
+"Yes," she said. "More useful than I wanted it to be."
+
+Anna's eyes sharpened with interest, but before Sonia could start, Anna's expression changed. Something gentler moved through it. Anticipation. Pleasure.
+
+"I have news too."
+
+Of course you do, Sonia thought. Of course the city kept moving while I was playing maid in somebody else's nightmare.
+
+"Good news?"
+
+Anna's smile deepened.
+
+"Very."
+
+She reached into her bag and produced a cream card edged in dark green. Heavy paper. Formal lettering. Sonia did not need to open it to know what it was, but Anna waited until she had.
+
+Julien Moreau requests the honor...
+
+The giving-away ceremony.
+
+Next weekend.
+
+Jade Garden.
+
+Sonia looked back up.
+
+Anna was watching her with open happiness and something more vulnerable under it, the hope of being answered kindly.
+
+"You're inviting me."
+
+"I very much want you there."
+
+There were a dozen things Sonia might have said. This is insane. You sound like somebody describing her own auction. Do you hear yourself when you say giving-away like that, with that expression on your face?
+
+Instead she set the card down carefully.
+
+"Tell me."
+
+Anna's relief was small but visible.
+
+"It will be simple. My father will place me formally in Julien's care. There will be tea afterward, and only a few people. I wanted it to feel... quiet. Right."
+
+Quiet. Right.
+
+Words Sonia could not stop hearing the way Anna meant them, not the way Sonia did.
+
+"And that's what this feels like to you?"
+
+Anna held her gaze.
+
+"Yes."
+
+No embarrassment. No defensive edge. No sense that she had to justify herself to survive the conversation. She was not parroting. She was sincere.
+
+"I know how it sounds to you," Anna said. "Or I think I do. But it isn't degradation, Sonia. It feels like being settled. Properly. I don't know how else to explain it without making you angry."
+
+That landed more cleanly than any speech could have. Anna still knew her well enough to predict the shape of the argument and gentle it in advance.
+
+Sonia wrapped both hands around her cup, though the coffee had already started cooling.
+
+"Try anyway."
+
+Anna smiled a little, sadly this time.
+
+"All right. Julien takes care of me. He pays attention. He notices when something is too much, or when I need help, or when I am pretending not to need help because I want to feel proud. Father did that when I was younger in a different way. This is... a continuation, but more intimate. More chosen. I don't feel erased by it."
+
+Sonia thought of Cheng saying women adapted first in the body, then in habit, then in memory.
+
+She thought of the women in the airport, the subway, the villa, the boutiques.
+
+She thought of Anna sitting opposite her in perfect posture, speaking about transfer and care with luminous calm.
+
+"You really are happy."
+
+Anna blinked, as if that should not have been in question.
+
+"Yes."
+
+The grief of it came strangely. Not as shock. The shock was long gone. This was smaller and meaner. The grief of realizing your friend had crossed somewhere you could still reach her physically but not morally, not without tearing something open in her that she would call healing.
+
+"Sonia?"
+
+"I'm here."
+
+Anna hesitated. Then, very softly: "Will you come?"
+
+Affection, disbelief, strategy, sorrow, all of it tightened together under Sonia's ribs. She wanted to refuse on principle. She wanted to say yes because Anna was asking with that hopeful carefulness and because refusing would wound her. She wanted to go because this ceremony was evidence, culture turning itself into ritual in real time. She wanted to go because she could not stop looking at the cliff edge and asking how far over her friend had gone.
+
+"Yes," she said at last. "I'll come."
+
+Anna exhaled as if she had been holding her breath.
+
+"Thank you."
+
+The gratitude in her voice was intimate enough to make Sonia feel cheap.
+
+"You don't have to thank me for attending your transfer from one man to another."
+
+Anna's cheeks colored faintly.
+
+"I know."
+
+Then, because she was Anna and because the virus had changed her without making her stupid, she added, "But I am grateful anyway."
+
+That almost made Sonia laugh.
+
+It also made the next part harder.
+
+"I didn't go to Shanghai for academic curiosity," Sonia said.
+
+Anna went still.
+
+"I assumed that much."
+
+"I got into Cheng's household."
+
+For the first time since Sonia sat down, Anna's composure cracked. Not dramatically. Just enough for the old Anna to show through in the sharpness of her attention.
+
+"You what?"
+
+"As a maid."
+
+Anna stared at her.
+
+"Sonia."
+
+"Yes."
+
+"As a maid."
+
+"Yes."
+
+The waiter arrived with fresh hot water and retreated again under the temperature of the silence between them.
+
+Anna lowered her voice.
+
+"That was dangerous."
+
+"I noticed."
+
+There it was, that flicker of the woman Sonia had missed: dry, intelligent, a little horrified, fully present.
+
+She told Anna enough of it to matter. The household. Cheng. The lab. The files. Not every detail of what service had felt like in her body, not the dangerous softness of slipping into usefulness, but enough to make clear that this was real and that she had brought something back.
+
+Anna listened without interrupting until Sonia mentioned the genomic annotations and the behavioral layering notes.
+
+"You have them?"
+
+"Copied. Encrypted. Backed up in three places."
+
+Anna sat back slowly.
+
+"Sonia..."
+
+She looked shaken now, though not in the way Sonia had once wanted. Not outraged at the whole social order. Not torn loose from her new life by revelation. The scientist in her had woken first. Sonia could see it happen.
+
+"If those files are genuine," Anna said, "they could tell us how the adaptive layers are organized. Not just symptom expression. Memory architecture. Reward pathways. Possibly the sex-differentiated compulsion design."
+
+"That's why I'm here."
+
+Anna lowered her eyes to the table for a second, and when she looked up again Sonia saw the conflict arrive. Not between helping and refusing, exactly. Something subtler. The pull of duty in two directions that no longer felt separate to her.
+
+"You want me to examine the data."
+
+"Yes."
+
+Anna was quiet.
+
+Sonia knew what she was really asking. Use the part of you the virus left brilliant. Use the part it made obedient. Use the way service now reaches straight into your pleasure centers and turns usefulness into emotional truth. Help me exploit what was done to you so I can maybe undo some part of it.
+
+The thought made her stomach turn.
+
+"You don't have to answer now," Sonia said. "I know this is—"
+
+"I want to help."
+
+The words came cleanly, without hesitation.
+
+Sonia stopped.
+
+Anna went on, gentler now.
+
+"If there is a way to understand it better, I want to help. If there is a way to reduce harm, all the more. I would not refuse you that, Sonia."
+
+Would not refuse you.
+
+The phrasing hit exactly where Sonia had feared it would.
+
+"Are you helping because you want to know," Sonia asked carefully, "or because helping someone you care about now feels... compulsory?"
+
+Anna did not flinch.
+
+"Both, probably."
+
+Honest. Calm. Almost unbearably honest.
+
+"The second part doesn't make the first untrue."
+
+Sonia looked down at the invitation card beside her cup. Jade Garden. Giving-away ceremony. Formal transfer. Then back at Anna, who was offering her a cure with the same sincere readiness she would probably offer tea, mending, or her own body if the world asked for it in the right tone.
+
+This was useful.
+
+This was intimate.
+
+This was morally filthy.
+
+And she was going to do it anyway.
+
+"All right," Sonia said.
+
+"Bring me the files," Anna replied. "I'll start as soon as I can. Julien will understand if I tell him I am assisting with something medically important."
+
+There it was again, that easy movement through permission and dependence. Even her offer of professional help came already fitted to the structure of her new life.
+
+Sonia hated that she noticed the tenderness in it.
+
+"Thank you," she said, and heard how tired she sounded.
+
+Anna's expression softened.
+
+"You don't need to thank me."
+
+The faintest smile touched Sonia's mouth.
+
+"Apparently everybody does now."
+
+That won her a small laugh, real and surprised and achingly familiar.
+
+For a few seconds they were only themselves again, or near enough to make the loss hurt.
+
+Then the moment passed. The café remained what it had become. The lake shone beyond the windows. Around them women sat in fitted jackets and corsets, rising carefully when men approached the table, lowering their eyes when spoken to, smiling as if this had always been how peace was meant to look.
+
+When they stood to leave, Anna touched Sonia's hand.
+
+"I'm glad you're home."
+
+Sonia looked at her, at the serene posture, the careful clothes, the happiness she could not dismiss as fake.
+
+"I know," she said.
+
+It was the truest answer she had.

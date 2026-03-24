@@ -3,7 +3,21 @@ title: "Chapter 47: Plans involving Art and Fashion"
 weight: 47
 ---
 
+
 # Plans involving Art and Fashion
+
+*After the spectacle of the opera, the Freeborn strike again, kidnapping Sonia and Mara.
+Stripped of her iGuardian, Mara is thrown into a world of raw exposure: forced to walk, eat,
+and speak like an Unchanged, every moment without her mask and corset feels like filth and collapse.
+Sonia, locked at her side,
+remembers her own corrections under Henry—how the chastity belt that once tormented her became her badge of service and her peace.
+Together, they endure captivity until a desperate escape and their rescue by grenadiers.
+But survival is only the beginning: Mara can no longer imagine life without her shell,
+and when Philippe fits her with a new iGuardian Pro Secure, its discipline and rewards restore her to herself.
+Sonia, meanwhile, chooses her own submission, giving Henry her devotion with clarity.
+In a Changed world of masks, corsets, and ritual obedience,
+both women discover that harmony comes not by resisting, but by finding where love and discipline meet.*
+
 
 While their wards relaxed on the veranda, Philippe and Henry sat in the living room, enjoying classical music.
 Dressed in tailored suits, they sipped their drinks and talked about their love for the opera.
@@ -102,13 +116,11 @@ He then sat across from her, calm and composed as he began to speak.
 We will be attending the opera next Saturday, in ten days.
 We’ll meet Henry and Sonia there."
 
-Mara's eyes brightened with excitement, her gloved fingers moving to sign her response.
-"I’m looking forward to that, Sir.
-It will be wonderful to see Sonia again."
+Mara's eyes brightened with excitement, and she signed her answer. *This one looks forward to that, Sir. It will be wonderful to see Sonia again.*
 
 Philippe nodded with a smile. "Indeed. The opera will be Il Seraglio."
 
-Mara's excitement grew, her hands dancing with anticipation.
+Mara's excitement grew.
 Philippe continued, "I’m thinking of dressing you as Konstanze, Mara.
 You’ll be veiled and chained, as befits a captive woman in a seraglio."
 
@@ -117,11 +129,8 @@ She wouldn’t be able to sign and would have to speak, which made her uneasy.
 She disliked using her voice.
 But she knew better than to directly express her discomfort.
 
-Her fingers moved slowly, carefully signing,
-"Sir, I understand your wishes, and I will of course fulfill my assigned role.
-However, if it pleases you, I would feel more comfortable being masked.
-I find using my voice... less modest.
-Hand-dancing is more expressive and feminine, I believe."
+Her fingers moved slowly, carefully signing.
+*Sir, your wishes are understood, and of course this one will fulfill her assigned role. However, if it pleases you, she would feel more comfortable masked. Using her voice feels less modest. Hand-dancing is more expressive, and more feminine, she believes.*
 
 Philippe watched her closely, noticing the careful way she made her request.
 He considered her words, then nodded thoughtfully.
@@ -129,9 +138,7 @@ He considered her words, then nodded thoughtfully.
 If it makes you more comfortable, I will reconsider.
 You will still be chained, but I’ll ensure you can sign, though within limits."
 
-Mara’s eyes softened with relief, and her hands moved gracefully in gratitude.
-"Thank you, Sir, for your thoughtful consideration.
-I am most grateful."
+Mara’s eyes softened with relief, and she signed her gratitude. *Thank you, Sir, for your thoughtful consideration. This one is deeply grateful.*
 
 Philippe’s smile widened, pleased with her response.
 "Good.

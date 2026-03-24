@@ -3,6 +3,7 @@ title: "Chapter 51: The Conference"
 weight: 51
 ---
 
+
 # The Conference
 
 The next morning, the group gathered for brunch at Henry’s place.
@@ -16,32 +17,18 @@ Mara, in her usual attire, had on a bonnet and a mask fixed to the collar of her
 She wore a white blouse locked in the back, an Edwardian walking skirt in deep navy blue,
 and her usual ballet knee-boots under the Yoyah Sheengzoh.
 
-The women, locked to their chairs,
-signed to each other while the men talked outside on the terrace, their conversation taking on a more serious tone.
+The women, locked to their chairs, signed to each other while the men talked outside on the terrace, their conversation taking on a more serious tone.
 
 Anna glanced around before signing to Mara.
-The leather of her tight gloves creaked as she signed, "I heard there was an attack during the intermission.
-What happened?"
+The leather of her tight gloves creaked softly. *This one heard there was an attack during intermission. What happened?*
 
-Mara’s fingers moved gracefully.
-"Yes, a group of 'Freeborn' tried to 'free' us.
-It was chaotic, but the Grenadiers managed to stop them quickly."
+Mara’s fingers moved gracefully. *Yes. A group of Freeborn tried to free us. It was chaotic, but the Grenadiers stopped them quickly.*
 
-Sonia added, "Apparently, a woman noticed the attackers beforehand.
-The women in the group were obviously under-dressed and not corseted,
-and the men acted rudely—they tried to blend in, but they did a bad job of it.
-The woman was suspicious because of the attack on Zendaya and called the police helpline.
-The Grenadiers were already on their way when the attack started."
+Sonia added, *Apparently one woman noticed them beforehand. The women in the group were obviously underdressed and uncorseted, and the men behaved rudely. They tried to blend in, but badly. Because of the attack on Zendaya, she grew suspicious and called the police helpline. The Grenadiers were already on the way when it began.*
 
-Anna's eyes widened with interest.
-"That’s fascinating.
-How did the Freeborn stay uninfected by something as contagious as LASS-VASH-2024?
-And why form a terrorist group only now, three years after the Change?
-And where did they get the money for their equipment?"
+Anna's eyes widened with interest. *That is fascinating. How did the Freeborn stay uninfected by something as contagious as LASS-VASH-2024? Why form a terrorist group only now, three years after the Change? And where did they get money for their equipment?*
 
-Mara’s fingers paused before she signed, "I’ll… use my contacts.
-We need more information about them.
-We can’t let this group cause any serious harm."
+Mara’s fingers paused before she signed. *This one will use her contacts. More information is needed. That group cannot be allowed to cause serious harm.*
 
 The women exchanged nods, understanding the seriousness of the situation.
 Mara’s vague response suggested she had ways of gathering information, and they would discuss it more once she had news.
@@ -50,56 +37,37 @@ The conversation then shifted to other topics.
 
 Mara mentioned that she had received the agenda for the upcoming conference on viruses and pandemic control.
 
-Sonia’s fingers moved with curiosity. "What’s the focus of the conference?"
+Sonia signed with curiosity. *What is the conference focused on?*
 
-Mara signed, "The conference will cover the medical and legal aspects of pandemic control.
-It’s a big event for all of us.
-There will be sessions on developing antiviral treatments,
-vaccine distribution strategies, and the legal side of pandemic response."
+Mara signed. *The conference will cover the medical and legal aspects of pandemic control. It is a major event for all of us. There will be sessions on antiviral development, vaccine distribution strategy, and the legal side of pandemic response.*
 
-Anna nodded. "It sounds like it’ll be really informative. Who’s speaking?"
+Anna nodded. *It sounds very informative. Who is speaking?*
 
 Mara’s hands showed a hint of amusement.
-"One of the keynote speakers is Dr. Cheng, the CEO of CBI."
+*One of the keynote speakers is Dr. Cheng, CEO of CBI.*
 She turned to Anna.
-"And did you know he’s also the CEO of Maylee Shufoo?
-I found that out for Sonia a long time ago.
-He’ll be discussing the impact of neuroactive viral diseases and future pandemic preparedness.
-There are also several other well-known experts from the medical and legal fields."
+*And did Anna know he is also CEO of Maylee Shufoo? This one found that out for Sonia a long time ago. He will speak on neuroactive viral disease and future pandemic preparedness. There are several other well-known experts from medicine and law as well.*
 
-Sonia's hands froze mid-sign. "Dr. Cheng?" she signed, her movements quick and anxious. "Are you sure?"
+Sonia's hands froze mid-sign. She signed quickly, anxiously. *Dr. Cheng? Are you sure?*
 
-Mara nodded, noticing Sonia’s reaction. "Yes, why? Is something wrong?"
+Mara nodded, noticing Sonia’s reaction. *Yes. Why? Is something wrong?*
 
-Sonia’s hands shook slightly as she signed, "When I…
-met him in Shanghai, three years ago, the… situation wasn’t favorable."
+Sonia’s hands shook slightly as she signed. *When this one met him in Shanghai three years ago... the situation was not favorable.*
 From her signs, it was clear there was more to the story.
 Anna knew the details, but Mara did not, and Sonia wasn’t ready to share.
-"It’s been three years, but I’m worried he might recognize me."
+*It has been three years, but this one worries he might recognize her.*
 
-Anna reached over, gently touching Sonia's arm to calm her.
-"Sonia, that was a long time ago.
-You’re either masked or veiled now, and even if he sees your bare face, he probably wouldn’t recognize you.
-You’ve changed, and so has the world."
+Anna reached over, gently touching Sonia's arm to calm her. *Sonia, that was a long time ago. Now you are masked or veiled, and even if he sees your bare face, he probably will not recognize you. You have changed, and so has the world.*
 
-Sonia took a deep breath, trying to steady her hands.
-"I know, but the thought still makes me nervous.
-He was involved…."
+Sonia took a deep breath, trying to steady her hands. *This one knows. Still, the thought makes her nervous. He was involved...*
 Her hands paused, then she started again.
-"What if he somehow realizes who I am?"
+*What if somehow he realizes who she is?*
 
-Mara’s eyes softened with understanding.
-"Sonia, you’ve come a long way since then.
-Dr. Cheng might not even remember you.
-Besides, we’re going to the conference to learn and make a difference.
-If you feel uncomfortable, you don’t have to attend his session."
+Mara’s eyes softened with understanding. *Sonia has come a long way since then. Dr. Cheng may not remember her at all. Besides, we are going to the conference to learn and to make a difference. If she feels uncomfortable, she need not attend his session.*
 
-Sonia nodded, her fingers moving more slowly.
-"Thank you, Mara.
-I appreciate that.
-I’ll try to focus on the positive aspects of the conference."
+Sonia nodded, her fingers moving more slowly. *Thank you, Mara. This one appreciates that. She will try to focus on the positive side of the conference.*
 
-Anna signed, "It’s normal to feel nervous, but we’re all in this together. We’ll support each other."
+Anna signed. *Feeling nervous is normal, but we are in this together. We will support one another.*
 
 Later that week, the conference at the International Conference Center began with a quiet sense of anticipation.
 The venue,

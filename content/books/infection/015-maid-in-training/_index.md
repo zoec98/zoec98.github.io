@@ -3,161 +3,205 @@ title: "Chapter 15: Maid in Training"
 weight: 15
 ---
 
-# Maid in Training 
 
-Sonia spotted a job listing from "Harmony Household Staffing" that seemed like a chance to get into Dr. Cheng's home.
-To make it happen, she reached out to Jiang Han, also known as "The Broker," for help.
-They met at a busy café, where the sound of clinking dishes and low chatter offered some privacy.
-Jiang sat calmly, while his assistant, Mei Lin, watched everything with sharp eyes.
+# Maid in Training
 
-"Jiang, I need to get into Dr. Cheng's household.
-It's the only way to get closer to the truth," Sonia said, her voice steady.
+Harmony Household Staffing occupied two upper floors over a quiet commercial street, respectable enough from the outside that Sonia might have walked past it if Jiang Han had not sent the address to her phone.
 
-Jiang nodded, his face giving nothing away.
-"Cheng's household is strict.
-Getting you in won't be easy.
-We'll have to create a background that holds up.
-It'll cost more this time.
-Ten thousand, upfront."
+He met her in a back office with Mei Lin standing at his shoulder.
 
-Sonia's eyes narrowed slightly, but she expected the steep price.
-"Done," she replied without hesitation.
-"What exactly will you do?"
+"Ten thousand more," he said, as if they had paused a conversation ten minutes earlier instead of the previous day. "We will provide references, history, interview shaping, training, and the bribes you need to succeed in household placement."
 
-"I'll set up fake references from high-profile households,
-craft a work history that fits their standards, and influence the butler's decision.
-Mei Lin will brief you on what you need to know," Jiang explained, nodding to his assistant.
+Sonia did not argue.
 
-Mei Lin leaned in, her voice clear.
-"As a maid, you'll follow strict rules.
-Your appearance, behavior, and speech must fit the household's standards.
-You'll wear a uniform, maintain perfect posture, and perform duties precisely."
+"Fine."
 
-She continued, "Cheng's staff have specific grooming rules.
-You’ll need to wear your hair up, covered, with gloves and proper footwear.
-Every detail matters, from serving tea to how you walk and talk.
-You'll be watched closely by everyone."
+Jiang glanced at Mei Lin.
 
-Sonia listened carefully, understanding the challenge.
-It was clear that Dr. Cheng specifically looked for Changed as maids.
-The life Mei Lin described was far from her own, but she knew it was necessary.
-"How long do I have to prepare?"
+"You were right. She learns fast."
 
-"You have two weeks before the interview.
-We'll make sure you're ready.
-Mei Lin will oversee your training, from walking to setting tables," Jiang assured her.
+Mei Lin let her eyes travel once over Sonia in her fitted Shanghai business dress and gave nothing away.
 
-Sonia nodded, feeling the dread of the upcoming training but determined to succeed.
-"Thank you, Jiang, Mei Lin.
-I'll follow your lead."
+"Fast is not the same as useful."
 
-As they stood up, Jiang gave her a final reminder.
-"Sonia, once you're in, it's up to you.
-We can get you ready, but inside that house, it's all on you."
+That seemed to be her answer to everything.
 
-Under Mei Lin's strict guidance,
-Sonia's training to become a maid in Dr. Cheng's household began right away.
-Mei Lin turned her own home into a tough training ground,
-taking on the role of a harsh mistress to prepare Sonia for the challenges ahead.
+The cover identity came together by evening. Prior placements in homes Sonia had never seen. Skills she could already perform badly enough to need instruction and well enough to pass after two weeks of it. A narrowed life on paper. Domestic work. Service standards. Discretion. Obedience.
 
-Each morning started with roll call at precisely six o'clock.
-Sonia, still getting used to the tight corset and restrictive clothes,
-stood at attention while Mei Lin inspected her outfit, makeup, and posture.
-"The corset isn't tight enough, Su ni ya," Mei Lin said, using Chinese phonemes for Sonia's name.
-"You must be more graceful, more constrained.
-This is how they expect you to look," she said, pulling the laces tighter.
+When Jiang finished explaining how the butler at Cheng's house would be nudged toward the right file, Mei Lin took over without transition.
 
-Throughout the day, Mei Lin maintained strict discipline.
-Sonia was either constantly working—polishing, cleaning, arranging—or standing at attention,
-practicing a posture of silent alertness.
-"A maid either works or stands at attention," Mei Lin repeated often, making sure Sonia internalized this.
+"From now on," she said, "you train exactly as you will serve."
 
-Mei Lin taught Sonia to focus always on her master or her master's guests.
-"Don't let your mind wander.
-You exist only to serve.
-There is nothing but service on your mind.
-Anticipate their needs—a word, a wave, or a fingersnap," Mei Lin instructed.
-Sonia learned to curtsy at all times, keeping her eyes lowered, and speaking only when spoken to.
-"Only speak about what was asked," Mei Lin corrected, "never tell, always suggest, and only when asked."
+She did not smile. Sonia had the impression smiling would have weakened whatever method she believed in.
 
-Sonia's days were a relentless test of endurance and submission.
-One afternoon, she was arranging a floral centerpiece in the main hall—a task testing her precision and patience.
-The room smelled of fresh lilies and roses, each bloom placed with care.
-Mei Lin watched her every move with sharp eyes.
+Mei Lin used her own apartment first, then a rented service flat attached to the agency, both arranged with the same intention: nowhere for Sonia to relax into herself. Every room taught or corrected something. Doors to open the right way. Trays to balance. Tables to lay. Floors to cross without noise. Mirrors placed where posture would betray her.
 
-"Stop," Mei Lin commanded suddenly.
-Sonia froze, hands poised over the flowers.
-"Your posture is slackening.
-Remember, a maid's bearing reflects her respect.
-Stand straighter—shoulders back, chin up!"
+The first morning began at six.
 
-With a sinking heart, Sonia adjusted her posture, feeling the corset force her spine into a rigid line.
-Mei Lin circled her like a predator, missing nothing.
+By six-ten Sonia was in uniform.
 
-"You are too slow, Sonia.
-If you move like this in Dr. Cheng's house, you won't last a day," Mei Lin said coldly.
-She dismantled the arrangement Sonia had just perfected.
-"Start again.
-Keep your attention where it belongs."
+The maid dress was not theatrical. It was a working dress, strict enough to demand attention every minute it stayed on her body. Black, modest, and closely controlled. White apron. Long sleeves. Cuffs that reminded her not to spread. Proper shoes. Gloves for certain tasks. Hair pinned up and covered. A corset under it because the line mattered. A restricting underlayer beneath the skirt because gait mattered too.
 
-Sonia resumed the task, her fingers trembling slightly.
-The frustration of having her effort casually dismissed was hard to swallow,
-but Mei Lin's words echoed in her mind: "There is no room for error, no space for self-pity."
+The fabric at the back of her knees caught whenever she tried to take a full stride.
 
-Hours passed.
-Sonia's back ached from her posture, her hands sore from handling the delicate stems.
-Mei Lin was relentless, finding fault in every detail—from the angle of a petal to the spacing between blooms.
+Mei Lin walked around her once in silence.
 
-Finally, as evening approached, Mei Lin inspected her work again.
-After a long moment, she nodded curtly.
-"Acceptable, for now.
-Remember, perfection is expected, not applauded."
+"Again," she said.
 
-Exhausted and emotionally drained, Sonia retreated to her small room in Mei Lin's house.
-She collapsed onto the bed, allowing herself a few moments to cry,
-grieving the independence she had given up for her mission.
-The tears were brief; she wiped them away with a determined hand.
-Steeling herself, she whispered into the dim room, "This is necessary.
-I can do this.
-I must."
+"Again what?"
 
-One quiet Sunday morning, as the first light of dawn filtered through the curtains,
-Sonia found herself immersed in her new reality.
-The morning began as always,
-with the methodical donning of her uniform—a symbol of her servitude and a constant reminder of her purpose.
+Mei Lin's eyes hardened by a fraction.
 
-As "this humble maid," she meticulously polished the silverware in the dining room, her movements smooth and practiced.
-The silver gleamed under her touch,
-each piece inspected with the intense attention to detail that Mei Lin had drilled into her.
-The room was silent except for the soft clink of metal and the whisper of her starched petticoats.
+"Everything."
 
-"More shine, you can do better," Mei Lin's voice suddenly cut through the quiet, startling Sonia.
-Without hesitation, she lowered her gaze, curtsied automatically, and responded, "Yes, Mistress Mei Lin.
-This humble maid will improve."
-Her voice was meek, stripped of any hint of her former assertiveness.
-She felt her identity melding into the role, her past self a distant shadow.
+So Sonia undressed, dressed, laced, buttoned, pinned, tied, stepped into shoes, arranged the apron, lowered her gaze, and stood for inspection again.
 
-Hours passed, each task flowing into the next—dusting the bookshelves,
-arranging the flowers—all executed with a precision that would have been unthinkable a week earlier.
-Sonia no longer saw these actions as chores but as parts of a dance she was compelled to perform,
-each step dictated by conformity and the need to please.
-The mantra of obedience had become a comforting rhythm, a guiding force that felt necessary and oddly satisfying.
+"Better," Mei Lin said. "You look less like a scientist playing maid."
 
-Later, as she prepared tea for Mei Lin in the quiet of the afternoon, her hands moved with elegance and precision,
-placing the porcelain cups just so on the saucers.
-"This humble maid hopes the tea is to your liking, Mistress Mei Lin,"
-she said, her voice soft and devoid of the vibrant energy she once carried.
+It was not praise.
 
-Mei Lin sampled the tea, her eyes assessing the maid before her.
-"Very good.
-You are learning your place," she stated, nodding slightly in approval.
+Sonia took it like praise anyway.
 
-Sonia felt a flush of pride at the praise, not for herself but for "this humble maid" she had become.
-She realized with a pang of resignation mixed with pride that she was no longer acting; she was living the role.
-Each commendation from Mei Lin didn't just reinforce her disguise;
-it anchored her deeper into this new existence.
+The days turned into drill so quickly she could not point to the hour it happened.
 
-As the day waned and she prepared for evening duties, Sonia caught her reflection in the mirror.
-The maid looking back was composed, serene, and utterly transformed.
-"This humble maid is ready to serve," she whispered to her reflection,
-fully embracing the depths of her transformation, necessary for the mission but transformative to her very core. 
+A maid either worked or stood ready to work. There was no third state. If Sonia finished polishing silver, there was floor wax to check. If the floor was right, flowers needed cutting. If flowers were done, laundry folds could still be improved. If no task presented itself at once, she stood at attention with her hands arranged properly, posture exact, listening for the next instruction.
+
+Mei Lin corrected everything.
+
+Too much shoulder.
+Too much stride.
+Too much voice.
+Too much self.
+
+"You enter a room already apologizing for the space you take up," she said on the third day. "That is western guilt, not service. Service is cleaner. It waits. It notices. It moves only when needed."
+
+Sonia hated how true that was.
+
+The flowers were worst at first. Mei Lin made her re-cut stems, rebuild arrangements, start again because the asymmetry leaned too far to one side or because Sonia had missed the shape entirely. Then tea. Then folded linen. Then tray work. Then kneeling to present. Rising without bracing on a chair. Turning in a skirt that allowed very little turning at all.
+
+At meals Mei Lin was not generous, but she was practical.
+
+"Eat."
+"Faster."
+"Not like that."
+"Again."
+
+No comfort.
+
+No cruelty for sport either.
+
+Only method.
+
+On the fifth day Sonia dropped a spoon from the tray because her fingers had started shaking from exhaustion.
+
+The sound on the floor was small.
+
+The shame was not.
+
+Mei Lin looked at the spoon, then at Sonia.
+
+"Pick it up properly."
+
+Sonia bent, corset resisting, skirt narrowing, and had to think through the mechanics before her hand reached the floor.
+
+When she rose, Mei Lin tipped the tray and let more spoons fall.
+
+"Again."
+
+Sonia wanted to throw the whole tray into the wall.
+
+Instead she did as told.
+
+Something in that choice stayed with her.
+
+By the end of the first week, the uniform no longer felt like a disguise she put on for a job. It felt like a narrowing passage she entered every morning and only partly emerged from at night.
+
+She did not notice the danger at first because it did not arrive as panic.
+
+It arrived as ease.
+
+Mei Lin never explained what she was doing. She did not have the language Sonia would have used, and probably would not have wanted it. She was producing a service personality the only way she knew how: repetition, fatigue, posture, correction, approval withheld until it mattered, and a schedule that left no room for interior rebellion.
+
+One Sunday morning Sonia was polishing silver in a shaft of pale light while the flat stayed quiet around her. The work had stopped feeling like separate motions. Cloth, turn, inspect. Cloth, turn, inspect. Her corset held her. The dress contained her. Somewhere in the building a pipe clicked once, then again. The room made no demands beyond the next piece and the one after that. Behind her, Mei Lin moved from shelf to shelf checking dust she would certainly find.
+
+"More shine," Mei Lin said.
+
+"Yes, Mistress Mei Lin. This humble maid will improve."
+
+The words came out before Sonia had time to stop them.
+
+She should have flinched.
+
+Instead the phrase moved through her with a low, almost soothing inevitability. This humble maid, not I, not Sonia, but a narrower self that fit the room better. She kept polishing. Cloth, turn, inspect. The pressure in her ribs and waist, the constrained line of her legs, the cool weight of the spoon in her hand, all of it folded together into something smooth enough to rest inside.
+
+For a while she stopped measuring time.
+
+She only worked.
+
+The next task replaced the last without any seam she could feel. Silver to flowers. Flowers to dusting. Dusting to tea tray. She did not choose the movement from one to the next. She answered it. The uniform rustled. Her shoes clicked softly. Her hands stayed small and efficient in front of her body when they were not actively serving.
+
+At some point Mei Lin tasted the tea and nodded once.
+
+"Better."
+
+The single word went into Sonia so deeply she almost swayed.
+
+Pride flared, but not the kind she knew from publications, fieldwork, or being right in public. This one sat lower. Stranger. Quieter. It made her want to kneel and stay useful.
+
+The response did not pass through thought first. It landed in her body and spread from there.
+
+Late that afternoon Mei Lin sent her to the small maid room off the kitchen that had become her home during training.
+
+"Rest for thirty minutes. Then change and begin again."
+
+Sonia closed the door behind her, sat on the edge of the narrow bed, and felt the whole day come apart at once.
+
+The room looked wrong. Too still. Too empty. Her own name did not fit inside it for a few seconds. She knew it was her room. She knew what city she was in. She knew why she was there. None of that stopped the hollow drop in her stomach when the service rhythm fell away and left her alone with herself again.
+
+She covered her face with both hands and breathed.
+
+The tears came for a reason she could not have explained.
+
+Not many. Enough to humiliate her.
+
+She had not been drugged. She had not been hypnotized. Mei Lin had barely touched her except to correct a shoulder, a wrist, the angle of her chin. Even so, something had happened to her in that long morning of labor and correction. Some part of her had gone quiet in a way that was not entirely unpleasant and had returned only roughly when the work stopped.
+
+The work had comforted her.
+
+Not the scolding or the ache. Not the humiliation either. The narrowing. The relief of not having to carry herself as a person with a hundred possible directions to move in. The clarity of expectations. The simplicity of being told what came next and doing it well.
+
+She came from women who would have called that weakness.
+
+She had called it weakness herself.
+
+She still wanted to call it that.
+
+But sitting there with her face hot and her chest uneven, she could not make the word hold.
+
+That evening, when Mei Lin corrected her posture again and told her to hold the tray lower, Sonia obeyed with a flush already rising under her skin.
+
+The next morning she woke before the call and lay still for several seconds, one hand on the blanket, knowing two things at once.
+
+She was here on a mission she had chosen for herself.
+
+And part of her was looking forward to disappearing into the maid again.
+
+By the second week, the phrase "this humble maid" came more easily, and that frightened her too. Mei Lin never encouraged it directly, but she did not interrupt when Sonia used it correctly. That was enough. The self kept thinning at the edges during long runs of work, and returning to ordinary speech afterward felt like putting on a face she had misplaced for a few hours.
+
+Mei Lin watched the process without discussing it.
+
+One evening, after Sonia had re-laid the same breakfast table three times to correct the spacing of a spoon, Mei Lin finally spoke while adjusting the fall of Sonia's apron.
+
+"You are nearly ready," she said.
+
+Sonia kept her eyes lowered.
+
+"For Cheng?"
+
+"For service."
+
+The distinction stayed with her long after the lesson ended.
+
+She lay awake that night in the little room off the kitchen, sore, corseted, and unable to think her way cleanly out of what was happening to her. She told herself it was cover, adaptation, necessity. She told herself the comfort meant nothing. She told herself the strange peace she found in being corrected into usefulness was only another danger to manage.
+
+None of those explanations changed what she felt the next morning when the uniform closed around her body and the day narrowed down to tasks, posture, and the relief of being told what came next.

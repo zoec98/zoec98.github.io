@@ -3,6 +3,7 @@ title: "Chapter 50: Intermission"
 weight: 50
 ---
 
+
 # Intermission
 
 When Mara said,
@@ -45,7 +46,7 @@ Sonia knew what that meant—Janice was really a man,
 an abusive guardian serving a year and a day–a Shadow year,
 hence the S–as a ward to learn proper restraint and gain a new perspective.
 
-Sonia discreetly signed to Mara, asking if she had noticed the pin.
+Sonia discreetly signed to Mara. *Did Mara notice the pin?*
 Before Mara could respond, Henry caught sight of Sonia’s gossiping.
 His expression hardened.
 This was the second time he caught Sonia signing about other wards corrections behind his back.
@@ -57,17 +58,16 @@ Gossiping about corrections is unacceptable.
 Corrections are private matters, meant to guide and help you grow.
 Once they’re done, they are not spoken of again, especially not in public.
 For all practical purposes, Janice is a ward,
-and she is to subject to exactly the same expectations and standards as any other ward."
+and she is subject to exactly the same expectations and standards as any other ward."
 
-Sonia immediately lowered her gaze, her hands moving with full formality as she signed, "I apologize, Sir.
-Thank you for keeping me aligned."
+Sonia immediately lowered her gaze and signed with full formality. *This one apologizes, Sir. Thank you for keeping her aligned.*
 
 Henry nodded, his expression softening slightly.
 "See that you remember this, Sonia.
 We will discuss it further at home."
 Sonia turned her attention to the Turkish delight and the wine,
-musing the exact nature of the "discussion" she'd be having with Henry at home.
-Meanwhile, Janice retured with a feed bag for Mara, which Philippe attached to her feed port himself.
+wondering what, exactly, that "discussion" at home would involve.
+Meanwhile, Janice returned with a feed bag for Mara, which Philippe attached to her feed port himself.
 
 The conversation between the men turned to the Freeborn attack, leaving the women to themselves.
 
@@ -92,9 +92,7 @@ her knowledge of the true origin of the LASS-VASH-2024 was secret and maybe not 
 The men debated various motivations behind the attack, and eventually, it was time to leave.
 The men re-secured their wards and led them to the waiting limousine.
 
-At home, Mara thanked Philippe for the wonderful evening and the opera experience.
-"Thank you, Sir.
-It was a wonderful experience," she signed with genuine gratitude.
+At home, Mara thanked Philippe for the wonderful evening and the opera. She signed with genuine gratitude. *Thank you, Sir. It was a wonderful experience.*
 
 Philippe smiled, pleased, and helped her prepare for the night, locking her to the bed in her usual attire.
 Mara felt a sense of peace and safety as Philippe ensured every detail was just right.

@@ -3,6 +3,7 @@ title: "Chapter 52: Out of the Shell"
 weight: 52
 ---
 
+
 # Out of the Shell
 
 Mara slowly opened her eyes, squinting against the harsh artificial light flooding the room.
@@ -137,7 +138,7 @@ Mara forced herself to eat her share and keep it down, knowing she needed the st
 Each day, she pushed herself a little harder, trying to rebuild the endurance she had once taken for granted.
 
 
-Mara trained her voice, which she had not been using for several years now.
+Mara trained her voice, which she had not used for several years.
 She pushed herself to move from a whisper to modulated, if quiet, speech, even though she hated every second of it.
 She supplemented her speech with hand-dancing the way little girls do before receiving their first mask,
 using the familiar motions to convey the nuances and emotions that her voice couldn’t carry.
@@ -148,10 +149,7 @@ While exploring the cell early on, Sonia and Mara found a pile of objects in the
 Beneath it, they discovered the broken remains of Mara’s iGuardian, Sonia’s chastity belt,
 and the shredded remains of the clothing they had worn to the conference.
 Mara did not understand why their unseen captors left the pieces here with them.
-"Are they trying to mock us with that?" she asked Sonia in a hoarse, barely understandable  voice,
-and at the same time hand-danced at her.
-"It's depressing, seeing my iGuardian destroyed.
-I feel so exposed and helpless."
+In a hoarse, barely understandable voice, and at the same time with clumsy, half-remembered hand-dancing, she asked Sonia, "Are they trying to mock us with that? It's depressing, seeing my iGuardian destroyed. I feel so exposed and helpless."
 The device had been her shield, her prison, and now it lay in ruins before her.
 
 As they sifted through the debris of their past lives,
@@ -205,7 +203,7 @@ They were standing in the inner yard of a lone mountain farmstead, far from any 
 The chill wind bit at their skin, and they huddled closer together,
 their thin bathrobes and leotards offering little protection from the cold.
 
-Mara's hands moved in the cold air, asking the question that was on both their minds: "What now? We can't stay here."
+Mara asked with her hands in the cold air, *What now? We cannot stay here.*
 
 Sonia didn’t answer right away.
 She focused on the LEDs on the GPS device, hoping they would turn green.
@@ -262,7 +260,7 @@ Before she could fully wake up, Philippe was at her side, cradling her in his ar
 His embrace was firm and desperate, as though he feared letting go might cause her to vanish.
 Mara felt the trembling in his body, the raw emotion he had been holding back.
 
-They both began to cry, overwhelmed by a flood of emotions—sadness, relief, fear, and trauma.
+They both began to cry, overwhelmed by sadness, relief, fear, and trauma.
 Mara felt the tightness in her chest loosen just a bit, knowing she was safe, that Philippe was there.
 The physical pain of the past few days melted away, leaving only the rawness of her emotions.
 

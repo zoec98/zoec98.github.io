@@ -3,144 +3,225 @@ title: "Chapter 3: Descent into Sickness"
 weight: 3
 ---
 
+
 # Descent into Sickness
 
-Back at home, Anna VPN'ed again into the lab, checking in on the data.
-The sequencers were proceeding nicely, and they would have a provisional full genome sequence late on Sunday,
-slightly earlier than expected.
-The data now showed very clear signs that people made the virus.
-She saw structures that could never have developed naturally and were more reminiscent of computer programs than genetic data.
-The virus had parts that fixed replication errors in its code with an accuracy not seen in nature,
-a viral equivalent to an error-correcting code in computers.
-Large percentages of the genome seemed not functional, but data storage of some kind.
-It was not only Wikipedia-sized, large parts of it apparently literally were Wikipedia, 
-or something unreadable close to it.
-The rest looked like instructions in some unknown bio-genetic programming language,
-targeting some unknown execution mechanism. 
-The way things were set up proved that the virus was not natural,
-no comparable mechanism existed in any natural specimens that Anna knew of.
+Back home, Anna checked the sequencers again through the lab VPN and wished she had not.
+
+The data had sharpened overnight.
+Too much of the genome looked manufactured for her to pretend otherwise now. Whole sections behaved less like viral code than stored information, packed densely and protected against replication damage with a level of correction no natural virus bothered with. It was ugly only in scale, the design was clean. Professional. Whoever had built it had known exactly what they were doing.
 
 She then zoomed with Sonia, who was staying at home.
-"Chère, tu te sens mieux," Anna opened.
-"Comme de la merde," Sonia came back.
-"And more so than can be explained by lack of sleep and jet lag, to be fair.
-Something is breeding in me, I am sure.
-I am staying home, but don't you worry.
-The fridge is full, thanks internet delivery services!
-Not that I am hungry at all."
-Sonia was right, Anna thought: she did look like shit.
 
-Anna turned to the data, sharing her screen.
-"We know this thing is engineered," she explained, and showed the structures she found.
-"There is nothing that looks even remotely close to this in nature."
+Sonia answered from bed, not looking good at all.
+"Chere," Anna said, "tu te sens mieux?"
 
-"But we don't know what it does. 
-Only that it is a harmless cold," Sonia answered.
-"Let's not sound a big alarm bell just yet", she suggested.
-"We need some solid data first. 
+"Comme de la merde," Sonia said at once. "And more so than can be blamed on jet lag. I am staying home. I have groceries. I am still deeply offended by the concept of food."
+
+Anna almost smiled.
+"You look terrible."
+
+"Thank you. I have been working on it."
+
+Anna shared her screen and walked her through the latest structures, the synthetic signatures, the impossible correction logic. Sonia watched with narrowed eyes and that stubborn field-agent calm she used when something was worse than she wanted to admit.
+
+![](003-descent-into-sickness.jpg)
+
+*Anna zooms Sonia, Sonia is sick.*
+
+"So we know someone made it," Sonia said. "That still doesn't tell us what it does."
+
+"No."
+
+"Then no panic yet. Not until we have something solid enough to wave in front of people.
+We need some solid data first.
 You know how it goes otherwise."
 
-Anna did.
+Anna knew she was right.
 She had first hand experience, so to speak, just after her morning run.
-"But let's write something up properly, to share with the data once we have it," she suggested.
-"Right, once we have it," Sonia concurred.
+She still hated it.
 
-Anna looked forward to a productive weekend, but by Sunday, both Anna and Sonia had fallen seriously ill.
-Sonia began to feel unwell late on Saturday and informed Anna, who at that time was still feeling relatively healthy.
-However, by early Sunday, Anna started exhibiting similar symptoms.
-She woke up with a raging headache, excessive light sensitivity and thirst.
-Getting out of bed, she took her temperature, and sure enough, she had a fever, too.
-Soon that rose quite a bit, and she was alternating between chills and sweats.
-She also struggled to keep any food down, 
-and her throat felt swollen and constricted, making it difficult even to drink water without fighting the urge to vomit.
-Anna woke again around noon, to find a text from Sonia on her phone.
-Sonia described a situation very much like her own.
-It became clear that the virus they were researching had infected them.
+"We'll write it properly once the sequencing is further along," she said.
 
-What was supposed to be a work weekend producing a paper on viral genomics 
-for Anna quickly deteriorated into days experiencing the effects of viral genomics first hand.
-She spent considerable time in the bathroom, either hunched over the toilet bowl or leaning against the wall,
-the cool tiles slightly alleviating her fever until the chills came back and she shivered from the cold.
-Moving became an ordeal; she crawled back to bed,
-pausing frequently due to dizziness, blurred vision, and the unsettling sensation of hearing ghostly voices.
+"Good." Sonia shifted on the pillow and winced. "If I don't answer later, assume I'm asleep or dead."
 
-Anna experienced disturbing hallucinations, imagining her body hair falling out in clumps.
-She visualized the soft fuzz on her arms and legs shedding like cherry blossom petals in spring.
-An incessant itch developed under her arms and between her legs, leading to patches of hair loss.
-Her scalp began to itch intensely, then ache,
-while her breasts and nipples became so sensitive that even light contact caused pain.
-She found it increasingly difficult to distinguish reality from her fever-induced delusions.
-All of this left her deeply afraid in her more lucid moments,
-because it signaled that this was no ordinary cold but something far more severe and alarming.
+"Preferably asleep."
 
-In her more lucid moments, the knowledge that the virus was engineered fed Anna's fear even more.
-This… thing.
-This was no random mutation, it was constructed, and it was probably doing what it was supposed to do.
-It was running a program encoded into its viral genome, 
-deliberate modifications now being executed by her body's cells.
-She and Sonia had taken this far too lightly.
-What was the virus doing to her?
-What was it turning her into?
-These were terrifying questions to which she had no answers.
+"Preferably."
 
-When Anna attempted to text Sonia, she got delivery indicators, but no read indicators.
-That was no surprise if Sonia was experiencing something similar to what she did right now.
-Sonia would be too ill to respond, leaving her messages unanswered.
-The days melded into a torturous cycle of sleep and illness,
-drinking fluids only to vomit them up, and the exhausting journey from bed to bathroom and back.
-But Anna's nights were a fighting ground far worse than her daytime sickness.
-She was haunted by recurring nightmares—each a strange distortion of her memories,
-transforming her past into terrifying nightmares.
-In one dream, her typically assertive mother was unrecognizable, urging her to embrace quiet submission.
-"Remember, Anna, to always be graceful, to yield, to adorn silence as your cloak," her dream mother insisted,
-distorting her real-life encouragement of independence.
-"A woman should be seen, but never heard."
-In the dream, Anna curtsied, replying meekly, "Yes, Mama.
+They ended the call.
+Anna meant to spend the rest of the weekend working.
+
+By Sunday morning she woke with a headache and felt seriously ill.
+
+Light from the window cut across the room and went straight through her eyes into the back of her skull. She turned onto her side too quickly and nearly vomited before she had even opened them fully. The sheets were damp. Her mouth tasted of stale heat and metal. When she dragged herself upright, the floor moved in a slow, ugly tilt under her feet.
+
+She took her temperature.
+Fever.
+
+An hour later it was higher.
+
+Her day dissolved into fragments: bathroom tile against her shoulder, the cold porcelain of the toilet seat under one hand, a glass of water she could not keep down, a wet washcloth gone warm against the back of her neck almost at once. Her throat hurt. The skin under her arms itched. By noon her breasts felt strangely swollen and over-sensitive, as if even the weight of her T-shirt had become an irritation.
+
+Her phone glared when she checked it.
+Sonia had texted.
+
+Same here. Fever. Headache. Can't eat. This is bad.
+
+Anna stared at the message until the words blurred.
+
+Oh.
+
+They had it.
+
+The virus was in both of them now.
+That part at least was obvious.
+It was moving through tissue, crossing barriers, unpacking whatever had been hidden inside that monstrous genome while she lay in bed sweating through another shirt.
+
+She had planned to write a paper, not become the subject of it, but
+she spent most of Sunday half in the bathroom and half in bed.
+There were moments when she thought she had slept and moments when she knew she had blacked out instead. She woke once with her cheek pressed to the tiles and no memory of how she had reached the floor. Another time she found herself standing in front of the mirror with both hands at her scalp because the itching there had become unbearable.
+
+Her hair had become visibly longer.
+That was scary.
+
+The soft hair on her forearms seemed thinner. Her underarms burned. Between her thighs the itching had turned sharp and insistent, intimate in a way that made panic and embarrassment arrive together.
+She scratched and has her hand full of lose pubic hair.
+
+Fever, she told herself.
+Neurological involvement.
+Sensory distortion.
+
+Then her nipples brushed the inside of her shirt when she moved and the shock of pain was so bright it bent her forward.
+
+This was not a cold.
+
+This was a program running.
+
+The thought stayed with her because she was sick enough that metaphor no longer felt separate from fact. Code. That was the word her brain kept coming back to.  Something had entered her body and her cells were… running it. The genome had always looked too deliberate. Now the deliberation was happening under her skin.
+
+She tried to message Sonia again.
+Delivered.
+No reply.
+
+Of course no reply. Sonia was probably in bed with the same fever, the same vomiting, the same impossible sense that something careful and invasive had started editing her from the inside.
+
+By night the voices began.
+
+Nothing loud and cinematic, just the sense of words at the edge of hearing, close enough to feel personal, too blurred to pin down. She rolled onto her back and dragged the sheet up over herself, then kicked it away because her skin had become intolerably hot, then pulled it back minutes later when the chills hit.
+
+She slept at last because the body always takes something for itself eventually.
+
+And the dreams opened.
+
+At first they were almost ordinary.
+Her mother in a kitchen from childhood, sunlight on the table, the smell of coffee, a hand smoothing Anna's hair back from her face.
+Comfort.
+So much comfort that Anna nearly cried inside the dream.
+
+Then Elena said, "A good girl keeps herself graceful even when she is tired."
+
+Anna woke with a start, heart hammering, and found the pillow wet beneath her cheek.
+
+The next sleep dropped her somewhere else.
+A classroom this time.
+One of her old teachers walking between desks, voice warm, tone encouraging, saying almost the right thing and then not. Sit properly. Speak less quickly. Do not push so hard to be first. A clever woman knows how to support without drawing attention.
+
+Anna argued in the dream.
+She was sure she did.
+Her mouth moved.
+No sound came out.
+
+That silence frightened her more than the words.
+
+The dreams kept coming, jumbled sequences of authority figures in a fevered morality play.
+They overlapped and bled into each other. Her mother became a lecturer. A lecturer became an old school principal. Rooms changed mid-sentence. Someone fastened a collar at the back of her neck while another voice praised her for standing still. She would be in a conference hall one moment and kneeling on polished floorboards the next with her skirt arranged over her knees and her hands folded so neatly in her lap that the sight of them made nausea rise in her throat.
+
+She resisted hardest when the dreams used Elena.
+
+That was where the virus showed its cruelty.
+It did not only invent.
+It revised.
+It took the woman who had taught Anna to speak clearly, to fight in public if she had to, to never let a mediocre man explain her own work to her, and made her lower her voice and say, "Submission is peace, ma fille. You do not need to struggle so much. A woman should be seen, but never heard."
+
+Anna woke from that one crying with rage.
+She sat upright too fast, the room lurched, and she vomited bile into the bin she had dragged beside the bed.
+When the spasms stopped, she stayed there shaking, hair stuck damply to her face, and tried to breathe through the pain in her throat.
+
+She hated the dream.
+She hated whoever had made this.
+She hated the tiny corrupt part of herself that had responded to Elena's softened voice before the horror caught up.
+
+Because there had been a response.
+"Yes, Mama.
 A woman should be seen, but never heard.
 I know."
-This perverse revision of her mother's true persona left Anna horrified.
 
-Another nightmare twisted her memories of encouraging teachers into figures reminding her to be quiet and not stand out.
-"A lady's value lies in her subtlety, her ability to blend in, not to overshadow her companions," they intoned repeatedly.
-"She supports, she does not lead.
-She suggests, she does not tell."
-Anna found herself kneeling, back straight, gaze turned down, hands folded in her lap or behind.
-This was alien behavior to her real-life experiences where she was pushed to excel and innovate.
-Now, her subconscious mind was being invaded with calls for silence, compliance and submission.
+The moment she gave in the first time, the second layer of assault became apparent and it made her sick in a different way.
 
-Even her college professors, once champions of her academic pursuits, appeared in her dreams advising subservience.
-"A woman must know her place, Anna, to support, not to lead," they counseled.
-"A woman's duties come before her interests; she has to fill her role before she can think about her leisure."
-These dream-induced admonitions felt like chains, binding and constricting, pushing her towards a dreaded conformity.
+Every time cooperated, even for a second, the punishment stopped.
+Pressure eased and voices gentled.
+Hands that had been restraining became soothing. Praise entered where correction had been. She would feel the release first in her chest, then lower, until relief tipped into unmistakable pleasure.
 
-Each dream was a variation on the same theme, relentlessly eroding her sense of self,
-urging her to doubt, to conform, to comply, to serve and submit.
-They seemed designed to rewrite who she was, each iteration a little stronger, each repetition slowly wearing her down.
-Despite her inner fury and feminist rage, 
-the sickness and the dreams' continuous barrage ate away her strength,
-making resistance an exhausting struggle for each shred of her identity.
-In her weakest moments, she yearned desperately for just a brief respite from this mental and physical torment.
-Slowly, her initial rage morphed into weary resignation and, eventually, into reluctant acceptance. 
-As soon as she surrendered, the tone of her dreams shifted dramatically.
-The terrifying nightmares transformed into seemingly delightful fairy tales where Anna found joy in servitude,
-discovering perverse satisfaction in her own submission.
-It felt good to give in and to obey, she wanted more of that.
-As Anna began to embrace the roles modeled in her dreams,
-her emotional response intensified to actual arousal, lust and pleasure.
-Obedience was no longer just a concept—it had become a source of pleasure.
-When she awoke, she found herself in a damp spot, and more wetness was leaking from between her legs.
+Once she found herself kneeling before a faceless figure while someone behind her adjusted her posture with light pressure between her shoulders and at the back of her neck.
+"There," said a woman's voice, satisfied. "Much prettier when you listen."
 
-The relentless assault of these dreams left Anna feeling disoriented and unanchored.
-She did not remember where she was, what she had to do, or even who she was,
-struggling to cling to her core beliefs.
-Each act of resistance only resulted in the dreams
-withdrawing their induced pleasures and finding new ways to wear her down,
-leaving her exhausted and vulnerable.
-The dreams evolved, shifting tactics and angles, 
-requiring her to spend effort on her resistance, sapping ever more energy.
-Yet their central message remained unchanged: they demanded her compliance and obedience.
-The dreams methodically worked to mute her individuality and independence,
-aiming to reshape her into a docile, submissive entity.
-The dreams sought to strip away her autonomy and mold her into silence and submission.
-And this, to Anna, was the true horror, the erosion of her self and the potential loss of her identity,
-far worse than any of the physiological aspects of the sickness.
+The word prettier moved through her like heat.
+She woke with one hand between her thighs and snatched it away as if burned.
+
+The wetness there was real.
+
+Another sleep, another variation.
+She was exhausted beyond fury now, stretched thin by fever and pain and the raw humiliating fact that the dreams had learned what bought compliance fastest.
+
+They stopped trying to persuade her with duty alone.
+They offered reward.
+
+Yield and the room warms.
+Obey and the headache backs off a little.
+Kneel... someone strokes your hair.
+Accept the blouse, the collar, the corrected posture, the lowered gaze, and the terrible internal friction goes quiet.
+
+She knew, even in the dream, what was happening.
+Operant Conditioning using aversion and relief.
+Pleasure reinforcement layered over identity attack with almost elegant precision.
+
+Knowing it did nothing.
+
+That was part of the horror too.
+Her scientific mind stayed online just enough to narrate the mechanism while the rest of her was being worked over by it.
+
+By Monday she no longer trusted the edges of waking.
+
+The apartment smelled of sweat, damp sheets, stomach acid, and sour medicinal taste of things she swallowed, but that didn't help. Her body had become an unreliable object she dragged from one surface to another. Hair collected in the shower drain. The skin between her legs stayed oversensitive and inflamed. Her breasts ached. The fuzz on her arms was gone completely by now.
+
+When she slept, the dreams were waiting with less effort spent on threats now and more on seduction.
+
+Not kindness, but something worse: Intimacy engineered for surrender.
+
+In one dream she stood in front of a mirror while unseen hands buttoned her into a high-necked blouse she could not remove on her own. She should have fought. Instead she watched her own face change as each fastening closed, watched fear drain down into stillness, then into shameful anticipation. By the time the last button was done, she was standing on the edge of want so sharp it felt like illness all by itself.
+
+She woke gasping, thighs pressed together, the bed damp under her again.
+
+For a few seconds she could not remember where she was.
+The room looked wrong.
+The curtains, the chair, the glass of water by the bed, all of it slightly estranged.
+
+Then memory returned in pieces.
+Geneva.
+Apartment.
+Virus.
+Sonia.
+
+Anna pressed the heels of her hands into her eyes until sparks flared behind them.
+The fever had not only made her sick.
+It was teaching her.
+Wearing grooves into thought.
+Attaching comfort to obedience.
+Trying on versions of her until it found the one that would hold.
+
+That was the true obscenity of it.
+Not that she was ill.
+Not even that her body was changing in ways she could feel without yet fully seeing.
+
+There was that something inside her that had started playing to her surrender.

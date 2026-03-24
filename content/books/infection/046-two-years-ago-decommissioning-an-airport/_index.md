@@ -3,6 +3,7 @@ title: "Chapter 46: Two years ago: Decommissioning an Airport"
 weight: 46
 ---
 
+
 # Two years ago: Decommissioning an Airport
 
 Philippe stood by the large window of the villa,
@@ -45,26 +46,14 @@ They’re reducing it to a heliport, but the land is heavily polluted.
 It needs a new purpose.”
 
 Mara listened attentively.
-After thinking for a moment, she signed carefully, “That sounds like a significant challenge, Sir.
-If it pleases you, perhaps we could consider turning the area into a series of connected parks and community gardens?
-We might use modern biotechnology to help extract the pollutants from the soil.
-Over time, we could transform the concrete wasteland into green spaces—edible garden patches,
-small parks, areas that would serve the community.”
+After thinking for a moment, she signed carefully. *That sounds like a significant challenge, Sir. If it pleases you, perhaps the area might become a series of connected parks and community gardens. Modern biotechnology could help draw pollutants from the soil. In time, the concrete wasteland could become green space: edible plots, small parks, places that serve the community.*
 
 Philippe watched her, nodding slightly. “And how would you propose to manage this?”
 
 Mara signed again, in precise and respectful movements.
-“Sir, if it suits your plans,
-the project could also serve as a place of learning and rehabilitation for women like myself,
-who might be struggling to adjust.
-These women could work in the garden, finding a sense of purpose within a structured environment.
-It would give them clear goals and expectations, something to focus on.
-Of course, it would require careful planning and oversight.”
+*Sir, if it suits your plans, the project could also serve as a place of learning and rehabilitation for women like this one who are struggling to adjust. Such women could work in the garden and find purpose within a structured environment. It would give them clear goals and expectations, something to focus on. Of course, it would require careful planning and oversight.*
 
-She paused, then added, “I could draft a proposal.
-If it finds your approval, Sir, you could present it to the city council.
-I believe we could secure funding through national sustainability programs.
-If you think it’s appropriate, this project could align with both environmental and social needs.”
+She paused, then added, *This one could draft a proposal. If it meets with Sir's approval, Sir could present it to the city council. Funding might be secured through national sustainability programs. If Sir considers it appropriate, the project could align environmental and social needs.*
 
 Philippe considered her words, then smiled approvingly.
 “That sounds promising, Mara.
@@ -75,10 +64,7 @@ and ensure the project aligns with societal expectations.
 Maybe I will use you to convince a few key people.
 Are you prepared to handle that?”
 
-Mara nodded, her hands moving in a graceful sign of agreement.
-“Yes, Sir.
-I would be honored to take on the task.
-I believe this project could truly benefit the community.”
+Mara nodded and signed her agreement. *Yes, Sir. This one would be honored to take on the task. She believes the project could truly benefit the community.*
 
 Philippe placed a hand on her shoulder.
 “Good girl.
@@ -86,7 +72,7 @@ Start on the proposals.
 This is your project, but I’ll support you where needed.
 Make it count.”
 
-Mara signed her thanks and curtsied. “Thank you, Sir. I’ll begin immediately.”
+Mara signed her thanks and curtsied. *Thank you, Sir. This one will begin at once.*
 
 With that, Philippe turned and left her to her thoughts,
 confident that Mara’s brilliant mind would bring this project to life,
@@ -118,17 +104,12 @@ Then he squatted down in front of her, looking her in the eye.
 "Now, what is all this?" he asked.
 
 Mara’s hands moved gracefully as she signed, her tone polite and hopeful.
-"Sir, I’ve prepared everything needed for the community garden project.
-These folders contain proposals, strategies, and plans.
-If you approve, you can use all of this to move the project forward.
-I wanted to ensure everything was ready for your review."
+*Sir, everything needed for the community garden project has been prepared. These folders contain proposals, strategies, and plans. If Sir approves, all of it may be used to move the project forward. This one wished to make everything ready for review.*
 
 Philippe nodded, watching her closely. "And locking yourself like this?"
 
 Mara’s hands hesitated for just a moment before continuing.
-"Sir, I wanted to make sure I couldn’t take any action without your permission,
-ensuring I would stick to form.
-This was the only way I could think of to absolutely ensure that."
+*Sir, this one wanted to make sure she could take no action without Sir's permission, so that she would keep proper form. This was the only way she could think of to ensure it absolutely.*
 
 Philippe considered her response, his gaze softening slightly.
 She had gone above and beyond, not just in her work but in her commitment to following his guidance.
@@ -136,15 +117,14 @@ She had gone above and beyond, not just in her work but in her commitment to fol
 "You’ve done an exceptional job, Mara," he said, his voice steady. "This is impressive. You’ve thought of everything."
 
 Mara signed her thanks, her movements full of quiet hope.
-"Thank you, Sir.
-I just want to help make this project a success."
+*Thank you, Sir. This one only wants to help make the project a success.*
 
 Philippe smiled, finally releasing her other restraints.
 "You’ve certainly done your part.
 Let’s move forward with this.
 You’ve earned it."
 
-Mara got up, then curtsied, her hands signing. "Thank you, Sir. I’m ready to follow your lead."
+Mara rose, then curtsied, signing. *Thank you, Sir. This one is ready to follow Sir's lead.*
 
 The following weeks were a whirlwind of activity for Philippe.
 He sent out proposals, scheduled appointments,

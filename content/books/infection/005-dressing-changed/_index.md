@@ -3,195 +3,301 @@ title: "Chapter 5: Dressing Changed"
 weight: 5
 ---
 
+
 # Dressing Changed
 
-Freshly showered and, of course, giving in to the overwhelming compulsion to clean up the bathroom, 
-Anna finally made it into her bedroom.
-Again, the surrounding mess was unbearable,
-slowly reinforcing itself as an unshakable reality for her.
-Exhausted and unable to resist the compulsions, she gave in to the need to tidy up, again.
-Cleaning seemed less taxing than battling the overwhelming urge for orderliness,
-and she needed to conserve her strength to fight larger battles.
+By the time Anna got out of the shower, she had already cleaned the bathroom again.
 
-As she moved through the now orderly room, still naked, 
-she approached her wardrobe and eyed her clothes with a sense of detachment.
-They seemed like they belonged to someone else.
-Anna had always chosen her attire carefully, but now, none of it felt right.
-The entity in her mind, which disturbingly by now felt familiar, was broadening its influence.
+Of course she had.
+There had been droplets on the tiles, a streak on the mirror, damp prints on the floor.
+She had seen them and known at once what would happen if she tried to leave them there. The pressure would start. The wrongness. The soft internal twisting that made disobedience feel filthier than the mess itself.
 
-She reached for a pair of dark comfortable pants, a choice that had once been automatic.
-But something inside her gave her a hard "no."
-A visceral sense of rejection and revulsion washed over her, so intense that she almost retched.
-The mere thought of wearing pants became unbearable, she shivered.
-Even visualizing herself putting them on was distressingly difficult.
-Memories flooded her mind, distorted and possibly false, she could no longer tell.
-She recalled a moment from her childhood, her mother catching her trying on pants, the ensuing guilt and shame.
-Pants were wrong, not meant for her.
-She remembered an incident from school where a girl was ridiculed for wearing pants.
-The deeply ingrained belief that "Women do not wear pants"
-felt absolute.
-Though she knew these memories might not be real,
-the emotions washing over her felt undeniably authentic and shaped her reactions.
+So she had wiped the mirror.
+Dried the tiles.
+Straightened the bottles on the shelf.
+Earned the low, warm easing that came afterward.
 
-Instead, she found herself drawn to dresses and skirts.
-This change was unwanted, but it was happening.
-Echoes of dreams haunted her, where her mother, her voice twisted by the virus,
-chastised her for not being feminine enough.
-The words "Neat, feminine, pretty" reverberated in her mind.
-Anna wanted to resist, to dress as she once did, to maintain control over her body and her identity.
-She longed to reclaim her autonomy and identity.
-But standing in front of the mirror, holding the pants, something felt profoundly wrong.
-The feeling was terrifying, repulsive, and utterly alien.
-Her reflection seemed to mock her, a stark reminder of how deeply the virus had infiltrated her sense of self.
+That was how it worked now.
+Correct.
+Reward.
+Again.
 
-Every time Anna attempted to wear her usual clothes,
-a strong wave of revulsion accompanied by an artificial desire for "neat, feminine, pretty" overwhelmed her.
-It soon became not only impossible but unthinkable to wear them again,
-they no longer represented "her."
-She was Changed, and she had to mold herself to the Change.
+Naked, damp, exhausted, she went to the bedroom and stood in front of the open wardrobe.
 
-Tears streaming down her face, and shuddering involuntarily,
-she eventually surrendered.
-She selected a dress in a rich, deep rust red,
-its skirt billowing to a full sweep and its sleeves cut at three-quarter length.
-A crisp white collar set off the dress, offering a striking contrast.
-Paired with simple pumps of a moderate height and delicate nude stockings held by a shaping suspender belt,
-this ensemble was one she had worn only once before—a keepsake from a failed date that had ended disastrously.
-But for Anna, who normally wore running shoes and sporty clothing, hardly ever skirts or dresses,
-it was still a departure in style.
-But as she pulled the outfit from the back of her closet and stepped into it, a sense of rightness washed over her.
-In this dress, she felt pretty, as if it had always been meant for her.
+Her clothes looked wrong before she even touched them.
+Estranged.
+Running tops.
+Soft sweaters.
+Dark blazers.
+Trousers she had once liked for their clean line and ease.
 
-The clamp of dread around her mind loosened and she could feel joy again.
-But putting on these clothes on didn't feel like her own choice.
-It was as though she was being coerced into them, layer by layer.
-Anna, with her background in biology, recognized this as operant conditioning.
-But she also knew that it did not matter if she recognized it for what it was.
-It would still work.
-The corrections felt genuine, the rewards compelling.
-Despite her awareness, the conditioning was reshaping her,
-breaking her down and rebuilding her into the image it desired.
-She was adapting, slowly but inevitably.
+Anna reached for the trousers first because she still wanted one clean victory somewhere.
 
-Now dressed in the attire dictated by the virus,
-which was increasingly defining her own standards, she faced herself in the mirror.
-The Barbie-like version of herself stared back,
-dressed in a feminine A-line dress that stretched tightly over her enhanced bustline, her legs sheathed in nylon.
+Her stomach turned.
+Her mouth flooded.
+Shame climbed into her chest with such force that she had to brace one hand against the wardrobe door.
+The cloth in her fingers felt contaminated, indecent, impossible.
 
-Looking at her reflection, her face stood out. 
-She was flat-faced and ugly.
-The next compulsion arose, triggering another phase of her transformation.
-The feeling was almost becoming familiar now, and while she resented it,
-she had already learned to listen to it and follow the suggestions to find out in which direction the reward lay.
+No.
+No, not that.
+Not on you.
 
-She needed to add makeup, something she rarely did before.
-As she started, her hands moved on their own.
-This was more than a conditioning compulsion, this was knowledge.
-None that she picked up consciously in her life before, but it was in her mind, ready for use.
-She put on foundation like an expert, even though she didn't remember learning how.
-Her face changed with each step.
-She hid signs of sickness and added color to her cheeks.
-Eyeliner and mascara made her eyes stand out.
-It all happened without her thinking about it, like running on a program that she did not write.
-It felt bizarre.
-Anna knew she wasn't skilled with makeup, yet her hands executed each step perfectly.
-She was merely a spectator in her own body, watching as if another person completed the task,
-but that other person was undeniably herself, or a version of herself she'd never known who was at work.
+She shut her eyes.
+The thought was not fully verbal at first. It came as a refusal in the body and then clothed itself in language she would once have mocked.
 
-She finished with lipstick, choosing a shade that seemed uncannily perfect.
-It was as if someone else knew exactly what would suit her, crafting an image of her that she hadn't chosen.
-Her makeup looked professional, and it was unsettling to see her face like this.
-But the moment she acknowledged this strangeness as being herself, the reward surged through her.
-She was pretty.
-This is what she should look like.
-This was right.
-Before was wrong.
+Women do not wear pants.
+Nice girls do not wear pants.
+You know better than this.
 
-She should have been happy, but she wasn't: This wasn't what she wanted.
-Looking at herself left her with a feeling of dissonance.
-She was steadily losing control over her self-identity, morphing into someone else entirely.
-The person who looked back at her from the mirror appeared neat and pretty, but that was not the real Anna.
-However, it seemed inevitable that soon it would be.
-Wrong feels bad, right feels good.
+Memories rose with it.
+A version of childhood she did not trust.
+Her mother taking trousers from her hands with quiet disappointment.
+Girls at school corrected for dressing improperly.
+An old lesson about dignity, modesty, feminine self-respect.
 
-Each step along the transformation planned for her made her feel good.
-It only felt wrong initially.
-Soon "before" would feel wrong.
+False memories. Probably.
+Counterfeit.
+Inserted.
 
-A feeling of satisfaction and rightness emanated from a place within her that she neither recognized nor understood,
-engulfing her every time she succumbed to and acted on the implanted urges and desires.
-She no longer knew herself.
-This new compliance rewrote her essence,
-disconnecting her from who she had once been and anchoring her to this unfamiliar, manufactured identity.
+The shame was real anyway.
 
-Back in her room, Anna glanced at her old clothes and felt an overwhelming sense of nausea.
-The combination of her conditioned urges was undeniably effective:
-She had once cherished these garments, but now she despised them for not being "feminine" enough,
-and found she could no longer even bear to look at them.
-They also looked messy, and she was already familiar with her new acquired tick of keeping things orderly.
-She felt an irresistible urge to discard them.
-She grabbed several large bags, stuffing her once-beloved clothes into them with a sense of urgency.
-With each item she disposed of, it felt as though she was shedding pieces of her old identity.
-Every attempt to stop was met with increasing feelings of wrongness and disgust,
-escalating until she could no longer stand the emotional turmoil—or herself.
+Anna opened her eyes and stared at the trousers hanging from her hand.
+"They're mine."
 
-When she started the cleanup process again, she was rewarded.
-She felt waves of happiness and a rightness that bordered on the sensual.
-When she surrendered to these feelings, they morphed into actual pleasure.
-Disposing of these clothes and the attached memories felt liberating,
-as if she were unburdening herself of a heavy weight.
-She had to get rid of them and the memories attached to them as well to become whole again.
+The pressure answered by tightening.
 
-Despite recognizing that these urges to transform her lifestyle were not genuinely hers but the result of manipulation,
-the feelings they evoked were intensely real.
-Even as this awareness flickered within her, it was overshadowed by her focus on acquiring new,
-"appropriate" clothes.
-Her induced reward feelings were powerfully distracting.
-She felt compelled to follow through,
-driven by the voice in her head, the distorted "memories" of proper behavior,
-and a corrupted sense of her education and upbringing that dictated what was "right."
-With each piece of her old wardrobe she packed away,
-her former self's resistance diminished, and her new, conditioned identity solidified.
-Having sorted her wardrobe into "acceptable"
-and "to discard" piles, Anna was eager to leave the house and drop off the bag of discarded clothing,
-fully submitting to the transformation she had been steered into.
+She could feel the alternatives waiting behind her, patient, certain, already selected.
 
-As Anna prepared to step outside, a new rule asserted herself.
-"It is improper for a woman to show bare hands or hair in public spaces or under the open sky."
-By now she had learned what would happen to her if she tried to counteract such an urge,
-and did not even try.
-She quickly grabbed long black satin gloves and her only suitable hat, a wide-brimmed one that,
-along with her dress, gave her an appearance reminiscent of the 1950s.
-The look made her strangely happy, but the source of this happiness also frightened her.
+Dress.
+Skirt.
+Neat.
+Feminine.
+Pretty.
 
-![](dressed-1.jpg)
+The words arrived with the awful calm of thoughts she might once have had on a cruel day in front of a mirror.
+
+You would feel better dressed properly.
+You know you would.
+You can stop forcing the wrong shape onto yourself.
+
+Anna put the trousers back as if they had burned her.
+
+At the rear of the wardrobe hung the rust-red dress she had worn exactly once on a date bad enough to sour the dress by association. White collar. Full skirt. Three-quarter sleeves. Something chosen long ago for an experiment in looking softer than she felt.
+
+Now felt right and fitting.
+
+She pulled it free and the agitation eased at once.
+Just a little.
+Enough to make her hate herself for noticing.
+
+"No."
+
+But her body had already begun to move.
+
+Stockings first.
+Her fingers fastened them to the suspender belt with a competence that no longer surprised her as much as it should have. Then the dress up over her altered body, the fabric settling over her hips and waist with an intimate rightness that made her breath catch. Pumps last.
+
+When the collar closed at her throat, the relief spread through her in a long, low wave.
+
+Her shoulders dropped before she meant them to.
+The cramped knot under her ribs loosened.
+Pleasure followed a second later, lighter than the shower reward, sweeter, more dangerous.
+
+There.
+Better.
+You can feel it.
+You did right.
+Right feels good.
+
+Anna stood very still inside the dress.
+It should have felt like costume.
+But she did right.
+And right felt good.
+
+That was the obscenity.
+
+She looked up at the mirror.
+
+The woman staring back at her was too composed for someone still shaking off a fever. The dress sat neatly across fuller breasts and a narrower waist. The skirt softened her. Ordered her. Made her look as if she belonged to an older, more disciplined version of the world.
+
+Her bare face ruined the effect.
+
+The knowledge arrived immediately, with the same polished certainty as everything else.
+
+Not ruined.
+Unfinished.
+
+The need for makeup passed through her body like another switch being thrown.
+Anna actually laughed once under her breath, short and humorless, because of course there was another layer.
+
+Her hands moved before her resistance organized itself.
+
+Foundation.
+Powder.
+Color at the cheeks.
+Darkness at the lashes.
+
+She watched the process happen almost from behind herself, seeing each small correction land before she had fully decided to allow it. This was not only compulsion. This was installed skill. Her fingers knew exactly how much product to use, where to place it, how to shift the lines of her face toward polish and softness and femininity.
+
+The thought clicked through her with exhausted clarity.
+Of course it was.
+More conditioning.
+More useful knowledge pushed into her and made to feel like recovery.
+
+She tried once to stop halfway through.
+Her hand hung suspended near her face while distress climbed abruptly through her nerves, hot and needling and irrationally sharp.
+
+Finish.
+Then you can breathe again.
+Finish and it will settle.
+
+She finished.
+
+Lipstick last, in a shade she would never have chosen for herself and yet recognized at once as right for this face.
+
+When she looked up, the reward struck harder.
+
+Pretty.
+There you are.
+You can see it now.
+
+Anna's thighs pressed together of their own accord.
+She went cold with shame even as pleasure moved through her.
+
+That face in the mirror was hers and not hers, familiar bone structure reinterpreted through color, line, and a standard she despised because she could see exactly how it flattered her. She looked healthy. Poised. Desirable. She looked like what someone had wanted women to become and like what part of her was already learning to want.
+
+"This isn't me."
+
+The answer came gently.
+
+You can say that for now.
+You can take your time.
+You can still see how much better this looks.
+
+Anna's eyes filled.
+She wiped the tears away before they could ruin anything and felt the vicious little twist of satisfaction when the makeup remained intact.
+
+The wardrobe drew her back next.
+
+The old clothes had become unbearable to look at.
+Viscerally, in the body, and not just in theory: The sight of them made nausea turn over in her stomach.
+Too loose, careless, masculine, messy.
+
+She grabbed one of her old sweaters and tried to hold onto the memory attached to it. Winter train platforms. Early mornings. Sonia laughing at something filthy over bad station coffee. Her own shoulders, her own life, her own speed.
+
+For a second the memory held.
+
+Then the new judgment slid over it.
+Unfeminine, untidy and wrong for you.
+
+Anna made a noise in her throat and threw the sweater onto the bed as if distance alone might break the spell.
+Not enough. 
+The longer she looked at the old wardrobe, the more the pressure built.
+
+Get rid of it.
+You already know you will never want to wear it again.
+You can feel that.
+It is a certainity.
+You can clean up, remove clutter, and you will feel better once it is out of the room.
+
+She found large bags and started packing with a frantic economy she did not trust.
+Tops.
+Trousers.
+Jackets.
+Practical shoes.
+Anything that belonged to the life before the fever and before the mirror and before the dress now hanging correctly from her body.
+
+Each time something landed in the bag, the pressure eased.
+Each time she paused, it came back worse.
+
+There was no mystery left in the mechanism by then.
+Action.
+Relief.
+Compliance.
+Reward.
+
+Knowing the sequence changed nothing.
+If anything, knowing it and obeying anyway made her feel more divided.
+
+Halfway through she stopped with a pair of running shoes in her hands.
+They were dirty at the edges, worn into the shape of her stride, hers in a way the new body no longer entirely was.
+
+She stared at them until her vision blurred.
+
+The voice kept close and reasonable.
+You don't have to do all of it at once.
+You can start with what is obviously wrong.
+You can keep what is proper.
+You can let go of what no longer fits.
+
+It was a lie, or nearly a lie.
+It wanted all of it.
+She knew that.
+But the lie came wrapped in mercy and she was weak enough to accept mercy where she could get it.
+
+The shoes went into the bag.
+
+Relief flooded her so strongly it tipped toward sensuality.
+The breath left her body in a shudder.
+For one hideous moment the act of purging the old wardrobe felt intimate, cleansing, nearly orgasmic in the way a long-denied scratch can feel holy when finally touched.
+
+Anna leaned over the bed with both hands pressed into the mattress and waited for the wave to pass.
+
+By the time she tied the bags shut, the room had been divided cleanly.
+Acceptable.
+Unacceptable.
+Before.
+After.
+
+She hated the neatness of that division.
+She also could not imagine living another hour with the rejected clothes still there.
+
+As she turned toward the door, another rule settled into place.
+Smooth and reasonable, already half accepted.
+
+A woman does not go outside barehanded.
+A woman does not uncover her hair in public.
+You know that.
+You can dress properly.
+
+Anna shut her eyes.
+There was no strength left for this one.
+
+She found long black satin gloves in a drawer and pulled them on finger by finger. Then the wide-brimmed hat. The final effect in the mirror should have been absurd.
+
+It was elegant, restrained and comfortingly complete.
+
+And the image frightened her because of how fully it landed.
+
+![](005-dressing-changed.jpg)
 
 *Anna was ready to go out and get rid of her old, ungainly clothing.*
 
-As Anna carried out her bags of old clothing,
-her old and new selves were battling for control, and the "new" Anna seemed to be gaining the upper hand.
-She thought she should feel a mix of sadness and fear,
-but there was only a short period of unsettling disorientation, and then relief.
-Dropping off the bags felt like she was not just discarding clothes but also shedding parts of her former self.
+The bags dragged against her legs as she walked them to the donation bin.
+The dress moved around her calves. The gloves changed how every surface felt. Her shoes clicked in a measured rhythm that made haste impossible and posture unavoidable.
 
-The bin for old clothing was overflowing.
-She was not the only person getting rid of a lot of wardrobe it seemed,
-and it was all women's clothing.
-Repulsive women's clothing, of the same kind she just ridded herself of.
+By the time she reached the overflowing containers, she realized she was not alone.
 
-In fact, she encountered another woman similarly attired in a dress, gloves, hat, and with perfect makeup.
-Like Anna, the woman looked less like she was expressing a unique fashion sense
-and more like she was wearing a uniform of imposed femininity.
+Another woman was there in a dress, gloves, hat, and makeup that had the same polished finality as Anna's own. The colors were different. The structure was not. She looked less like a person expressing taste than like a version produced from the same instructions.
+
 Same army, different color.
-This sight might have comforted Anna, reassuring her that she was not the only Changed.
-However, it only deepened her sense of horror.
-The virus was standardizing everyone, erasing their individuality,
-and pressing them into outdated, idealized roles of retrograde femininity.
+For a second she thought the sight might comfort her. Proof she was not uniquely trapped. Proof the fever had not singled her out for some private humiliation.
 
-No.
-That was wrong thinking.
-The virus fixed people, made them happy, reminded them how things had to be done properly.
-It righted the world.
-Anna wanted to speak to the woman, sharing her experience,
-but found herself unable to break through the compelling urges that dominated her actions.
-She had other tasks that felt urgent, an overwhelming need to shop for more "appropriate" clothes.
+Instead the horror widened when she realized that this was happening at scale.
+It was large scale social change.
+
+Anna fed the bags into the bin one by one.
+Each release brought a brief wrench of grief and then the now-familiar easing, so that by the time the last bag was gone she could no longer tell where loss ended and relief began.
+
+She looked at the other woman again.
+Wanted to speak.
+Wanted to ask whether it had happened this way for her too, whether she had also found herself being paid for surrender in little waves of warmth and quietness and shame.
+
+The moment passed.
+The urgency of the next task was already rising.
+
+More clothes.
+Proper clothes.
+Enough to match what she was becoming.
+
+She turned away from the bins and started toward the street, horrified, half aroused by her own compliance, and unable to stop moving in the direction the thing inside her had chosen.

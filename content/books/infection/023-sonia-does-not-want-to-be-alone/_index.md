@@ -3,255 +3,379 @@ title: "Chapter 23: Sonia does not want to be alone"
 weight: 23 
 ---
 
-# Sonia does not want to be alone
 
-Sonia resumed the conversation.
-"Anna, these past months... they've been transformative, sure," Sonia began,
-her hands hesitantly mirroring the signs she still felt foreign.
-"There's a certain elegance to the rituals, to the hand-dancing.
-But it feels like I'm losing a part of myself—my voice, my autonomy."
+# Sonia Does Not Want To Be Alone
 
-Anna's fingers fluttered with a gentle reassurance.
-"Sonia, you've never truly been autonomous; none of us are.
-Being part of a society means we rely on each other.
-You've simply stopped fighting that realization.
-Remember our previous conversation?
-You're not losing yourself; you're discovering how to be an active part of our collective rhythm.
-It's beautiful, isn't it?"
+Sonia left the vial in the back of her refrigerator behind a jar of mustard and half a bottle of white wine she had been meaning to throw out for months.
 
-Sonia's gaze was pensive as she replied.
-"It's… different.
-The support from men, the way they anticipate needs—it's a ballet of mutual support, yes.
-But Anna, the idea of being owned, being ‘Julien Moreau's Anna'… It feels like a step back."
+That did not make it less present.
 
-Anna's hands conveyed her response with careful precision.
-"In our society, Sonia,
-embracing our roles and accepting the leadership of our guardians—whether a father,
-a husband, or an eldest son—is essential.
-They guide us, ensuring our actions reflect well on our family, protecting the honor of our house."
+The knowledge of it sat in the apartment like another person. Every time she opened the fridge she saw the little glass promise tucked in the corner and felt the same nauseating pull. Relief. Defeat. Curiosity. She stopped opening the refrigerator unless she absolutely had to.
 
-"But where does my individuality fit into this?"
-Sonia's hands moved with growing confidence as she absorbed the nuances of the Changed language.
-"If I'm just living out a role, am I not sacrificing something essential about myself?"
+Three days later she was back in a privacy cabin with Anna.
 
-Anna's signs were firm yet soothing.
-"Our individuality is there, within the boundaries of our roles.
-We believe in karma, in the impact of our actions beyond just this life.
-Living well within our roles now contributes to harmony across lifetimes."
+Not because she had changed her mind about the vial.
 
-Sonia mulled over Anna's words, her skepticism lingering.
-"So you find fulfillment by excelling within these constraints?
-That's enough for you?"
+Because she had begun to realize that the vial was not the only answer the city was offering her.
 
-"Yes," Anna signed, her expression serene.
-"It's about contributing to something greater than ourselves.
-This is where I find peace.
-Remember, nobody exists alone.
-We thrive through our connections and the roles we play."
+Anna had already removed her mask by the time Sonia entered. She sat with tea and a plate of sliced fruit untouched in front of her, posture still perfect even inside the hidden little room where women were allowed to unfasten themselves enough to eat. Sonia locked the cabin door, set down her bag, and pulled her own mask off with more force than elegance.
 
-"And this obedience?"
-Sonia asked, her curiosity piqued.
-"If I were to consider this, to step into a relationship, what should I expect?
-Would I have to obey without question?"
+Anna noticed at once.
 
-"Yes.
-That's the essence of our dynamic," Anna explained, her gestures patient and clear.
-"A Changed man respects and cares deeply.
-Julien, for example, he would never misuse his role.
-He is as bound by the conditioning of the virus as I am.
-He acts with my best interests at heart, guided by the same principles that guide me."
+"Bad day?"
 
-Sonia sighed, her signs slowing as she considered the profound shift in perspective.
-"It's a lot to take in.
-This way of living,
-it's about more than just obedience—it's about finding a new form of freedom within the structure, isn't it?"
+Sonia sat.
 
-Anna nodded, her hands showing a warm approval.
-"Exactly, Sonia.
-It's about partnership and respect within the framework we've embraced.
-It might seem like a leap of faith from the outside, but within it, there's a profound sense of belonging and purpose."
+"Clarifying day."
 
-Sonia's hands fluttered with unease as she considered Anna's words.
-"But what if he's wrong?
-What if he asks something of you that's not in your best interest?" she signed, her movements sharp with concern.
+Anna waited.
 
-Anna's response was fluid and reassuring.
-"Julien and I are both conditioned to uphold our roles, Sonia.
-His decisions are always made with my well-being in mind,
-as mine are to respect and follow his lead," she explained,
-her hands painting a picture of mutual trust and responsibility.
-"It's not just about obedience; it's about creating a balanced interdependence that ensures both of our needs are met."
+That was one of the things Sonia both loved and hated now. Anna had become very good at waiting in a way that made the other person either speak honestly or hear herself refusing to.
 
-Reflecting on her experiences, Sonia slowly signed, "I've never felt the constraints of my attire when I'm with others.
-There's always someone to assist, making me feel supported rather than restricted."
-She paused, a new understanding dawning on her.
-"Being alone is what really makes me feel like I'm dressed in a cage."
+"I don't want to be alone," Sonia said.
 
-Anna nodded, her hands moving with grace.
-"Exactly, Sonia.
-In our society, being alone is unnatural.
-We thrive on the connections that bind us, the roles that define our interactions.
-Julien's presence in my life isn't just about control; it's about providing the support that complements my role,
-ensuring I never have to face challenges alone."
+The words changed the air between them.
 
-Sonia's expression softened as she absorbed Anna's explanation, her signs becoming more thoughtful.
-"So, your relationship is a reflection of how our entire society functions—always someone to assist, 
-to support, within the roles we're given," she mused, her
-skepticism giving way to a cautious curiosity about the structure 
-that defined Anna's life and perhaps, one day, could define hers too.
+Anna did not look surprised. Only gentler.
 
-Sonia raised an eyebrow, her hands forming the question with a hesitant grace.
-"And what about resistance?
-If someone doesn't fit into these neat roles?"
+"No," she said softly. "I didn't think you did."
 
-Anna's gestures slowed, her expression serious as she replied.
-"Resistance does happen, and it leads to social pressure and, if necessary, correction.
-You've felt it yourself, Sonia, when you didn't conform to our dress codes.
-That pressure is how we maintain order."
+Sonia let out a short breath.
 
-Sonia's curiosity deepened, her movements sharp. "Correction? You mean, like punishment?"
+"That's infuriating."
 
-Anna's reply was firm, yet gentle, emphasizing her choice of words.
-"Not punishment, Sonia.
-Correction.
-It's about realignment and growth, not revenge.
-For instance, if I were to pain someone—which I wouldn't—Julien might correct me by causing me pain, like spanking,
-to specifically address that behavior.
-The correction matches the issue."
+"Probably."
 
-A frown crossed Sonia's features, communicated through her tentative signs. "So, Julien has corrected you before?"
+Outside the cabin, faint through the walls, came the muted life of the café: cups set down, footsteps, a burst of laughter cut short by the closed little world they were sitting in.
 
-"Yes," Anna signed back, her composure unshaken.
-"Correction should directly relate to the problem.
-It's very structured.
-Once, I performed my household duties poorly and Julien corrected me.
-I had to explain what I did wrong to show I understood the problem,
-had to explain specifically what I would do differently in the future and thank him for the correction.
-After redoing my tasks, he inspected them.
-It was harsh and very humiliating, but that's the point—it's designed to reinforce proper behavior."
+Sonia looked at her tea instead of at Anna.
 
-Sonia absorbed the information, her hands moving slowly.
-"That sounds intense.
-Harsh and humiliating?
-How do you accept that?"
+"I've spent months telling myself the problem was ideology. Coercion. The city. The clothes. The rules. And it is those things." She rubbed one thumb against the side of her cup. "But that isn't the whole problem."
 
-Anna's hands moved with conviction.
-"It was difficult at first, but it's effective.
-I now pay much better attention to my duties.
-The humiliation helps ensure the lesson sticks.
-It's about embracing our roles fully,
-ensuring we don't deviate from the behaviors that maintain the harmony of our society."
+Anna remained quiet.
 
-Reflective, Sonia's gestures showed a mix of apprehension and understanding.
-"I see.
-It's a comprehensive system, designed to make sure everyone plays their part correctly."
+"The whole problem," Sonia said, "is that public life is becoming easier than private life."
 
-Anna nodded, her hand-dancing smooth and confident.
-"Exactly.
-It may seem rigid from the outside, but it's what underpins our peace and order.
-Knowing our roles and the expectations that accompany them helps us function as a cohesive community."
+That got a visible reaction. Not triumph. Recognition.
 
-Sonia shifted uneasily,
-her hands weaving a hesitant dance as she broached the subject that both intrigued and unnerved her.
-"So, if I choose to be with someone here, he'd expect obedience, and he'd... correct me if I didn't comply?"
+"Go on."
 
-Anna's hands moved gracefully, affirming the reality within their society.
-"Yes, that's how it works.
-But courtship is crucial—it's when you understand if there can truly be a partnership.
-It's not just about submission, Sonia.
-It's about mutual respect and finding someone who values you."
+Sonia almost told her to go to hell for sounding so calm, but the calm was exactly why she had come.
 
-She continued, her gestures detailed and deliberate.
-"Watch how a man treats others, especially those who serve him.
-Does he respect them?
-Is he considerate?
-These are signs of his true character.
-Men must control their impulses and interactions; this is key."
+"At work, in the street, on the tram, in shops, everywhere, someone is there. Someone notices. Someone adjusts, helps, anticipates, makes space. It's the men around us, and I hate how much I notice that." She glanced up at Anna at last. "Then I come home and it's just me and the mask in the drawer and the corset on the chair and that ridiculous little vial in the fridge, and the apartment feels..."
 
-"Notice the little things," Anna advised.
-"Does he remember what you like, what you don't?
-How does he make space for you in his life?
-It's about him welcoming you into his world, not just leading it."
+She stopped.
 
-Sonia absorbed Anna's signs, her own hands mimicking the movements almost subconsciously.
-"It's a lot to think about.
-But... there's something appealing about it.
-I guess part of me even misses the... structure, the clarity of roles I experienced while undercover."
+Anna did not rescue her from the sentence.
 
-Anna's hands softened, conveying warmth and understanding.
-"Exactly, Sonia.
-It's about finding someone who supports you, makes you feel safe, not constrained.
-Someone who guides but also protects.
-The right partner will make you feel cherished, not owned."
+"Empty?" Anna offered after a moment.
 
-Sonia's hands expressed a mix of relief and newfound curiosity.
-"Thank you, Anna.
-I'll consider this carefully.
-Maybe there's a way to find companionship without losing myself.
-Maybe… I am discovering a part of me I've been too afraid to acknowledge."
+"Wrong," Sonia said. "Too quiet. Like all the scaffolding disappears and I have to hold myself up alone again."
 
-Anna smiled through her gestures, her movements wrapping around Sonia's concerns with gentle reassurance.
-"Take your time, Sonia.
-Explore these feelings.
-The right path will reveal itself when you're ready to see it."
+Anna's expression softened with painful understanding.
 
-As they concluded their meeting, Sonia's mind raced with thoughts of potential futures,
-the notion of engaging in a Changed courtship slowly taking root amidst her longstanding beliefs.
+"Yes."
 
-Coming home, Sonia stepped out of her shoes, worked her hands out of her gloves,
-and finally removed the mask, glad to get rid of the gag in her mouth.
+That yes came from too far inside the life Sonia was trying to understand.
+
+"And before you say it, no, I am not asking whether swallowing your science project would fix it."
+
+Anna's mouth curved, just a little.
+
+"I wasn't going to say that."
+
+"Liar."
+
+"A little."
+
+It almost made Sonia smile.
+
+Almost.
+
+"What I am asking," she said, "is whether there is any version of this world where the answer isn't just total surrender to the virus."
+
+Anna leaned back slightly.
+
+"You mean relationally."
+
+"I mean as a person. With another person. Without having to drink anything out of a vial because I'm lonely."
+
+Anna let the words settle before answering.
+
+"Yes," she said. "There is."
+
+Sonia felt something inside her ease and tighten at once.
+
+"Then explain it to me like I'm not a tourist in your religion."
+
+Anna laughed very softly at that, then folded her hands.
+
+"All right. But it isn't a religion."
+
+"That sounded exactly like something someone in a religion would say."
+
+"Sonia."
+
+"Fine. Go on."
+
+Anna took a sip of tea.
+
+"The first thing is that you keep treating all of this as if the only options are total autonomy or total external control. That isn't how it feels from inside a good relationship here."
+
+"Good according to whom."
+
+"According to the woman living in it."
+
+That was fair enough to irritate Sonia.
+
+Anna continued before she could pounce on the phrasing.
+
+"Yes, there is hierarchy. Yes, a Changed man expects obedience. Yes, he may correct, direct, manage, and structure parts of a woman's life. None of that is trivial. But courtship exists because women still need to know what kind of man they are being asked to trust with all that power."
+
+Sonia sat very still.
+
+"And what am I meant to be looking for."
+
+Anna answered without hesitation.
+
+"How he handles power when he doesn't need to impress you."
+
+That was the first sentence of the conversation that sounded less like theory and more like something earned.
+
+"Meaning."
+
+"Watch him with waitresses. Junior staff. Older women. Men beneath him. Men above him. Does he become showy when he can dominate? Does he become sulky when he can't? Does he remember what makes other people comfortable, or only what flatters him." Anna touched the table lightly with two fingertips. "Does he notice your body as something he must manage responsibly, or only as something he wants."
+
+Sonia's thoughts went to Henry so fast it almost embarrassed her.
+
+Anna saw it.
+
+Of course she saw it.
+
+"There is someone."
+
+"Possibly."
+
+"Henry."
+
+Sonia gave her a look.
+
+"You're insufferable."
+
+"You have signed his name three times in conversation this month and acted as if you weren't."
+
+That shut Sonia up.
+
+Anna waited just long enough to make her answer.
+
+"Fine. Henry."
+
+The name sat between them differently once spoken plainly.
+
+Anna's gaze warmed.
+
+"Tell me."
+
+Sonia looked away first.
+
+"He keeps appearing."
+
+"That sounds ominous."
+
+"It is ominous. He's there when I need doors opened, files carried, chairs moved, books reached, logistics solved. He reads my signing faster than most men at work, and properly, not like he's waiting for speech to rescue it. He doesn't make a performance of helping. He just..." She made a helpless motion with one hand. "Fits himself into the gap before I have to ask."
+
+Anna listened with maddening patience.
+
+"How does he treat other women?"
+
+"The same way, more or less. Respectfully. Not flirtatiously. He doesn't get theatrical about it."
+
+"And men."
+
+"Well. Even when they're idiots."
+
+"Junior staff."
+
+"He's careful with them."
+
+"Staff in service roles."
+
+Sonia thought of Henry thanking a cleaner for retrieving a dropped folder instead of letting her hover awkwardly until he noticed. Thought of him holding a lift door for two interns and stepping back so they entered first without comment.
+
+"Also well."
+
+Anna nodded once, as if ticking something off an invisible list.
+
+"Good."
+
+"Good?" Sonia echoed. "That's all?"
+
+"No." Anna's mouth softened. "Not all. How does he make you feel."
+
+That was the question Sonia had been trying to avoid by turning Henry into a case study.
+
+"Supported," she said after a moment.
+
+Anna said nothing.
+
+"Seen," Sonia added, quieter now.
+
+Still Anna waited.
+
+Sonia looked down at her hands.
+
+"Managed, a little," she admitted. "And I don't know whether that alarms me or..." She stopped.
+
+"Or relieves you."
+
+Sonia met her eyes.
+
+"Yes."
+
+There was no point pretending otherwise in here.
+
+Anna spoke carefully.
+
+"Then what you are looking at is not only politics or social pressure. It is temperament. Need. Desire. All the things you have spent a long time sorting into acceptable and unacceptable categories."
+
+Sonia gave a small, humorless laugh.
+
+"You make it sound very tidy."
+
+"It isn't tidy." Anna's voice dropped. "It only becomes clearer when you stop lying to yourself about what feels good."
+
+That one hurt because it was aimed well.
+
+"And if what feels good is the sort of thing feminist mothers warn their daughters about from birth?"
+
+Anna's gaze held hers.
+
+"Then perhaps feminist mothers are capable of being wrong about some daughters."
+
+Sonia sat with that.
+
+Not because it convinced her.
+
+Because it did not bounce off.
+
+"All right," she said at last. "Suppose I entertained this. Not the vial. Henry."
+
+Anna nodded, serious again.
+
+"Then move slowly and pay attention."
+
+"To what."
+
+"Whether he makes space for your refusal."
+
+That surprised Sonia.
+
+"A Changed man."
+
+"A good one, yes." Anna leaned forward slightly. "Hierarchy here does not mean courtship begins with seizure. He should guide. Invite. Signal. Give you room to move toward him. If he crowds you too fast, if he wants obedience before trust, if he enjoys your uncertainty for its own sake, that matters."
+
+Sonia thought about Henry again. The way he helped. The way he watched. The way he never quite pressed.
+
+"And correction."
+
+Anna did not pretend not to understand the jump.
+
+"What about it."
+
+"You made it sound..." Sonia searched for a word that did not sound adolescent. "Structured."
+
+"It should be."
+
+"And humiliating."
+
+Anna's face colored faintly, but she did not look away.
+
+"Often."
+
+"You say that so calmly."
+
+"Because panic would not make it less true."
+
+Sonia hated how much she loved that answer.
+
+Anna went on, gentler now.
+
+"Correction is one of the places where trust matters most. Outside observers imagine only punishment because that is the cleanest accusation. Inside a good relationship it is more specific than that. He should know what he is correcting, why, and what he wants from you after. Not simply obedience. Understanding. Realignment. If it becomes venting, if it becomes spectacle for its own sake, that is bad character, not good guardianship."
+
+Sonia held her cup in both hands and let the heat sink into her palms.
+
+"You really do believe in this."
+
+"Yes."
+
+"Even the humiliating parts."
+
+Anna's expression did something subtle then, more intimate than a blush and harder to look at directly.
+
+"Especially the parts that work," she said.
+
+Silence followed that.
+
+Not awkward silence.
+
+The kind that comes when both people know too much about what the other has just confessed.
+
+Sonia broke it first because she had to.
+
+"I am not promising anything."
+
+"I know."
+
+"I am not swallowing the vial."
+
+"I know."
+
+"I may still decide the whole system is obscene and Henry can stay in finance where he belongs."
+
+That won her a laugh.
+
+"Also possible."
+
+Sonia exhaled.
+
+"But I am going to watch him differently."
+
+Anna nodded.
+
+"That sounds wise."
+
+"Don't sound so pleased."
+
+"I'm your friend. I'm allowed to be pleased when you stop pretending not to want things."
+
+That could have sparked a fight on another day. Today it only left Sonia tired and oddly lighter.
+
+When they left the cabin, they remasked in their separate practiced ways. Sonia's was still less elegant. Anna's was fluid now. Outside, the café folded them back into public femininity, porcelain and gloves and careful posture.
+
+On the walk home Sonia stopped at a shoe shop, then at the chemist, then outside GAIA's darkened windows without entirely meaning to. Her reflection in the glass looked composed, proper, nearly serene from a distance.
+
+Somewhere behind that reflection sat the vial in her refrigerator.
+
+Somewhere ahead of it stood Henry in corridor doorways and bookshops and lifts, making room.
+
+At home she took off her shoes, peeled off the gloves, and finally removed the mask.
 
 ![](sonia-unmasking-at-home.jpg)
 
 *Coming home, Sonia gets rid of her shoes and mask.*
 
-Sonia stashed the vial Anna had given her in the refrigerator.
-It was a potential key to transformation she wasn't ready to use.
-She hoped she would never need it.
+The apartment was quiet again.
 
-Sonia moved slowly around her apartment, mulling over her conversation with Anna.
-She paused by the window, looking out into the quiet night.
-Her mind replayed recent interactions at GAIA.
-Among them, Henry had begun standing out more and more.
-He often offered her help, always seemed to be around when she needed it.
-As a director in finance, Henry held a respected position at GAIA,
-and Sonia realized she might be the target of a Changed man's attempt at courtship.
+Still quiet.
 
-In the solitude of her living room, Sonia whispered to herself, "Henry's been there, more than I realized.
-Always at the right moment, always just when I needed a hand."
-A small smile crept onto her face, the thought both comforting and intriguing.
-"Could it be that he's been showing me he understands this... this dance of roles Anna talks about?"
+But now the quiet contained a shape she had been avoiding naming. Not abstract loneliness. Specific lack. No one to move the chair. No one to watch the line of her body and adjust the world around it. No one to receive the habits she had spent months learning.
 
-Turning back to her mirror, Sonia studied her reflection.
-She wasn't just a woman caught between two worlds anymore.
-She was possibly a participant in a complex ballet of social dynamics.
-She continued softly, "If I'm to consider this,
-to really consider Henry as... more, I need to understand what I'm stepping into."
-Her eyes narrowed slightly in thought.
-"It's about mutual respect and care, isn't it?
-About support within the roles we might assume."
+She stood in front of the mirror for a long moment with the mask in one hand.
 
-Sonia sat down at her small dining table, her fingers tapping lightly on the wood.
-"But I need to be clear about my boundaries.
-This isn't just about accepting help or companionship.
-It's about seeing if I can fit into this Changed world without losing who I am."
-Her voice grew firmer.
-"I'll see where Henry's courting can lead, cautiously engage with his gestures of support,
-and observe how he reacts to my responses."
+Then she set it down gently and thought of Henry.
 
-She stood up, her decision made, feeling a blend of nervousness and resolution.
-"I'll let him guide me, but not control me.
-I'll participate but not passively.
-If we are to dance this dance, it will be a dance of equals."
-Sonia's reflection in the mirror showed a woman
-who was beginning
-to understand her place in Changed society,contemplating the possibilities of a life
-where she might not have to be alone,
-where her submissive inclinations could find a safe expression.
+Not as a theory.
 
-"As Anna said, it's a negotiation, an exploration," Sonia concluded, her tone imbued with a newfound sense of purpose.
-"Maybe, just maybe, I can find harmony in a role that doesn't erase me but enhances me.
-And perhaps Henry is the right person to explore that path with."
-Her gaze hardened with determination.
-She was ready
-to face the next day at GAIA with a clear intention to observe and interact with Henry under this new light. 
+Not as a symbol.
+
+As a man she was going to allow herself to notice on purpose.

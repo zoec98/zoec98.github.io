@@ -3,514 +3,453 @@ title: "Chapter 26: Fashionista"
 weight: 26
 ---
 
+
 # Fashionista
 
+Anna's giving-away stayed with Sonia longer than she wanted to admit.
 
-{{% details title="**Storycodes**" open=true %}}
-Mf, bdsm, con, mind-control, submission, humiliation, correction, maid-training, corsetry, chastity,
-hobble-skirts, latex, retro-femininity, ritual, silence, photography, service, domesticity, obedience, dystopia
-{{% /details %}}
-
-{{% details title="**As Anna explores Britain with Julien, Sonia surrenders herself to Henry—trial maid,  fashion muse, and beloved possession.**" %}}
-
-While Anna and Julien discover the restrictive intimacy of Changed Britain, Sonia’s path takes a more personal turn.
-Drawn to Henry’s passion for fashion and his quiet authority, she dares to serve him both as muse and as maid.
-Their collaboration in art soon becomes an exploration of trust, correction, and control,
-culminating in a chastity belt that seals Sonia’s choice to submit on her own terms.
-Torn between the freedom of her immunity to the virus and the fulfillment of voluntary obedience,
-Sonia discovers that Changed society offers not only ritual and spectacle but also love and belonging.
-The question is no longer whether she can resist—but whether she wants to.
-
-{{% /details %}}
-
-The Giving Away ceremony gave Sonia much to ponder.
-It felt archaic, primal even, and deeply moving.
-She experienced a revulsion at the idea of handing over a woman like cattle.
-Simultaneously, she felt a longing within her—an ache from her heart to a place she wished didn't stir such feelings.
-
-Nonetheless,
-she decided to follow Anna's advice and explore where engaging with Changed rules and customs would lead her.
-If she did not want to live alone, she would have to fit in and see what kind of experience this might give her.
-
-The day after the weekend of Anna's Giving Away, Sonia stepped into work at GAIA with deliberate intent and a new mask.
-It was made from traditional porcelain overlain with intricate lace,
-giving the mask's surface an intricate structure and a fragile appearance.
-It was also more confining than her usual selection, made to measure and modeled after her actual face.
-Following the contours of her face closely, it was at the same time revealing and hiding her identity.
-It was a statement, a foray into the depths of Changed fashion,
-and an unspoken test of Henry's attentiveness and interest.
-
-Henry noticed Sonia's intricate new mask as she navigated the corridors of GAIA.
-It was distinctly more elaborate than her usual wear, and visually striking through the unusual material mix.
-He waited for an opportune moment when she appeared less engaged with her initial tasks,
-then approached with personal curiosity.
-
-"Good morning, Sonia," Henry began, his tone reflecting both appreciation and inquiry.
-"That is a remarkable piece you're wearing today.
-The design is quite intricate, and the fit suggests it is made to measure.
-It reminds me of Maylee Shufoo's high-fashion line—deliberate, imposing, yet stunning."
-
-Sonia turned to face him, her head forced forward by the tight neck of her blouse.
-Her hands came alive with expression, signing with refined elegance.
-"Good morning, Sir.
-I thank you for your kind words.
-Indeed, this mask is Maylee Shufoo, inspired by their high-fashion designs,
-where each piece speaks more of artistic expression than mere utility."
-
-Henry nodded in understanding, clearly interested in the topic.
-"I've always admired Maylee Shufoo's work for its ability to challenge our perceptions of functionality and aesthetics,"
-he remarked.
-"It makes one ponder the balance between form and function, does it not?
-I mean, their high-fashion pieces are very demanding and not very conducive to everyday tasks."
-
-With a graceful nod, Sonia continued, her hands painting pictures in the air.
-"Absolutely, Sir.
-It is a design that is somewhat restricting and requires a bit of planning to wear on a regular workday,
-but it is making a statement about identity and my dedication,
-emphasizing commitment to the aesthetic principles over convenience."
-
-"There are also some Mirende Ginciao pieces," Henry mused, intrigued by her insight, 
-"that are fascinating in a related way.
-They are almost like wearable art, aren't they?
-Their uncompromising and symbolic design certainly puts aesthetics over convenience at any time."
-
-Sonia's gestures grew more animated as she discussed the topic, her movements precise and her expression earnest.
-"Indeed, Sir.
-Their symbolic nature plays a significant role, it's almost ritualistic."
-
-Henry watched her hands with deep focus, interpreting her signs.
-His response carried a tone of genuine respect for her insights.
-"I must commend you, Sonia, on your impeccable style and the deliberate choice to place formality,
-poise, and restriction over practicality," he stated, his tone admiring yet thoughtful.
-"I have been observing your journey into fashion for some time.
-It's quite fascinating."
-
-Sonia's hands moved gracefully, her response flowing through the air with practiced ease.
-"Thank you, Sir, for your kind observations.
-I believe
-that the aesthetic we choose to embrace speaks profoundly of our values and our place in life."
-
-Henry nodded, his gaze going to the buttons on the shoulder and the cuffs of her blouse,
-clearly indicating that she had to choose something she could don without assistance.
-"You seem to have to dress within certain limitations," he stated, and continued,
-shifting slightly to convey a more speculative tone.
-"But imagine the possibilities if you didn't have to make those concessions,"
-he suggested boldly, his eyes holding hers with an intense gaze.
-"There's a certain beauty in dependence, in the trust it requires and the care it invites."
-
-Her hands paused momentarily, then continued with a refined subtlety that conveyed her understanding of his point.
-Sonia signed, "Indeed, Sir,
-the concept of dependence woven with trust does carry its own unique aesthetic and emotional weight.
-It is its own special form of… courage, I believe."
-
-Their conversation gradually wound down as they acknowledged the demands of the day.
-Sonia was left contemplating the implications of Henry's comments for her own plans.
-Reflecting on their exchange, Sonia considered it a success.
-Henry's genuine interest in her progression within the Changed society's fashion norms had been evident,
-and his insights into the beauty of dependence had demonstrated some kind of resonance at the personal level.
-His status as a fashionista with a keen interest in Changed restrictive high-fashion
-presented an intriguing facet of his personality—one that she felt equipped to engage with,
-given her personal experiences.
-
-Resolved to further explore this dynamic, Sonia decided to elevate her fashion choices the following day.
-She planned to introduce elements that would challenge the conventions she usually adhered to,
-curious to see how Henry would react.
-Her decision to "up the ante"
-was not just a test of his reactions but also a step
-toward defining her own identity within the bounds of Changed society.
-She looked forward to their next interaction, anticipating the continuation of their dialogue.
-
-On that following day, Sonia decided to take a gamble.
-She arrived at Anna's apartment in attire that was minimalist by Changed standards, but carefully chosen:
-her tightest corset with shoulder braces that drew her posture upright with uncompromising strictness,
-a narrow pencil skirt, and a Gobao Yoohoo blouse not yet fully secured.
-The design of her skirt included a reinforced kick pleat with a row of buttons
-that could be gradually closed to restrict or block her movement entirely,
-a feature she left unutilized for the walk.
-Her gloves, slipped under the blouse cuffs, were effectively locked in place once the blouse was closed,
-making it impossible to remove them without assistance.
-
-Anna greeted her with a playful arch of an eyebrow, taking in Sonia's ensemble with a mix of surprise and curiosity.
-"Going for a new level of formality today?" she teased as she invited Sonia inside.
-
-Sonia, with a smile that she hoped looked more confident than she felt, asked, "Could you help me dress properly?"
-Her voice was light, but her request marked a significant step into a realm of vulnerability she rarely embraced.
-
-Anna agreed, and worked with skill to close the neck corset of Sonia's blouse,
-further restricting Sonia's mobility.
-The conversation veered towards personal territories as Anna probed, half in jest,
-"This wouldn't have anything to do with a certain gentleman, would it?"
-
-Sonia, however, deflected with a practiced ease,
-keeping the details of her burgeoning interest in Henry to herself for now.
-
-She then donned a niqab with her hijab,
-a combination that scandalously allowed for speech—a stark contrast to the usual masked silence imposed by her attire.
-The final touch was her Gobao Yoohoo blouse, modified with zippers along the inside of the upper arms.
-Once zipped, these would hold Sonia's upper arms tightly against her sides,
-eliminating any possibility of hand-dancing with appropriate finesse or freeing herself.
-
-"Please close the zippers, Anna," Sonia requested, her tone a mix of determination and a trace of nervous excitement.
-
-Anna complied, closing the zippers and fixing them in their down position with a press-stud.
-"There you go, all set for your big day.
-You're making quite the statement, Sonia."
-Sonia was committed now, she would need help to free herself from her clothing,
-unable to move her arms at all from the elbows on upwards.
-
-Together, they made their way to GAIA,
-the air between them filled with an unspoken acknowledgment of Sonia's bold gamble.
-As they approached the entrance, Sonia felt an increasing nervousness, wondering, hoping her gamble would pay off.
-
-Henry had not yet arrived at the office when Sonia, dressed in her restrictively elegant ensemble,
-positioned herself next to his desk.
-The niqab limited her peripheral vision,
-forcing her to listen with particular attentiveness, waiting for the sound of his approach.
-Her posture was impeccably formal, arms pinned, neck locked by the high collar of her blouse,
-and every breath moderated by the corset's embrace.
-
-When Henry finally appeared, Sonia executed a perfect curtsy,
-the movement constrained yet graceful, reflecting her extensive training and innate poise.
-Breaking the typical silence mandated by her attire, she spoke, her voice soft yet clear through the niqab.
-"Sir, might I request your assistance with my attire?"
-Her tone was polite, almost deferential, indicating her reliance on his help.
-
-Henry paused, his eyes sweeping over her form, taking in the intricacies of her bindings.
-After a moment's inspection, he proposed a trade.
-"I can close the buttons of your kick pleat except the last one, which will limit your steps further,
-in exchange for unzipping your arms.
-This should allow you some functionality at work while maintaining a suitable degree of restriction."
-His voice held a note of challenge, as if testing her willingness to adapt to the conditions he set.
-
-Sonia nodded submissively, her eyes conveying her agreement before she vocalized it politely,
-"That is a generous offer, Sir.
-I accept, grateful for the opportunity it presents."
-Her response left ambiguity hanging in the air, not specifying what exact opportunity it would present.
-
-Throughout the day, Sonia navigated her tasks with meticulous care.
-Each step was a calculated mince,
-her movements deliberate and contained within the strict confines of her adjusted attire.
-Henry checked on her intermittently, a blend of concern and fascination evident in his demeanor.
-His presence was both a reminder of her constraints and a source of reassurance.
-She was not alone in this experiment, and obviously it was having the intended effect.
-
-By the end of the day, the demands of her dress had taken their toll.
-Sonia was physically drained but mentally invigorated by the challenge and Henry's attention.
-She returned to his desk,
-her steps measured and her voice once more emerging as she requested, "Sir,
-may I ask for your assistance to release my attire so I may return home?"
-
-Henry proceeded with careful precision, re-securing her arms before addressing the kick pleat of her skirt,
-ensuring she was capable of walking home.
-"Will you be able to manage the unfastening at home?" he asked,
-concern in his tone as he re-engaged the zippers that restrained her arms.
-
-Sonia reassured him with a polite nod, her voice muted by the repositioned niqab.
-"Yes, Sir, I have assistance and will manage.
-Thank you for your care today."
-
-Henry concluded the day with an invitation. 
-"If fashion interests you, I have an invitation to you, and Anna and Julien, if you care.
-At my villa in Champel,
-I have a modest collection of pieces from Maylee Shufoo and Mirende Ginciao that I think you might find intriguing.
-I'd be honored if you could join me this Saturday to view the collection."
-His invitation was genuine, framed by his interest in sharing his passion for high-fashion bondage art with friends
-who appreciated the aesthetic nuances as much as he did.
-
-Sonia felt a flutter of anticipation at the invitation,
-her interest piqued both by the promise
-of viewing Henry's collection and the opportunity it presented to explore their burgeoning dynamic further.
-
-Leaving the office,
-Sonia felt a complex mix of relief and reluctance to shed the physical manifestations of her day's challenges.
-Anna was waiting for her by the elevators, ready to assist in settling Sonia.
-Together, they made their way to Anna's apartment where Sonia could finally relax the strictures of her attire.
-
-At Anna's place, she relayed Henry's invitation to Anna and Julien, her signing carrying a hint of excitement
-at the opportunity to see some unique pieces up close.
-Anna's eyes sparkled with curiosity,
-and Julien expressed his interest in the craftsmanship and design philosophy behind such exclusive collections.
-They all agreed to join,
-setting the stage for a weekend that promised to blend artistic appreciation with personal exploration.
-
-Reflecting on the day,
-Sonia was particularly struck by the dual aspects of Henry's demeanor—the enjoyment
-he derived from her aesthetic and from her obvious struggles, and his attentive concern for her wellbeing.
-This interplay of enjoyment and care was intriguing to Sonia,
-suggesting layers of Henry's character
-that resonated deeply with her own evolving desires to be cared for and fit in,
-and the complexities of their potential relationship.
-
-For the event at Henry's home,
-Sonia decided
-to embrace the theme of high-fashion bondage art
-by dressing in an ensemble that combined aesthetic appeal with pronounced restriction.
-She again opted for her corset with the integrated shoulder braces that enforced a rigidly upright posture,
-accentuating her silhouette.
-
-Over this, she wore a modified Gobao Yoohoo blouse designed with a tall, boned collar that rose to her jawline,
-continuing up into an integrated, non-removable Jinshuwan.
-The half-mask covered her mouth and nose, and had a large inner gag that rendered her completely mute.
-Being fixed to the collar, it locked her head in position.
-As this particular mask's gag could not be removed, it had a feeding tube port at the side,
-allowing her to be watered and fed with liquid meals.
-The blouse's sleeves were made from lace, partially see-through,
-but ending in contrasting tight cuffs from embossed leather,
-which also covered her kid leather gloves, locking them in place.
-Neck and cuffs she locked with small padlocks, leaving the keys at home.
-
-Her skirt, a floor-length Yoyah Sheengzoh with decorative lace, was another statement piece with a tight,
-restrictive hobble design that forced her to take small, deliberate steps as it had no kick-pleat or other accommodations.
-This, too, was locked around her waist with another padlock.
-Her shoes, heeled knee-boots,
-were carefully laced and also secured with leather straps over the laces and then locked on.
-
-Each piece was carefully chosen to echo the themes of the high-fashion bondage to be displayed at Henry's event,
-mixing soft delicate lace with blunt black bondage leather and strategically placed metal D-rings.
-She had convenient attachment points on her corset between her shoulder blades and at her waist.
-They were accessible through slits in the blouse and quite visible to an observer who had an eye for such details.
-Similar D-rings adorned the cuffs around her wrists and on her heels.
-It would be interesting to see if Henry found a polite and socially acceptable way to make use of them.
-
-The trip to Henry's villa in Champel was challenging, but with help from Anna and Julien, Sonia made it.
-Especially boarding and leaving the tram was an ordeal, 
-even though this new type of tram already had a low floor for better disabled access. 
-
-At the villa, Sonia, Anna, and Julien were warmly greeted by Henry,
-who was dressed in a sharply tailored suit that complemented the aesthetic theme of the evening.
-He began by giving them a tour of his villa, which had been redesigned according to Changed ecological principles.
-After renovation, it featured better insulation, three-pane windows, a photovoltaic system with a house battery,
-a heat pump and a gray water reclamation system suitable for watering the garden,
-integrating modern technology with a design that reflected the Changed emphasis on harmony and order.
-It also featured, to Sonia's relief, an elevator,
-allowing her to follow the tour across the various floors of the house without having to climb stairs,
-because in this particular Yoyah Sheengzoh she simply couldn't.
-
-After the tour, Henry led them to the showroom,
-a spacious living room on the first floor that had been repurposed to house his collection.
-The room was elegantly arranged with chests and drawers that held various pieces,
-while several mannequins displayed the most striking garments.
-
-Sonia eyed the mannequins, listening to Henry's explanations.
-One showpiece featured a Maylee Shufoo evening gown
-made from iridescent synthetic silk that shifted color with movement.
-The gown had a built-in corset that dramatically cinched the waist that contrasted with the full skirt.
-
-Henry's face lit up with appreciation as he began to explain the intricacies of the piece.
-"This particular gown is an early Maylee Shufoo original."
-He gestured towards the gown's full skirt, inviting Sonia to feel the fabric.
-"What isn't immediately apparent," Henry continued, "is the inner layer of this skirt.
-It's much tighter, essentially a hobble skirt that restricts the wearer's stride to mere centimeters,
-a precursor of the now ubiquitous and more modular Yoyah Sheengzoh."
-
-Another piece that intrigued her was showcased as a Mirende Ginciao ensemble consisting of a high-collared,
-full-length leather dress with lace and pearl embellishments.
-The dress included an intricate lacing system at the back that required another person to fasten,
-ensuring the wearer's dependence on assistance.
-
-"This piece," Henry began, his tone reflecting his admiration, 
-"is an early armbinder dress.
-It is not well suited for hand-dancing,
-but in other parts of the world where the emphasis is more on veils than on masks designs like this are popular."
-He paused, allowing Anna and Julien to absorb the details, then continued, "The sleeves are noteworthy.
-Integrated with internal straps used to create the armbinder,
-they restrict the wearer's arm movements to a significant degree,
-intensifying the overall effect of the dress."
-
-In the next part of the showroom, Henry led Sonia, Anna, and Julien to a series of ornate chests and sleek drawers,
-showing various accessories, gloves, footwear, and of course a large variety of corsets, historical and contemporary.
-"After all," Henry continued, "proper dress requires proper foundation and accessories."
-
-Concluding the tour, the group approached the elegantly set coffee table in Henry's villa
-where Henry gestured for Sonia to kneel on a cushion next to his chair.
-Sonia, dressed in her self-imposed restrictive attire, needed help to lower herself gracefully,
-as her uncompromising Yoyah Sheengzoh made it impossible for her to separate her knees.
-Henry eagerly lent her a hand, one hand supporting her, the other hand at her back, stabilizing her.
-Then he retrieved a steel pillar with two extensible connectors from a sideboard,
-which he planted into a matching receptacle in the floor behind the cushion.
-After it clicked into place, he carefully adjusted the connectors, one to the D-ring between her shoulders,
-the other to the small of her back.
-It locked her to the pillar with no give at all, keeping her in her designated place, and in her enforced posture.
-He then secured her high-heeled shoes to the base of the pillar with two additional shackles,
-which after some quick tightening effectively immobilized her.
-
-While Henry went back into the kitchen, excusing himself for a moment, Sonia explored the limits of her bonds.
-With the tight corset and the shoulder braces being attached to the pillar, she could not move her upper body at all;
-she might as well have been welded to the pillar.
-The high collar with the attached mask and the large gag on the inside held her head in a similarly effective manner,
-forcing her head into exactly one position, upright, straight forward, and down.
-Her feet were also secured tightly, her knees held together by the Yoyah Sheengzoh.
-She could move her arms and hands, and look forwards to the person at the table opposite through her eyelashes.
-Otherwise, she was utterly immobilized, mute and helpless.
-
-Henry returned from the kitchen with a nutrient bag with a Maylee Shufoo label
-"Of course he would have accessories to the type of mask I decided to show up in," Sonia thought.
-He attached a slender hose from it to her feed adapter, hanging the bag from the pillar behind her.
-Sonia felt the nutrient fluid slowly enter the gag, extending the already large gag even more.
-It filled her mouth more and more, until it eventually pulsed,
-with the nutrient liquid gushing down the back of her throat, forcing her to swallow, but unable to taste.
-The gag shrank, slowly filled and extended again until her mouth cavity was completely filled,
-and eventually poured the next load down her throat.
-She had no control over the feeding, and with the way she was bound and locked, she could do nothing to stop it.
-
-Leaving Sonia to her forced "meal,"
-Henry then turned to prepare coffee and serve a decadent French chocolate entremet to Julien, himself, and even Anna.
-Anna, who Julien positioned opposite of Sonia so that the women could see each other hand-dancing,
-had her mask exchanged for a veil by Julien so that she could eat politely in company.
-The dessert he served was rich and beautifully composed,
-a layer of velvety ganache
-interspersed with a delicate raspberry coulis that added a bright contrast to the dark chocolate.
-As they enjoyed the dessert, Henry made sure to include Sonia in the conversation, his attentiveness unwavering.
-
-"Sonia," Henry began, sipping his coffee with a smile,
-"why don't you tell us about the current state of your research at GAIA.
-It seems there are some exciting breakthroughs on the horizon."
-He gestured towards Sonia,
-encouraging her to join the conversation through hand dancing, her gestures flowing smoothly despite her bindings.
-Despite the distracting feeding going on, Sonia's hands moved with practiced grace,
-conveying her excitement about her work and the potential impacts of her research.
-
-Every now and then her gesturing paused,
-her hands freezing in place when the gag in her mouth again reached its limit,
-forcing her to swallow the nutrient.
-She stopped, closed her eyes and concentrated for a few long seconds on getting the liquid down her throat,
-then continued her gestures as if nothing happened.
-It was humiliating, but she could do exactly nothing to control it or stop it.
-The way she was helpless in her attachments left her with no option but to give in and "go with the flow."
-
-Julien responded warmly to her tale, ignoring her pauses, engagingly conveying his own interest in GAIA's projects.
-"That sounds fascinating, Sonia.
-It must be quite rewarding to see your efforts coming to fruition like that."
-As Sonia paused again, swallowing, Anna's hands chimed in with a teasing remark
-about how Sonia's meticulousness in her research mirrored her approach to personal style:
-just as disciplined and rigid, drawing a round of soft laughter from the group.
-
-Throughout the exchange, Henry carefully monitored Sonia's comfort and participation,
-ensuring she felt as much a part of the gathering as everyone else.
-His actions demonstrated not only his deep respect for Sonia 
-but also his understanding of the delicate balance between her chosen state of helplessness 
-and her need to feel connected and engaged with her friends.
-The conversation flowed lightly around topics of work, fashion, and personal interests,
-a perfect blend of professional and personal interests that kept everyone engaged and included.
-
-As the evening progressed, Henry took a moment to address Sonia directly,
-his gaze appreciating the exacting standards of her attire.
-"Sonia, your ensemble tonight truly captivates the essence of restraint in its most artful form,"
-he remarked.
-"While I must admit a part of me is quite disappointed not to see you adorned in one of my special collection pieces,
-the style you've locked yourself into this evening—it quite effectively chains my attention,
-perfectly aligning with the very fantasies high fashion aims to evoke."
-
-He leaned slightly closer, ensuring his voice carried only to Sonia, tinged with a blend of admiration and intrigue.
-"The meticulous way you've confined yourself,
-ensuring each piece is a study in control and vulnerability—it's
-as if you've stepped right out of a vision I've long cherished,
-where elegance and bondage intertwine seamlessly," Henry continued,
-his tone smooth and deliberate.
-"You've beautifully manifested an exquisite helplessness that these high-fashion pieces strive to articulate.
-It's a delicate balance, and yet, you wear it with such grace, 
-it's almost as if you're daring us to unravel the complexity of your bindings." 
-
-As the group engaged in lively discussions, Sonia,
-feeling the pressure of her corset tighten with the nutrient tube in place,
-gracefully signaled to Henry through hand-dancing.
-Her gestures were delicate yet clear, politely requesting, "Sir, if you would be so kind, I find myself quite satiated,
-and the tube has become uncomfortable within the confines of my corset."
-Henry immediately understood her discomfort and moved to her side
-as he carefully disconnected the feeding tube from her mask's adapter.
-With a practiced hand, he cleaned the feed adapter,
-ensuring Sonia's comfort was restored without compromising her poised presentation.
-
-Meanwhile, Anna's hands were coming alive with signing. 
-She had an announcement to make.
-"Julien and I are leaving for London tomorrow," Anna signed, the movements precise and fluid.
-"It's going to be an extraordinary few weeks.
-We've planned a mix of leisure and exploration.
-Julien has been so thoughtful in arranging everything."
-
-Sonia watched her friend's expressive hands, reading the joy in every gesture.
-"Tell me everything, Anna.
-What's first on the agenda?" Sonia's hands answered with eager interest.
-
-Anna responded.
-"We're staying at a small boutique hotel in London," she signed, "it will be very intimate."
-"Julien believes it will set the perfect tone for our time together.
-The first few days are for us to settle in, to walk through the gardens,
-dine at the finest restaurants, and simply enjoy each other's company.
-He wants everything to be perfect for us."
-
-Sonia's hands clapped lightly, a smile visible in her eyes above the mask, and Henry nodded in approval.
-"That sounds wonderful, Anna.
-I remember Julien mentioning he had some special experiences planned."
-
-"Julien has also arranged a visit to The Eden Nexus," Anna signed,
-her hands painting vivid images of the state-of-the-art visitor center and its focus on ecological sustainability.
-"We'll be meeting Jonathan Vane's Eleanor there."
-
-"She's a friend of mine from my university days," Julien chimed in.
-
-Sonia's hands moved with a gentle reassurance.
-"Eleanor's work sounds fascinating.
-I know about the Eden Nexus.
-The Nexus is very recent, a showplace about the ecological turnaround Britain is attempting, 
-but it is part of an older, larger project that started long before the Change with the Eden Project in Cornwall. 
-I'm sure you'll learn a lot from the visit."
-
-Anna knew more details, but simply explained: "It is a showplace and visitor center
-located in London to communicate the new policies to the general public,
-and to provide labs and offices to the people working on the coordination the new ecological efforts."
-
-Throughout the evening, despite her severe restrictions, Sonia remained an active participant in the conversation,
-her hands expressing thoughts and responses with the fluidity and elegance that hand-dancing allowed.
-Her inability to turn her head or shift her gaze due to the restrictive collar,
-mask, and gag did not diminish her engagement.
-That was largely due to Henry's efforts
-to thoughtfully position Anna opposite her to be within her limited field of vision.
-Henry's attentiveness to Sonia's well-being matched her helplessness with his care and concern.
-
-As the visit drew to a close, Sonia, still impeccably poised through her bindings,
-expressed her gratitude to Henry through a series of gestures.
-She could not turn to look at him, but she knew he would see her gestures.
-"Sir, I thank you deeply for your hospitality and the most intriguing visit," she conveyed with her hands,
-her demeanor reflecting both the formality of their interaction and her personal appreciation.
-Henry, with a respectful nod, proceeded to unlock her from the pillar,
-carefully assisting her to rise from her kneeling position.
-Anna and Julien supported her as they left the villa and navigated the tram ride back to Anna's place.
-Once there, Sonia, with Anna's help, changed into more manageable clothing,
-appreciating the lesser constraints after a day of strict formality.
-Later, feeling a mix of relief and lingering contemplation from the day's experiences, she made her way home,
-her thoughts occupied with the complex interplay of fashion,
-restraint, and personal identity she had navigated so elegantly.
-
-As Sonia settled back into the familiar comfort of her own home,
-she reflected deeply on the events of the afternoon at Henry's villa.
-Dressing in her most restrictive attire had been a deliberate challenge to Henry.
-A way to present herself in the extreme of high fashion and submission 
-that she knew appealed to his aesthetic sensibilities,
-yet with the locks, she consciously denied him any control over her dress.
-Her attire was a test,
-a statement of her autonomy and her willingness to explore the boundaries of their evolving dynamic.
-She was intrigued by his reaction.
-Not only did he handle the feed adapter with adeptness,
-of course he would have equipment matching such a thing from Maylee Shufoo.
-But he also creatively enhanced her restriction,
-effectively transforming her into a living sculpture at the gathering,
-a testament to his understanding of the delicate balance between display and care.
-
-Henry's ability to integrate her seamlessly into the conversation,
-ensuring she was neither isolated nor ignored despite her rigidly enforced passivity, struck Sonia profoundly.
-It was a stark contrast to the type of submissive role that had been scorned in the feminist critiques she grew up with.
-Here, in the unwavering care of Henry,
-her submission did not equate to erasure
-but was respected and celebrated as part of the interpersonal art they co-created.
-His actions underscored a respect for her choices, turning her into a performance, a celebration of the female form.
-
-The experience of being so comprehensively bound
-yet so comfortably integrated into the group dynamics had been illuminating for Sonia.
-She had never before felt such a profound level of helplessness paired with a deep sense of belonging and acceptance.
-Reflecting on these revelations,
-Sonia recognized a shift in her perception of what it meant to be submissive within the context of Changed society.
-She was not losing herself or diminishing her worth;
-rather,
-she was finding a space where her desires and boundaries were respected
-and where she could express aspects of herself that were previously constrained by societal expectations.
+It was not the ceremony itself, though that had been hard enough to watch, or even the moment Marc and Julien settled things over Anna as if a woman could be passed from one set of hands to another without the world stopping in protest. What stayed with Sonia was Anna's face: calm, fulfilled, deeply, sincerely pleased by a structure Sonia had been raised to call degrading.
+
+It should have made the whole system easier to hate.
+
+Instead it had left Sonia with a worse problem.
+
+She wanted to know why it worked.
+
+Monday morning, she decided to stop pretending that question was theoretical.
+
+She arrived at GAIA in a new lace-covered mask and clothes chosen with more intention than usual: a fitted skirt, a cream blouse, tight gloves, heels just impractical enough to alter the way she moved all day. Nothing outrageous by the standards Geneva had settled into. Enough, however, that a man who cared about such things would notice.
+
+Henry noticed.
+
+He let her finish her first tasks before crossing the corridor toward her desk. Sonia saw him coming and made herself remain seated until he reached her. When she rose, his gaze had already taken in the mask, the blouse, the line of her posture, and the fact that she was waiting for him to speak first.
+
+"Good morning, Sonia."
+
+*Good morning, Sir.*
+
+The title came easily now. That still irritated some older part of her. It no longer stopped her.
+
+Henry tilted his head slightly as he studied the mask.
+
+"New."
+
+*Yes, Sir.*
+
+"Maylee Shufoo?"
+
+She nodded.
+
+"I thought so."
+
+He did not touch it. The restraint of that pleased her more than touching would have.
+
+"You wear it well," he said. "More severe than your usual choices."
+
+Sonia let the praise settle before answering.
+
+*Less apologetic, yes.*
+
+His mouth shifted at that.
+
+"And is that what this is? Less apology?"
+
+*Partly that. Partly curiosity.*
+
+"About what."
+
+The question was too direct to dodge gracefully.
+
+*How far form can go before practicality must give way.*
+
+Henry glanced once at the collar of her blouse, then back to her eyes.
+
+"That is not a neutral question."
+
+*No, Sir.*
+
+They stood in the corridor while people moved past in the normal Changed choreography of workday Geneva: women with shortened steps and careful posture, men carrying coffee, opening doors, pausing to let a woman settle herself before passing through a narrow space. It would have been easy to turn the conversation theoretical. The building offered endless excuses for theory.
+
+Henry did not take them.
+
+"You are dressing further in," he said.
+
+Sonia felt the accuracy of it in her stomach.
+
+*Perhaps.*
+
+"No," he said quietly. "You are."
+
+The certainty in his tone did more to expose her than the words themselves.
+
+He should have left then. Instead he looked once more at the buttons of her cuffs, at the close line of the mask, and said, "If you are going to ask a question like that, you should ask it properly."
+
+Then he went back to his office.
+
+Sonia stood very still for several seconds after he was gone.
+
+Ask it properly.
+
+The sentence stayed with her all morning.
+
+By lunch she had turned it over enough times to understand what it required. He did not want an essay or another polished conversation about aesthetics and the Changed world and what clothing meant. He wanted a demonstration, or perhaps he wanted to see whether she was serious enough to make one.
+
+The idea should have embarrassed her out of it.
+
+Instead it followed her back to Anna's apartment after work with the clean persistence of hunger.
+
+Anna opened the door wearing the settled contentment of a woman who had stopped fighting her own life. Sonia still did not know whether that sight comforted or infuriated her more.
+
+Anna's gaze dropped once over Sonia's work outfit and came back up with immediate interest.
+
+*That mask is new.*
+
+Sonia removed her shoes by the door.
+
+*Henry noticed.*
+
+Anna smiled.
+
+*Of course he did.*
+
+Sonia followed her into the sitting room and stood there for a moment without taking off the mask. The request she was about to make felt stupid enough that she almost abandoned it.
+
+Anna waited.
+
+*Need help dressing tomorrow.*
+
+Anna's expression changed very slightly, not into surprise but recognition.
+
+*For work.*
+
+*Yes.*
+
+*For Henry.*
+
+Sonia gave her a look.
+
+Anna's smile deepened.
+
+*That was not a question.*
+
+It was easier to admit things to Anna now that Sonia no longer pretended the world ought to be otherwise.
+
+*He said if question is to be asked, it must be asked properly.*
+
+*And what question are you asking?*
+
+Sonia looked away toward the window.
+
+*Whether dependence is part of what I want.*
+
+Anna did not pounce on the answer. She simply stood and went to the wardrobe where some of Sonia's things still hung from older practical arrangements between them.
+
+*Show me what you had in mind.*
+
+They chose the pieces together. Tight corset with shoulder braces. Narrow skirt with the kick pleat that could be buttoned down further once Sonia no longer had to walk far. A Gowbao Yoohoo blouse that would need another person's hands to close fully and would not come off again without help. Gloves fixed under the cuffs. A niqab that allowed speech and would therefore sharpen the dependence instead of hiding it behind silence.
+
+Sonia watched the outfit gather across Anna's bed and felt something between dread and relief.
+
+*This is too much for the office,* she signed.
+
+*Yes,* Anna signed back. *That is why it will work.*
+
+The next morning Sonia arrived early enough to finish most of her tasks before making the rest of the day impossible. Anna dressed her in the guest room first, fastening the blouse, closing the collar, fixing the gloves, and finally asking, *Arms or skirt first?*
+
+Sonia's mouth had gone dry.
+
+*Arms.*
+
+Anna closed the inner sleeve zips and fixed the press-studs that held Sonia's upper arms in close to her sides. The effect was immediate. Her forearms remained free enough for small motions, but proper signing was gone. So was any illusion of self-sufficiency.
+
+*Last chance,* Anna signed lightly.
+
+Sonia met her eyes in the mirror.
+
+*No.*
+
+Anna nodded, then buttoned the kick pleat down only slightly so that Sonia's steps shortened into a careful walk.
+
+The niqab came last.
+
+Sonia looked at herself in the mirror and knew she had crossed from workwear into statement. She was not dressed to get through the day efficiently. She was dressed to make dependence visible and then ask a particular man to touch it.
+
+That realization should have sent her home.
+
+Instead it steadied her.
+
+Anna rode up with her to GAIA and left her near Henry's office with a look that contained too much amusement to be charitable.
+
+*Try not to fall over.*
+
+Sonia gave her what dignity the niqab and the posture brace would allow.
+
+*Thank you.*
+
+*You are welcome.*
+
+Then Anna went on, and Sonia was left with the corridor, her restricted steps, the pressure of the blouse, and the absurd fact that she was waiting for Henry like a woman in a fairy tale waiting for the man with the key.
+
+He arrived late enough to make her earn the waiting.
+
+Sonia heard him before she saw him. Male voices, footsteps, the lift doors, then Henry turning the corner and stopping cleanly when he found her beside his desk.
+
+His eyes moved over her in one measured pass.
+
+The look was so intent that she forgot, for one dangerous second, how to breathe under the corset.
+
+She curtsied.
+
+"Sir, might I request your assistance with my attire?" she said through the niqab.
+
+That made the moment explicit. No theory left to hide in.
+
+Henry set the folder in his hand on the desk without taking his eyes off her.
+
+"What do you need."
+
+"The kick pleat may be closed further for office propriety, if you find that appropriate. In return, if it pleases you, my arms may be released enough for work."
+
+The bargain sat between them with all its intended meanings.
+
+Henry stepped close enough to inspect the blouse, the skirt, the niqab, the press-studs at her sleeves. Sonia kept still because any movement would have looked like fidgeting and because his nearness was already doing enough to her pulse.
+
+"You came in like this on purpose."
+
+"Yes, Sir."
+
+"To make a point."
+
+"Yes, Sir."
+
+His gaze lifted to hers.
+
+"And what point is that."
+
+Sonia could still have lied. She did not.
+
+"That I would like to know how it feels to let someone else decide the practical terms."
+
+Something warm and dangerous entered Henry's expression.
+
+"Very well," he said.
+
+Then he went down on one knee in the corridor and buttoned the kick pleat another two increments closed.
+
+The intimacy of that act nearly undid her, not because he touched her legs, but because he did it calmly, as if a woman presenting herself for adjustment in a work corridor were something he was entirely prepared to handle.
+
+He rose and moved behind her to release the sleeve fastenings enough that she could work.
+
+"Not all the way," he said. "You asked for functionality, not comfort."
+
+"Yes, Sir."
+
+She could feel people noticing. That should have made her furious. Instead it made the moment sharper. Public. Legible. Real.
+
+"Can you manage the rest of the day?"
+
+"Yes, Sir."
+
+"Come see me before you leave."
+
+"Yes, Sir."
+
+She worked like that for hours.
+
+Everything took longer. Sitting, standing, turning, typing, going down the corridor, dealing with doors. Henry did not hover, but he checked on her often enough that she could feel the shape of his attention around the whole experiment. Once he brought her coffee without asking. Once he paused at her desk only to say, "Shoulders back." Once, when she had nearly forgotten the new limits of the skirt and turned too fast, he caught her elbow and set her straight without comment.
+
+By late afternoon Sonia was exhausted, sore, and so aware of him that her nerves felt flayed open.
+
+She returned to his office as instructed.
+
+"Sir, may I ask for your assistance to release my attire so I may return home?" she asked.
+
+Henry stood from his desk immediately.
+
+"Come here."
+
+He re-pinned her upper sleeves, because way home required less gesture and more containment, then adjusted the kick pleat back to a level she could manage safely. The reversal should have felt like rescue. Instead it felt almost disappointingly temporary.
+
+He noticed that too.
+
+"You liked more of this than you expected."
+
+Sonia kept her eyes lowered.
+
+"Yes, Sir."
+
+"So did I."
+
+He did not let her go immediately after that. He stepped back, studied her once more in the altered outfit, and said, "Saturday evening. Champel. I would like to show you part of my collection."
+
+Sonia waited.
+
+Her pulse quickened at once.
+
+*Only me, Sir?*
+
+"Bring Anna and Julien if you like. I am not hiding the invitation. I am giving it through you."
+
+That distinction mattered more than it should have.
+
+*I would like that, Sir.*
+
+"I thought you might."
+
+She made it home with Anna's help, because the outfit still required another woman's hands to undo completely and because Sonia was too tired by then to be vain about it. Later, alone, with the blouse opened and the corset still marking her ribs, she sat on the edge of the bed and replayed the day in hard bright pieces: Henry kneeling in the corridor, Henry refusing full release, Henry bringing coffee, Henry inviting her to Champel as if he had already seen enough to decide the next move.
+
+She had meant the office stunt as a test.
+
+It had been that.
+
+It had also been an admission.
+
+Sonia was no longer merely studying Changed femininity from the outside. She was beginning to use it as a language for desire, and Henry had answered her in the same language at once.
+
+Saturday evening brought the second part of the answer.
+
+Anna and Julien arrived with Sonia at Henry's villa just after dusk. Anna was radiant in the settled way that still disturbed Sonia when she looked at it too directly. Julien carried himself with the calm certainty of a man well settled. Henry received all three graciously, but Sonia noticed at once that his attention divided unevenly. The collection mattered to him. Anna's responses mattered because they were informed and sincere. Julien's mattered because he understood construction. Sonia's mattered because he expected them to.
+
+That expectation made her stand a little straighter in the entry hall.
+
+Henry led them first into the long room he used for storage and display. Cases opened one after another under his hands: Maylee Shufoo evening pieces severe enough to turn femininity into architecture, Mirende Ginciao work more overtly ritualistic, experimental latex translations of traditional forms, collars, cuffs, understructures, visible attachment systems, and more technical items laid out with the same exact care as the decorative ones.
+
+Anna took to it immediately.
+
+She moved from piece to piece with the pleased fascination of a woman who had already stopped drawing a moral line between beauty and dependence. Julien asked better questions than Sonia had expected about closures, weight distribution, maintenance, and how certain garments were intended to be managed in daily use rather than simply admired on a body at rest.
+
+That opened the conversation Henry had clearly wanted.
+
+"I hear you're going to London with Anna to take posession of her. London will take some adjustment," he said to Julien, lifting a fitted cape from its stand and turning it so the concealed hardware became visible. "The British are less interested in hiding support systems. Geneva still prefers the fiction that a properly guided woman is simply very disciplined. London likes visible solutions."
+
+Julien examined the cape with real interest.
+
+"And you think Anna will like that."
+
+Henry glanced at Anna, who was already studying a lockable muff with thinly disguised delight.
+
+"I think Anna will adore it."
+
+Julien smiled in a way that said the answer had not surprised him.
+
+"So do I."
+
+Anna turned to Sonia then and signed with bright quick hands, *Visible dependence. Weatherproof. Publicly normal. I cannot decide whether it sounds practical or shameless.*
+
+*Both,* Sonia signed back.
+
+Henry watched the exchange, then said, "That is the British specialty."
+
+The talk moved naturally from there into the trip itself. Train compartments designed for guardians and wards. Accomodation with integrated rails and domestic dock points. Outdoor systems built for rain, mud, and long walking distances without forcing women into masculine practicality. Anna listened as if Henry were describing a city made specifically to flatter her new instincts. Julien listened like a man quietly preparing himself to be competent in another country's version of care.
+
+Sonia listened too, but with divided attention. She cared about the London discussion. She also cared, more than she wanted to admit, about the case Henry had not opened yet, the flat white one on the far worktable.
+
+He noticed that she had noticed.
+
+Later, after wine for the men and tea for the women, when the conversation had softened enough to leave room for play, Henry crossed to that table and opened the case.
+
+The room quieted almost at once.
+
+Inside lay a restrictive blouse with a high collar and integrated half-mask, a severe underskirt, a long hobble design with no concession to stride, gloves meant to be fixed in place, and the more technical pieces needed to make the whole thing livable once closed. Nothing in the arrangement called attention to itself. That was part of the effect. The obscenity of it was hidden under craftsmanship, etiquette, and practical finish.
+
+"One of my experiments," Henry said. "Not for daily wear. Too much management. But the line interests me."
+
+Anna stepped closer.
+
+*It is beautiful,* she signed.
+
+"Yes," Henry said. "And inconvenient enough to become honest."
+
+Sonia felt the line in her stomach.
+
+Julien, who had been looking over the hardware with professional interest, asked, "Can it actually be worn for an evening?"
+
+"With help," Henry said.
+
+His gaze moved to Sonia.
+
+Not a command. Not yet.
+
+An opening.
+
+Sonia could have left it there. Let Anna admire, let Julien ask technical questions, let the evening remain civilized and observational.
+
+Instead she signed, *Would you show us?*
+
+Anna's eyes shifted to her at once. Julien looked from Sonia to Henry and understood enough not to interrupt. Henry held Sonia's gaze for one second longer than politeness required.
+
+"Yes," he said.
+
+There was no audience-performance in the way he said it. Only acceptance of the terms she had just set.
+
+Anna helped at first, because some of the underlayers still required another woman's practical touch before a man could make the final decisions. The technicality of that helped Sonia keep her balance. Stockings. Corset. The first skirt. Gloves. Collar. Each step had an order. An objective. A reason.
+
+Then Henry took over.
+
+He closed what Anna had left open, fixed what needed fixing, and drew the whole arrangement into its final shape under the quiet watch of the others. Sonia became aware of herself in layers: posture brace, narrowed gait, fixed gloves, the high set of the collar, the half-mask changing the meaning of her mouth, the long skirt deciding distance in advance. It was neither convenient nor practical, but none of it hurt. It simply removed options one by one until every remaining motion became legible as dependence.
+
+When he was done, she could stand beautifully.
+
+Everything else required management.
+
+Anna looked delighted. Julien looked fascinated in the way of a man cataloguing both elegance and liability. Henry looked exactly as he had in the office corridor when he had adjusted her skirt: calm, attentive, already accounting for the implications.
+
+"Walk," he said.
+
+Sonia did.
+
+The room had become longer. She knew it had not, but the outfit made distance feel instructional. She reached the far table, turned with care, and came back.
+
+"Well?" Julien asked, not of Sonia but of Henry.
+
+"Wearable," Henry said. "Not independent."
+
+The phrase settled over the room with a warmth Sonia did not trust.
+
+Anna signed, *That is the point.*
+
+Sonia could not disagree.
+
+The feeding apparatus was introduced as if it were the most technical part of the demonstration, which in one sense it was. Henry explained it in exactly those terms: if a garment rendered mouth access impractical, or if the line of the mask had to remain undisturbed, then hydration and light nourishment had to be solved cleanly. He spoke about valves, cleanliness, flow control, not staining fabric, not interrupting the visual line. Julien responded in the same register, asking about maintenance and failure points. Anna, standing beside Sonia, watched with that bright disturbing attentiveness fully Changed women brought to systems that made dependence cleaner.
+
+No one named the atmosphere that formed around the demonstration.
+
+No one needed to.
+
+Henry fitted the attachment with grave concentration and checked it twice before using it. Sonia stood between Anna and Julien in the middle of the room and let him handle her in front of them all. The technicality made it possible. The technicality made it impossible too. His fingers at the side of her face, the brief adjustment at her jaw, the careful angle of the vessel, the pause while he made sure she was ready: every part of it could be defended as proper procedure.
+
+None of it felt procedural from the inside.
+
+The first cool mouthful was so controlled, so cleanly measured, that Sonia had time to register each part separately: the pressure, the swallow, the awareness of being watched, the helplessness of needing it given. Nothing overt happened. No one said anything indecent. Julien only observed. Anna only watched. Henry only repeated the process with the same exact, unhurried attention he had given the closures.
+
+And the room still changed.
+
+Sonia could feel the allusion in it without wanting it named.
+
+An earlier Sonia would have hated it, but she felt herself going soft around the edges.
+
+When Henry finally withdrew the apparatus and checked the line of her mask once more, his thumb rested briefly under her jaw as if the whole point of the evening were not the garment, nor even the collection, but the fact that she had let him manage something so intimate in front of others and remained standing afterward.
+
+"Good," he said.
+
+Only that.
+
+Anna's eyes met Sonia's for one brief charged second and then moved away with tact Sonia had not expected from her old friend and did expect, now, from the woman she had become.
+
+The demonstration ended there. Henry and Anna helped Sonia out of the more final pieces afterward, Julien standing back now because the practical intimacy had shifted again into women's work. They returned instead to talk of London routes, British rain, and which collection pieces would travel well under supervised conditions.
+
+But for Sonia the evening had already divided itself into before and after.
+
+Before, restrictive fashion had been a language she was learning to speak for Henry.
+
+After, it had become something else: a way to stand inside managed helplessness under his hands and discover that even public technicality could carry a private charge strong enough to alter the whole shape of a room.
+
+At the door, while Anna and Julien made their slower, more encumbered way down the front steps, Henry kept Sonia back for one last second under the excuse of seeing them out properly.
+
+"Lunch tomorrow," he said. "Les Petits Chats. Just you."
+
+The invitation landed differently now than it would have in the office corridor. It no longer felt like a speculative next step. It felt selected.
+
+*Yes, Sir.*
+
+"Good."

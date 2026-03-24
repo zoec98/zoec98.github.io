@@ -3,144 +3,250 @@ title: "Chapter 2: A Run by the Lake and Breakfast"
 weight: 2
 ---
 
+
 # A Run by the Lake and Breakfast
 
-Next morning, Anna woke up as the first light of day came in through her curtains.
-She wanted to seize the early morning for a quick run, so she got up and quickly dressed.
-She chose a tank top and leggings, comfortable and perfect for running.
-Then she put on her running shoes and a light jacket, because it would still be chilly by the lakeside.
-A headband kept her hair out of her face.
+Anna woke early and went out before she had time to think herself into staying home.
 
-A few stretches and a quick warmup inside, and then she went out, heading down for the lake, turning north at the shore.
-She loved to run early in the morning, when the city was still quiet.
-Cool, wet air from the lake filled her lungs as she started on the path,
-with earthy fragrances from the park.
-The sun broke through the leaves of the trees.
-It was peaceful and beautiful, her favorite path at this time of the year.
+The lake air still carried the night's cold. It bit pleasantly at the back of her throat as she ran north along the shore, past wet grass and dark tree trunks, with the city only half awake behind her. The first stretch felt easy. The second did what she had gone out there for and burned through the restless energy she had brought back from the lab.
 
-She ran hard, and sped up more at intervals, until her muscles burned.
-When she felt sufficiently burned out, she turned around, keeping a brisk but steady pace.
-This, the way back, was the hard part, with the initial buoyancy of the early morning gone, powering through.
-She enjoyed that challenge.
-Heading home, she came out of the nature by the lake shore back into the city, 
-which was now slowly waking up to an early Saturday morning.
+She pushed the pace in short bursts, then eased off, then pushed again. By the time she turned for home, her legs were warm and heavy and her mind had settled into the blunt, useful rhythm of breath and footfall.
 
-Back at her apartment, she sloppily dropped her muddy shoes by the door,
-and stripped, leaving a line of discarded clothing behind her on the way to the shower.
-Turning it on and setting it to "cook me slowly," she stepped in, 
-washing off the sweat and dirt from her morning exercise.
-She felt good and ready for the day; the run had energized her.
-Still naked, she sat down at her desk, VPN'ed into GAIA. and checked in again on the sequencers.
-Everything was okay and on schedule: The data would be ready in time.
-Just not today.
+It did not last.
 
-She then picked up fresh clothing, her usual "runners casual" and went out.
-Her steps led her down to the Lakeside Café, where she would have met Sonia today,
-and ordered her usual croissant and coffee.
-She sat away from the other patrons, enjoying her breakfast, 
-and also trying to keep up at least some semblance of isolation out of an abundance of caution.
+Back in her apartment, she left a trail of damp clothes on the way to the shower and stood under hot water until the chill went out of her skin. Then, still barefoot, she sat at her desk and checked the sequencers through the GAIA VPN.
 
-Her mind wandered to Sonia, the virus and her work.
-She had been putting on a good face yesterday to Sonia, but these CRISP-Fold markers worried her to no end.
-With the symptoms reported, the virus seemed harmless enough,
-but why go through all this trouble and construct a thing with such a giant genome, just to get a bad head cold?
-Was it badly constructed, the genome's size an artifact of the process?
-But with what little they saw last night, it did not look like this.
-It was elegant, advanced even, in a certain, intangible and hard to describe intuitive way
-that only an expert in viral genetics could see. 
-It was designed, and with some purpose, and that purpose was inscrutable, certainly not a simple cold.
+Everything was still running.
+No errors.
+No dramatic new result waiting for her overnight.
+The data would come when it came.
 
-Sitting at her table and looking over the lake, Anna overheard a conversation at a nearby table.
-A young woman argued, full of frustration.
-She sat among colleagues, who did not take her ideas seriously.
-"It's just not practical," said one, a man of course, dismissing her suggestions outright.
-Anna stopped eating and listened;
-she had heard this particular sentence far too often.
-The woman was apparently named Sienna, by her accent very British, 
-and from what the group spoke about, all of them working at CERN here in Geneva.
-"I've been analyzing the thermal and structural properties of these new composite materials," she reasoned.
-"My simulations show a potential 20% increase in efficiency if we integrate them into our magnets' next upgrade."
-And was shot down immediately.
-"Well, Sienna, that sounds interesting," a German accent chimed in.
-"But you know, these materials have never been tested under the extreme conditions we see in accelerators.
-It's quite a leap to assume they'd just work without extensive validation," one of her male companions raised.
+She should have been relieved.
+Instead the familiar unease tightened again.
 
-And the other jumped in, "Exactly, Markus is right. 
-You're making some big assumptions about material behavior here.
-I think you're not considering the practical engineering challenges.
-We've been working with the current materials for decades because they are proven."
-Anna felt a surge of frustration turning into barely contained anger, with the resolve to remain composed.
-She had been in the exact same situation far too often, 
-and felt drawn to the woman.
-She wanted to help, had to show her she wasn't alone in this.
-Finally, she resolved to jump in, got up, and walked over.
-She even managed to mostly keep the sharp tone out of her voice.
+CRISPR-fold markers.
+Blood-brain-barrier access.
+Dream symptoms attached to a virus with a grotesquely oversized genome that looked elegant under analysis, as if someone had gone to considerable trouble to make it behave well.
 
-"Excuse me, I'm Anna.
-Mind if I jump in here?
-I've been overhearing bits of your conversation, and, well, it's quite the déjà vu for me," she started, almost friendly.
-Sienna turned around and looked at her, up and down, then decided to introduce herself and her companions.
-"I'm Sienna, these are Markus and Luca.
-We're working at CERN.
-Please join us."
+People did not build things like that for no reason.
 
-"Thank you, Sienna," Anna started, and paused to collect herself.
-"It's just... hearing about these new materials and then the immediate leap to skepticism?
-It's almost like a reflex, isn't it?"
-Anna laughed softly, but the laughter did not reach her eyes.
-"My mother, Elena Lefèvre, works in biomathematics, 
-maybe you've heard of her, she went through the same kind of… rigorous 'debate.'"
+Anna closed the laptop and dressed for breakfast in her usual weekend version of herself: comfortable, tidy, ready to pass for relaxed while thinking much too hard.
 
-Markus nodded.
-"Yes, Elena Lefèvre is quite renowned in her field."
+She had planned to meet Sonia at the Lakeside Cafe. That was off now. Sonia needed sleep, isolation, and luck. Still, habit pulled Anna down toward the water, and she was hungry enough to let habit win.
 
-Anna sighed:
-"Right, renowned now, but not before she had to practically move mountains to get her ideas off the ground.
-But I suppose that's how it goes, isn't it?
-You propose something new, and it's met with—how should I put it?—a healthy dose of traditionalism."
+The terrace was already filling when she arrived.
 
-Luca interjected:
-"Well, it's important to be cautious with untested innovations, isn't it?
-I mean, our field is called High Energy Physics for a reason."
+She ordered coffee and a croissant and chose a table with a little distance from the others. Not true isolation, but enough to quiet her conscience. The lake lay flat and pale beyond the railing. Cups touched saucers. Cutlery chimed. A child somewhere behind her laughed and was immediately hushed by a parent.
 
-"Absolutely, caution is key," Anna said with a thin smile.
-"But so is progress, wouldn't you say?
-My mother once said, ‘To innovate is to invite dispute.' 
-She pushed for the use of novel computational models and, well,
-let's just say the initial response was less than enthusiastic."
-She paused, searching carefully for words.
-"It's curious, though, how once the results were in, the same skeptics hailed these innovations as game-changers."
+Anna tore off a piece of croissant and found herself thinking about Sonia anyway.
 
-This is where Sienna picked up:
-"That's exactly the spirit I want to bring to our work.
-Starting with a pilot project might allow us to demonstrate the practical benefits without overcommitting."
+![](002-a-run-by-the-lake-and-breakfast.jpg)
 
-Anna lent her support:
-"A pilot project sounds like a perfect compromise.
-It gives you a chance to test the waters without… well,
-sinking the ship with doubt before it even leaves the harbor."
-Finally, she managed a genuine smile.
-"I think it's worth considering, don't you?"
+*Anna at breakfast, at the lakeside cafe.*
 
-The trio went back to discussing Sienna's idea, this time taking her more seriously,
-and actually making constructive contributions.
-Anna slowly went back to her table, trying to get back into a relaxed breakfast mood again.
-A memory came to her of her mother Elena.
-Anna was only ten years old back then,
-and for the first time stayed with her at a conference,
-quietly listening and trying to understand what grownups do and how they speak.
+Sonia had looked awful last night, and not only in the usual field-trip way. Anna knew that particular exhaustion well: long flights, stale air, airport food, a body running on caffeine and stubbornness. What unsettled her was what sat underneath it. That slight heaviness in Sonia's face. The way she had admitted feeling off and then tried to minimize it at once.
 
-It was at a conference on computational biology in Paris.
-Elena got involved in a discussion over lunch.
-Her sparring partner was Professor Martin Keller, a respected researcher with set ideas.
-They spoke about biomathematical models in understanding viral replication.
-That was a field where Elena had recently published a groundbreaking paper.
-Keller did not realize that the author was this Elena, and mansplained to her:
-"You should really read Lefèvre et al. on the subject," he advised.
+Anna reached for her coffee and stopped mid-motion when she heard the sentence from the next table.
 
-"I *am* Lefèvre et al.," Elena corrected him, showing him her name tag.
-Within a laughing crowd, Keller was embarrassed but respected her more after that.
-For Anna, watching her mother stand up for herself was important.
-She was her role-model, she taught her to be strong and speak up.
-Anna smiled, remembering her mother's courage.
-She felt proud and ready to face her own challenges.
+"It's just not practical."
+
+There it was.
+Delivered in a patient male voice, smooth with the confidence that the discussion had already been won.
+
+Anna turned her head.
+
+Three people sat at the neighboring table, all around her age or a little older, dressed in the half-casual, half-professional way that screamed scientific institution on a weekend. The woman had short dark hair, a narrow face, and the expression of someone trying very hard not to show how angry she was. British, Anna guessed from the accent. The men with her were already leaning into the familiar posture of reasonable correction.
+
+"I'm not saying throw it straight into production," the woman said. "I'm saying run a proper pilot instead of dismissing it before anyone even tests it."
+
+"Sienna," said the blond one, German by the sound of him, "you are talking about replacing materials in accelerator systems, not changing the office coffee machine."
+
+The other man gave a little laugh into his cup.
+"Exactly. If the simulations are wrong, we lose time and money for a marginal gain."
+
+Sienna put her cup down too hard.
+"Twenty percent is not marginal."
+
+"In a simulation."
+
+"Yes, Luca, in a simulation. That is how preliminary work functions."
+
+Anna looked away for a second and out toward the lake, because she already knew what would happen next if she let it go. The men would keep smiling. Sienna would sharpen. They would call her emotional without using the word. By the end of breakfast, she would be the one who had made the conversation difficult.
+
+It hit too close.
+
+She had seen the pattern in labs, in meetings, in conferences, in classrooms. She had seen it happen to herself. She had seen it happen to her mother so often that some part of her nervous system now lit up the moment a woman's argument was treated like a personality flaw.
+
+Sienna was speaking again.
+"I've run the thermal models six times with different stress assumptions. The composite holds. If we use it in the next magnet upgrade, we get efficiency and lower maintenance."
+
+Markus shook his head.
+"You keep saying if. That is the whole point."
+
+Luca leaned back in his chair. "Maybe save the revolution for after validation."
+
+That did it.
+
+Anna stood up with her coffee in hand and crossed over before she could talk herself out of it.
+
+"Excuse me," she said. "I know this is rude, but I've been sitting right there listening to the oldest conversation in Europe and it's starting to annoy me."
+
+Three faces turned toward her.
+
+Sienna blinked first, surprised into a short laugh.
+"That is an unusual opening."
+
+"I know. Sorry. I'm Anna." She looked at the men. "And unless either of you has already run the pilot she is asking for, telling her it's impractical this early is just a more polished way of saying no."
+
+The blond man straightened.
+"Markus," he said. "And we are actually discussing engineering constraints, not staging a gender seminar."
+
+"Convenient for you," Anna said.
+
+Luca's brows went up. "Excuse me?"
+
+"You heard me."
+
+Sienna sat very still now, watching Anna with open interest and what looked dangerously close to hope.
+
+Anna turned to her. "CERN?"
+
+"Unfortunately yes," Sienna said. "Materials group."
+
+"Thought so."
+
+Markus gave a dry smile. "And what group are you from, since we're collecting interventions from adjacent tables?"
+
+"Virology. GAIA." Anna sipped her coffee and kept her voice level. "Which means I'm professionally familiar with men declaring things unrealistic before they've understood the proposal."
+
+Luca gave a little shrug that was meant to read as amused patience.
+"We understood it. We just don't think simulation output is enough."
+
+"She didn't say it was enough," Anna said. "She said run a pilot."
+
+"A pilot still takes budget."
+
+"Then argue budget honestly instead of pretending the idea is unserious."
+
+There was a brief silence. The sort that makes nearby tables start listening without looking as if they are listening.
+
+Sienna leaned forward.
+"Thank you."
+
+"You're welcome."
+
+Markus folded his arms.
+"All right. Since we're apparently doing this in public, let me be direct. Novel materials sound exciting every year. Most of them fail under real conditions. We work with systems that don't reward optimism."
+
+Anna nodded once.
+"Fine. That's finally a real objection."
+
+He looked almost disappointed she had agreed.
+"It is the obvious objection."
+
+"Yes, and it's very different from telling her the whole thing isn't practical."
+
+Luca tried again. "You are turning a technical disagreement into a moral event."
+
+Anna gave him a look.
+"No. I'm objecting to the ritual where a woman says something ambitious and two men immediately appoint themselves custodians of reality."
+
+Sienna coughed into her hand to hide a grin.
+
+Markus reddened slightly. "That is unfair."
+
+"Maybe." Anna tilted her head. "Then prove it. Ask her what validation she wants. Ask what scale of test she is proposing. Ask what would change your minds. You're scientists. Behave like it."
+
+For a second nobody spoke.
+
+Then Sienna, with a composure Anna admired at once, slid a notebook across the table toward the two men.
+"Fine. Pilot proposal. Small-scale component test under current load assumptions, then thermal cycling, then stress comparison against the current standard. If it fails, you can both say I told you so for the rest of the year."
+
+Luca looked down at the notes despite himself.
+"You already sketched it out?"
+
+"Obviously."
+
+Markus read over his shoulder.
+"This cost estimate is too low."
+
+"Good," Sienna said. "Now we're discussing the actual proposal."
+
+Anna felt her anger loosen, not because the men had transformed into better people in the span of a minute, but because the conversation had been dragged onto honest ground. That was often the best victory available.
+
+Sienna looked up at her again.
+"Do you want to sit down? Since you've already detonated the table, you may as well stay."
+
+Anna laughed and took the empty chair.
+"Only for a minute. I was supposed to be having a quiet breakfast and failing at it."
+
+Sienna introduced them properly after that. Markus, materials engineering. Luca, systems integration. Herself, computational modelling. Anna gave them only the short version in return.
+
+"GAIA?" Sienna said. "Virus people?"
+
+"Among other things."
+
+"That sounds cheerful."
+
+"It isn't, at the moment."
+
+Sienna caught something in that answer and let it pass. Anna appreciated that.
+
+What followed was better. Not perfect. Markus still pushed too hard on cost. Luca still had the habit of translating Sienna's ideas into safer language as if they improved by passing through him. Sienna pushed back every time, and Anna, when she had to, pushed with her.
+
+By the end, the air at the table had changed.
+
+Markus tapped the edge of the notebook.
+"All right. Send me the latest model version and I'll look at the materials assumptions."
+
+Luca nodded more reluctantly.
+"If the numbers hold, I can ask around about test capacity."
+
+Sienna sat back and let out a breath through her nose.
+"That is all I wanted in the first place."
+
+"I know," Anna said.
+
+Sienna's mouth curved.
+"You do, apparently."
+
+Anna stood.
+"Now I am going back to my coffee before I become fully unbearable."
+
+"Too late," Luca said.
+
+"Almost certainly," Anna agreed.
+
+Sienna stood as well and offered her hand.
+"Thank you. Seriously."
+
+Anna shook it.
+"Any time."
+
+She carried her coffee back to her own table while the four of them were still faintly smiling in the way people do after a near-argument that became productive at the last possible second.
+
+Only after she sat down did the old memory rise.
+
+Paris.
+She had been ten and unbearably pleased to be allowed to travel with her mother to a conference on computational biology. The hotel dining room had seemed impossibly adult to her then, all glass, pale linen, and people speaking with intensity over lunch as if every meal were a continuation of a paper.
+
+Professor Martin Keller had been one of those men who took up more social space than his body required. Pleasant voice. Established name. A way of explaining things that sounded generous right up until you noticed he was always explaining them to women.
+
+Elena had been discussing biomathematical models of viral replication with him when Keller said, with all the warmth of a man bestowing a useful tip, "You should really read Lefevre et al. on the subject."
+
+Anna could still see the flicker in her mother's face before the answer.
+
+Elena put down her fork, touched her conference badge, and said, "I am Lefevre et al."
+
+The people around them laughed. Keller flushed dark red. Then, because he was not a fool, he recovered and asked a better question than the one he had started with.
+
+Anna had remembered the line for years because it was funny, but also because it showed her the way the world worked for women.
+Her mother had not smiled to soften it. She had not apologized for embarrassing him. She had corrected him cleanly and gone on speaking as if that were the most natural thing in the world.
+
+That was the part that stayed:
+The expectation that her work should be met at full height.
+
+Anna looked out over the lake with her coffee cooling in her hand.
+She wished, sharply and unexpectedly, that she could call Elena right then and tell her about the table next to hers, about Sienna, about the virus, about Sonia at home in isolation and a genome she could not stop worrying at.
+
+Instead she sat in the morning light and let the memory settle.
