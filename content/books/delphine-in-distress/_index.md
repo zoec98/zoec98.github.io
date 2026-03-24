@@ -338,7 +338,7 @@ That’s when I decided to take things to the next level.
 I created Delphine in Distress.
 
 First, the look.
-I dyed my hair neon pink and designed a signature e-Girl aesthetic: thick makeup in shades of pink[Makefile](../../../../done/delphine-in-distress/Makefile) and purple,
+I dyed my hair neon pink and designed a signature e-Girl aesthetic: thick makeup in shades of pink and purple,
 with LED-lighted cat ears perched on my head.
 My outfit completed the persona—a white, pink, and violet catsuit with strategic cutouts for my breasts and crotch,
 paired with matching heels.

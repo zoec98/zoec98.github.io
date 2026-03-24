@@ -72,6 +72,12 @@ This is supposed to be dark horror for Halloween.
 
 ![](survivors-title.jpg)
 
+# EPUB
+
+Read below, or click on the image for the EPUB download:
+
+[![](survivors-title.jpg)](survivors.epub)
+
 # RAID
 
 The hum of the electric transporter was low, a whirr that went deep, into the bone.
