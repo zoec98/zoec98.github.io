@@ -25,6 +25,12 @@ and the raw beauty of a world unafraid to celebrate the sacred in flesh.
 
 ![](sol-invictus-title.jpg)
 
+# EPUB
+
+Read below, or click on the image for the EPUB download:
+
+[![](sol-invictus-title.jpg)](sol-invictus.epub)
+
 # Sol Invictus
 
 ## Transfer
