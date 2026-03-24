@@ -43,6 +43,12 @@ elegance, and submission are woven as tightly as the laces that shape her body.
 
 {{% /details %}}
 
+# EPUB
+
+Read below, or download the EPUB here:
+
+[dressing-sonia.epub](dressing-sonia.epub)
+
 # Dressing Sonia
 
 The room held a faint chill, the sort of coolness that clung to early mornings in winter.
