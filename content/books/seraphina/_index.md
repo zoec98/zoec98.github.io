@@ -45,7 +45,7 @@ A darkly elegant story of revenge, control, and the uneasy boundary between surv
 
 Read below, or click on the image for the EPUB download:
 
-[![](seraphina-title.jpg)]()
+[![](seraphina-title.jpg)](seraphina.epub)
 
 # India
 
