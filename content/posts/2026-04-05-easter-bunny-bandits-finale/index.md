@@ -6,10 +6,11 @@ tags: [ "Media", "DeviantArt" ]
 draft: false
 ---
 
-These are the media files from the [Easter Bunny Bandits Finale](https://www.deviantart.com/boundsakura/art/Easter-Bunny-Bandits-Finale-1317852165) by [BoundSakura](https://www.deviantart.com/boundsakura) and [ThifanyJohnSt](https://www.deviantart.com/thifanyjohnst). I bought the deviation and make them available here via Google Drive.
+These are the media files from the [Easter Bunny Bandits Finale](https://www.deviantart.com/boundsakura/art/Easter-Bunny-Bandits-Finale-1317852165) by [BoundSakura](https://www.deviantart.com/boundsakura) and [ThifanyJohnSt](https://www.deviantart.com/thifanyjohnst). I bought the deviation and make them available here as a ZIP download and via Google Drive.
 
 Downloads:
 
+- <a href="./Easter%20Bunny%20Bandits.zip" download>Download `Easter Bunny Bandits.zip`</a>
 - [Open the Google Drive folder](https://drive.google.com/drive/folders/1sAfKeVg5tyn4RndGkWYNk9oWC3Q2Tvyt?usp=share_link)
 
 The original text says:
