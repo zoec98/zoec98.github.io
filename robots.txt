@@ -1,1 +1,77 @@
-User-agent: *
+Zoé's Stories
+
+- Shadow Siren: /books/shadow-siren/
+- Locked (Amelie 1): /books/amelie-locked/
+- Bitche (Amelie 2): /books/amelie-bitche/
+- Belted (Amelie 3): /books/amelie-belted/
+- The Atlantean Slave Collar: /books/atlantis/
+- Angelique: /books/angelique/
+- How Ethan met Claire (Claire 1): /books/claire-and-ethan-meet/
+- Claire turns the Tables (Claire 2): /books/claire-turns-the-tables/
+- Claire and Ethan visit a Restaurant (Claire 3): /books/claire-restaurant/
+- Claire's Valentine's Day (Claire 4): /books/claire-valentine/
+- Claire and Ethan at the Opera (Claire 5): /books/claire-opera/
+- The Suit: /books/corinne-suit/
+- Delphine in Distress: /books/delphine-in-distress/
+- Delphine takes a Break: /books/delphine-farm/
+- Seraphina: /books/seraphina/
+- Infection: /books/infection/
+- Chapter 1: Friday Evening, Geneva: /books/infection/001-friday-evening-geneva/
+- Chapter 2: A Run by the Lake and Breakfast: /books/infection/002-a-run-by-the-lake-and-breakfast/
+- Chapter 3: Descent into Sickness: /books/infection/003-descent-into-sickness/
+- Chapter 4: Anna is Changed: /books/infection/004-anna-is-changed/
+- Chapter 5: Dressing Changed: /books/infection/005-dressing-changed/
+- Chapter 6: Shopping for a new Identity: /books/infection/006-shopping-for-a-new-identity/
+- Chapter 7: Sonia meets the Changed Anna: /books/infection/007-sonia-meets-the-changed-anna/
+- Chapter 8: Good Girl: /books/infection/008-good-girl/
+- Chapter 9: Sonia picks up Anna: /books/infection/009-sonia-picks-up-anna/
+- Chapter 10: Sonia packs and flies to Shanghai: /books/infection/010-sonia-packs-and-flies-to-shanghai/
+- Chapter 11: Anna and Julien: /books/infection/011-anna-and-julien/
+- Chapter 12: Lakeside Proposal: /books/infection/012-lakeside-proposal/
+- Chapter 13: A Giving-Away Ceremony: /books/infection/013-a-giving-away-ceremony/
+- Chapter 14: In Shanghai: /books/infection/014-in-shanghai/
+- Chapter 15: Maid in Training: /books/infection/015-maid-in-training/
+- Chapter 16: A Maid's work: /books/infection/016-a-maid-s-work/
+- Chapter 17: Return from Shanghai: /books/infection/017-return-from-shanghai/
+- Chapter 18: Immune to the Virus, but not to Social Pressure: /books/infection/018-immune-to-the-virus-but-not-to-social-pressure/
+- Chapter 19: Masking up: /books/infection/019-masking-up/
+- Chapter 20: Decoding the Virus: /books/infection/020-decoding-the-virus/
+- Chapter 21: Living in a Changed Society: /books/infection/021-living-in-a-changed-society/
+- Chapter 22: The Vial: /books/infection/022-the-vial/
+- Chapter 23: Sonia does not want to be alone: /books/infection/023-sonia-does-not-want-to-be-alone/
+- Chapter 24: Anna's Giving-Away: /books/infection/024-anna-s-giving-away/
+- Chapter 25: Giving Anna Away: /books/infection/025-giving-anna-away/
+- Chapter 26: Fashionista: /books/infection/026-fashionista/
+- Chapter 27: Anna and Julien's departure for London: /books/infection/027-anna-and-julien-s-departure-for-london/
+- Chapter 28: A Photography Project: /books/infection/028-a-photography-project/
+- Chapter 29: Anna and Julien in London: /books/infection/029-anna-and-julien-in-london/
+- Chapter 30: The Photoshoot: /books/infection/030-the-photoshoot/
+- Chapter 31: Exploring London: /books/infection/031-exploring-london/
+- Chapter 32: Maid Service: /books/infection/032-maid-service/
+- Chapter 33: The Eden Nexus: /books/infection/033-the-eden-nexus/
+- Chapter 34: Trial Maid: /books/infection/034-trial-maid/
+- Chapter 35: Reunion in the Garden: /books/infection/035-reunion-in-the-garden/
+- Chapter 36: Three years earlier: The End of Delacroix and Partners: /books/infection/036-three-years-earlier-the-end-of-delacroix-and-partners/
+- Chapter 37: Planning a charity ball: /books/infection/037-planning-a-charity-ball/
+- Chapter 38: Two years earlier: Fitting: /books/infection/038-two-years-earlier-fitting/
+- Chapter 39: The Green Gala opens: /books/infection/039-the-green-gala-opens/
+- Chapter 40: Two years earlier: Exploration: /books/infection/040-two-years-earlier-exploration/
+- Chapter 41: The Charity Gala commences: /books/infection/041-the-charity-gala-commences/
+- Chapter 42: Two years earlier: Breaking Point: /books/infection/042-two-years-earlier-breaking-point/
+- Chapter 43: Kidnapped!: /books/infection/043-kidnapped/
+- Chapter 44: After the Gala: /books/infection/044-after-the-gala/
+- Chapter 45: A Day at the Races: /books/infection/045-a-day-at-the-races/
+- Chapter 46: Two years ago: Decommissioning an Airport: /books/infection/046-two-years-ago-decommissioning-an-airport/
+- Chapter 47: Plans involving Art and Fashion: /books/infection/047-plans-involving-art-and-fashion/
+- Chapter 48: A Night at the Opera: /books/infection/048-a-night-at-the-opera/
+- Chapter 49: Sonia remembers: /books/infection/049-sonia-remembers/
+- Chapter 50: Intermission: /books/infection/050-intermission/
+- Chapter 51: The Conference: /books/infection/051-the-conference/
+- Chapter 52: Out of the Shell: /books/infection/052-out-of-the-shell/
+- Chapter 53: Whole again: /books/infection/053-whole-again/
+- Dressing Sonia (from the World of 'Infection'): /books/sonia-dressing/
+- Something about Zoé: /books/something-about-zoe/
+- Sol Invictus: /books/sol-invictus/
+- Survivors: /books/survivors/
+
+
