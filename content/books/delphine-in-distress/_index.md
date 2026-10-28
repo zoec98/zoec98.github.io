@@ -184,6 +184,8 @@ I created Delphine in Distress.
 
 First I made her visible. I dyed my hair neon pink, learned to paint my face in heavy pink and purple, and perched glowing LED cat ears above my reinforced braids. I designed a white, pink, and violet catsuit with open breasts and crotch, then added matching heels. Delphine was bright, shameless, and easy to recognize in a thumbnail.
 
+![](delphine.jpg)
+
 Next I installed ring lights and four cameras. One showed my whole body, one framed my face, and two gave paying viewers close views of whatever the rig did to me. The site carried text and voice messages, live sound, camera switching, and a control panel for the machine.
 
 Control went to the highest bidder. A user could buy a block of time, but anyone could take it by paying more. Part of the new bid went to the former controller, which softened the loss, and part went to me. Viewers competed over my bound body while I profited from every quarrel.
