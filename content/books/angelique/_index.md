@@ -48,23 +48,22 @@ Read below, or click on the image for the EPUB download:
 
 ## Chapter 1: A Dinner in Ibiza
 
-Angelique checked into the Nobu Hotel Ibiza Bay, just a short drive from the Marina.
-As she entered her suite, the view of the ocean caught her attention, and she took a moment to unwind after her flight.
-Then, eager to make the right impression, she chose a bold outfit—a tailored,
-off-the-shoulder navy dress
-that hugged her frame and heels with enough height to give her that extra boost of confidence.
-She added a sleek red lipstick, a subtle nod to her signature look,
+Angelique checked into the Nobu Hotel Ibiza Bay, a short drive from the marina.
+In her suite, she paused at the ocean view and let the weariness of the flight subside.
+Eager to make the right impression, she chose a tailored, off-the-shoulder navy dress
+that hugged her frame, and heels high enough to make her stand a little straighter.
+She added her signature red lipstick
 and a few gold bracelets that caught the light as she moved.
 It was her way of blending business with just enough flirtation to keep things interesting.
 
 Downstairs in the hotel’s restaurant, she spotted Olivier at a table near the terrace.
-He looked as reserved as ever in a black blazer, quietly elegant,
-but there was a hint of surprise in his expression as he saw her approach.
+He sat quietly in a black blazer, as reserved as ever,
+but looked up in surprise as she approached.
 Seated beside him was a tall, tanned man with sandy blonde hair,
-whose relaxed posture hinted at years spent on deck rather than at a desk.
+who sat as loosely as if he were still on deck.
 Opposite them was a woman with dark, glossy hair and a piercing gaze, already deep in conversation with Olivier.
 
-Olivier stood to greet her, extending a hand with his usual understated charm.
+Olivier stood and offered his hand.
 “Angelique, welcome to Ibiza.
 I’d like you to meet my friends.
 This is Marc Delacroix, the man behind our little gadget venture,”
@@ -72,9 +71,9 @@ he nodded toward the blonde man, who gave her an easy smile.
 “And Elise Dubois,” Olivier continued, “she’s writing a feature on Marc’s VC business for The Economist.”
 
 “Pleasure to meet you,” Angelique said,
-her green eyes sparkling with curiosity as she glanced at Elise, who greeted her warmly.
+glancing at Elise, who greeted her warmly.
 
-Dinner began, and soon the conversation flowed as naturally as the wine.
+Over dinner and wine, they began to talk.
 Marc leaned forward,
 eyes twinkling as he explained the gadget: a rugged, solar-powered satellite hotspot designed for sailors,
 climbers, and travelers who needed to stay connected off the grid.
@@ -82,11 +81,11 @@ climbers, and travelers who needed to stay connected off the grid.
 “Gives you a lifeline anywhere on earth, or at least anywhere with a view of the sky.
 Angelique, it’s the kind of tech that would do well on your channel.”
 
-Elise chimed in with a laugh, “Well, Marc here would know.
+Elise laughed. “Well, Marc here would know.
 He’s had his fair share of off-grid adventures—though not all of them went smoothly.
 Tell her about your trip to Madagascar, Marc.”
 
-Marc’s face split into a grin.
+Marc grinned.
 “Ah, that one.”
 He chuckled, leaning back in his chair.
 “It was a year ago.
@@ -98,8 +97,8 @@ We ended up stranded on a sandbank for two days.
 No radio, no cell signal.
 When we finally got rescued, I promised myself I’d never sail without the right tech again.”
 
-Everyone laughed, and Angelique found herself glancing across the table at Elise, who was clearly enjoying the story.
-Elise then shared one of her own—a harrowing encounter during her time reporting in Beirut.
+Everyone laughed. Across the table, Elise was still smiling.
+Then Elise told them about an encounter while reporting in Beirut.
 
 “It was a tense week,” Elise began, eyes darkening.
 “I was doing a series on young activists.
@@ -109,15 +108,14 @@ She paused, flashing a self-deprecating smile.
 A colleague managed to get the French embassy on the line, but those were some of the longest hours of my life.
 After that, I learned to tread more carefully.”
 
-Angelique’s respect for Elise deepened as she listened, admiring the other woman’s resilience.
+Angelique tried to picture Elise in that police station, keeping her nerve.
 “You’re braver than I am,” she murmured, catching Elise’s eye.
 Elise shrugged, a playful smile returning to her lips.
 
 “And you’re smarter than me, building an entire brand on your own,” Elise replied, tilting her head thoughtfully.
 “You’ll make this WaveLink look amazing, I can already tell.”
 
-As the conversation wound down over a final glass of wine, Marc leaned forward,
-his eyes gleaming with that unmistakable spark of adventure.
+Over a final glass of wine, Marc leaned forward.
 
 “You know,” he said,
 swirling his glass thoughtfully, “the Mediterranean is stunning this time of year, especially on a good boat.
@@ -131,7 +129,7 @@ Elise’s eyes lit up.
 “I could use a week away from deadlines.”
 
 Angelique’s gaze flicked to Olivier, curious to see his reaction.
-He held her glance, then looked to Marc with a nod of approval.
+He held her glance, then nodded to Marc.
 “Not a bad idea,” he agreed, then turned back to Angelique with a subtle grin.
 “And I think Angelique would make an excellent addition to our crew.
 What do you say?”
@@ -149,24 +147,22 @@ Good food, good company.”
 He grinned, raising his glass to them.
 “To our journey.”
 
-They clinked glasses, each of them caught up in the excitement of it.
+They clinked glasses.
 As the evening wore on, Angelique felt Olivier’s gaze linger on her now and then,
-though he seemed content to let the moment breathe without pressing forward.
-There was energy in the air,
-an unspoken understanding that they’d soon have all the time and space they’d need aboard the Epicurean.
+though he made no move to draw her aside.
+Soon they would be aboard the Epicurean together.
 
-Once they returned to their rooms, Angelique felt the thrill of anticipation bubbling beneath the surface.
-She could already picture it—the gentle rocking of the boat,
+Back in her room, Angelique pictured the gentle rocking of the boat,
 the sparkle of sunlight on the water, the nights spent under starlit skies.
 And then, the thrill of knowing she’d be in close quarters with Olivier for a week.
 
 ## Chapter 2: A Departure from Ibiza
 
 The next morning, Angelique arrived at Marina Ibiza,
-her excitement barely contained as she spotted the Epicurean moored and waiting.
+and grinned at the sight of the Epicurean at her mooring.
 Marc was already there, overseeing the final checks and talking to a marina attendant.
 Elise arrived just behind Angelique, her expression as eager as Angelique’s, and Olivier soon joined,
-casting a subtle smile her way as he approached.
+smiling at her as he approached.
 
 Once they were all on board, Marc handled the lease paperwork,
 then turned to his makeshift crew with a grin.
@@ -180,38 +176,36 @@ showing them the cockpit, the galley, and the seating area, then down to the cab
 “Two cabins in the back,” he gestured toward the stern,
 where Elise and he would be staying, “and the two forward cabins for Olivier and Angelique.”
 
-Angelique noted the spaciousness of her cabin, surprised at how the boat managed to blend luxury with functionality.
-It was smaller than any hotel suite she’d ever stayed in,
-but there was a coziness to it, an inviting sense of adventure.
+Her cabin was roomy for a boat, though smaller than any hotel suite she had stayed in.
+She liked its snugness, the way everything fitted within reach.
 She shared a knowing glance with Olivier, who seemed equally intrigued.
 
 Before they could settle in, Marc’s voice called them back to the deck.
 “All right, team, we’ve got supplies here for two weeks—plenty of water,
 food, and, of course, a respectable stash of wine.”
 They chuckled as a marina crew began unloading crates and boxes.
-Together, they formed a line to stow everything efficiently,
-filling the galley and storage spaces with enough provisions to keep them well-fed and hydrated.
+They formed a line and passed the supplies down to the galley and storage lockers.
 
-When the last of the supplies were packed away, Marc gathered everyone around for a safety rundown.
+When they had stowed the last crate, Marc gathered them for a safety briefing.
 His usual easygoing manner had sharpened with purpose.
 “Listen up.
 Everyone’s a captain in fair weather,” he said, his tone steady but serious,
 “but here’s what you need to know to make sure we’re all safe if things get rough.”
 
-He went over essential protocols: how to work the life jackets,
-operate the emergency radio, and the importance of keeping a cool head.
+He showed them how to use the life jackets and emergency radio,
+and stressed the need to keep calm.
 “If anything happens,” he said, looking each of them in the eye, “we’ll handle it together.
 But everyone needs to know the basics.”
 
-Angelique found herself listening intently.
-While she didn’t imagine they’d encounter anything too dangerous, Marc’s words carried weight.
+Angelique listened closely.
+She had not expected danger, but Marc spoke as though these were things she might need to know.
 A few minutes later, he gave her shoulder a reassuring pat, as if sensing her thoughts.
 
 By two in the afternoon, they were ready to set off.
-As the lines were cast and Marc guided the boat out of the marina,
+As they cast off and Marc guided the boat out of the marina,
 the sea stretched out before them, wide and welcoming.
 The October sun cast a soft glow on the waves, and the Epicurean moved forward smoothly,
-leaving the marina behind as they began their journey.
+leaving the marina behind.
 
 With a steady, moderate wind pushing them forward,
 Marc calculated that the journey to Cartagena could take about two days if they kept a relaxed pace,
@@ -224,12 +218,12 @@ After clearing the marina, Marc turned to the crew.
 I’ll keep the engine running at low speed for rudder control, but I want everyone to get a feel for the process.
 Ready?”
 
-They moved into position, and soon it was clear that the teamwork needed some polishing.
+They took their places, then lost track of one another.
 Lines tangled, hands slipped, and the mainsail caught awkwardly.
 Marc shook his head with a wry grin, signaling them to bring everything down.
-“Again,” he called, encouraging them, insistent that they work together as a team.
+“Again,” he called.
 
-On the second attempt, the process went smoother, with each of them more aware of their timing and positioning.
+On the second attempt, they timed their movements better.
 The sails caught the wind gracefully, the mainsail filling and the foresail billowing.
 Satisfied, Marc nodded, though he wasn’t quite finished yet.
 
@@ -238,7 +232,7 @@ demonstrating how they’d reduce sail in stronger winds.
 He took them through the steps with patience,
 showing them where to handle the sheets and where to keep clear of the boom.
 
-He then gave them a taste of maneuvering,
+He then had them practice maneuvers,
 tacking and jibing to get them accustomed to the motion of the boat and the swing of the boom.
 “Remember,” he said, pointing to the mainsail boom, “keep your heads down and be aware of where it’s headed.
 This thing doesn’t care if you’re watching.”
@@ -253,8 +247,8 @@ Then you two are up.
 Olivier, if anything feels off—anything—wake me.
 I don’t expect trouble, but it’s better to be sure.”
 
-Olivier gave a quick nod, and Angelique caught his eye with her apprehension.
-This was far from her typical environment,
+Olivier nodded, and Angelique looked at him, suddenly uncertain.
+She had never stood a night watch,
 but the prospect of taking the helm under the stars sent a thrill through her.
 Elise squeezed her arm reassuringly.
 “You’ll get the hang of it,” she said with a warm smile.
@@ -262,14 +256,13 @@ Elise squeezed her arm reassuringly.
 As the afternoon stretched on, the Epicurean glided smoothly,
 the sun lowering over the horizon and the Mediterranean sparkling around them.
 
-The hours on the water introduced Angelique to the curious ebb and flow of life at sea.
+Angelique began to learn the rhythm of life at sea.
 Whenever Marc called for a maneuver, everyone snapped into action, abandoning books, tablets, and earbuds,
 letting them clatter down the stairs to the main cabin before hurrying to their posts.
 At Marc’s commands, they shifted ropes, adjusted the sails, and double-checked their positions,
 moving in a practiced chaos that ended as quickly as it began.
 
-In between these bursts of activity, though,
-there was an almost endless stretch of calm—a time for relaxing, sunbathing,
+Between maneuvers came long stretches of calm—time for reading, sunbathing,
 and letting the warm Mediterranean breeze wash over them.
 Angelique made herself comfortable on the foredeck, sprawled out under the sun, knowing Olivier had a front-row view.
 She shifted, letting her dress catch the light and give him a hint of the bare skin along her back and shoulders.
@@ -280,7 +273,7 @@ Just as she opened her mouth to ask him to handle the sunscreen on her back, Mar
 cutting through the lazy quiet of the afternoon.
 
 “Maneuver up!
-Large tanker coming up behind us, so lets give her a wide berth.”
+Large tanker coming up behind us, so let’s give her a wide berth.”
 He gestured to a massive commercial ship in the distance, moving fast and growing larger by the second.
 
 Angelique sighed, rolling to her feet, but there was an undeniable thrill in the sudden switch to action.
@@ -319,11 +312,9 @@ The thrill of his words sent a shiver through her, but just then, Elise’s voic
 Olivier’s eyes darkened, lingering on hers for a moment longer before he released her with a reluctant grin.
 She smoothed her dress, and they made their way below,
 catching Marc’s approving nod as they sat around the compact table.
-Marc and Elise had whipped up a simple yet delicious meal, fragrant with fresh herbs and seasoned to perfection.
-Conversation flowed easily as they swapped stories,
-punctuated by Marc’s occasional checks on the radar to ensure they stayed on course.
-Elise talked about her travels, and Marc shared tales of his own experiences at sea,
-each story lending the evening a warm, familiar feel.
+Marc and Elise had made a simple meal fragrant with fresh herbs.
+Elise told stories of her travels, and Marc answered with his own from the sea,
+pausing now and then to check the radar.
 
 As they finished, Marc reminded Olivier and Angelique of their shift in the early hours.
 “We’ll hold the fort until one,” he said, shooting a quick look at Olivier.
@@ -343,8 +334,8 @@ As his hand slid over her hip, she finally understood his warning.
 Breathless, she whispered against his lips, “I’m ready to feed it.”
 
 As Olivier pushed Angelique into the cabin,
-closing the door with a deft kick, his hands were already slipping her dress down over her shoulders,
-letting it fall in a soft pool at her feet.
+closing the door with a kick, his hands were slipping her dress down over her shoulders,
+letting it pool at her feet.
 His fingers traced over her skin,
 sliding under the straps of her swimsuit and tugging it down, revealing her inch by inch.
 The intensity in his gaze made her shiver, the hunger and the purpose that sent a thrill through her.
@@ -357,75 +348,72 @@ a quiet promise that he wouldn’t be gentle tonight.
 Though Olivier was no towering figure,
 there was something in the way he held her that made her feel utterly at his mercy.
 
-He took his time, his hands and mouth exploring her with patience that both taunted and thrilled her.
-Whenever she tried to pull him closer,
-to take some measure of control, he thwarted her with a gentle but unyielding pressure,
-his lips and fingers finding sensitive spots that left her breathless.
-The more she tried to regain control, the more he seemed to revel in keeping her pinned beneath his touch,
+He took his time, exploring her with hands and mouth.
+He took his time, which taunted and thrilled her.
+Whenever she tried to pull him closer to take some control,
+he thwarted her with a gentle but unyielding pressure.
+His lips and fingers found her sensitive spots and left her breathless.
+The more she tried, the more he seemed to revel in keeping her pinned beneath his touch,
 guiding her to surrender completely.
 
-Her breaths came faster, each one mingling with soft gasps as he worked his way across her skin,
+Her breaths came faster as he worked his way across her skin,
 touching and teasing her in ways that left her powerless.
 She’d thought she was the one tempting him, yet here she was, helpless under his gaze and his touch,
 feeling herself unraveling as he took her further than she’d anticipated.
 
 Olivier held Angelique’s gaze, his smirk dangerously playful as he leaned closer.
-His voice dropped to a low growl, the question lingering between them.
+His voice dropped to a low growl and he deadpanned:
 "Would you offer your throat to the wolf with the red roses?"
 
-She felt a shiver roll down her spine, meeting his intense eyes and understanding the promise they held.
+A shiver rolled down her spine, looking into his intense eyes.
 If she nodded, he’d make her his, right here, right now, and there would be no holding back.
-Her voice was barely a whisper, but steady as she asked, “Do you have a condom?”
+Breaking the mood, she asked:
+“Do you have a condom?”
 
-He nodded, pulling one from his pocket with a grin, and she gave her answer with a simple nod of her own.
+He nodded, and grinned, pulling one from his pocket,  and she answered with a simple nod of her own.
 That was all it took—Olivier growled softly,
-and the tension that had simmered between them finally snapped as he moved to claim her.
+and the tension was back as he moved to claim her.
 
-Meanwhile, above deck, Elise sat comfortably nestled in Marc’s arm in the warm evening air.
+Meanwhile, above deck, Elise sat nestled in Marc’s arm in the warm evening air.
 She’d brought along a novel, one that she knew would make Marc’s interest peak—
 *The Siren*, a particularly spicy romance.
 Her voice was low and soft as she read aloud with the quiet rhythm of the waves against the hull.
 
 Marc’s fingers traced small circles along her hip,
-occasionally drifting up to playfully tease her through the thin material of her swimsuit,
-his fingertips grazing her sensitive skin.
+occasionally drifting up to playfully tease her through the thin material of her swimsuit.
 Every now and then, Elise’s voice would falter, breath catching as Marc’s touch grew bolder.
-She pressed closer into his side, a flush creeping over her cheeks as he continued to explore her in a slow,
-leisurely rhythm that was both tender and maddening.
+She pressed closer into his side, a flushed as he continued to explore her in a slow, leisurely rhythm.
 
 “You’re not making this easy,” she whispered, her voice barely audible as his fingers lingered over her,
-but Marc only chuckled, his grip firm as he held her close.
+but Marc only chuckled and pulled her closer.
 
-“Patience,” he murmured, his voice a steady, teasing rumble in her ear.
+“Patience,” he murmured in a teasing rumble.
 He knew they’d have to wait until the watch change, but for now, he was content to keep her on edge,
 drawing soft gasps and quiet moans that no one but him could hear.
 Elise knew that she wouldn’t find release until Angelique and Olivier took over at 1 a.m.,
-but that only seemed to add to the thrill,
-each touch from Marc heightening the tension that lay beneath the peaceful night.
+but that only seemed to add to the thrill.
 
-As the distant lights of passing ships glided by, their engines a low hum in the night,
-Elise did her best to focus on reading The Siren aloud to Marc.
-She’d been determined to keep going despite the distraction of his hands tracing heated paths across her skin,
-his touch intensifying as the story’s spice level climbed.
-Her swimsuit,
-already clinging damply to her body, made her predicament worse, every teasing touch leaving her flushed and aching.
+Distant lights of passing ships glided by, leaving a low engine hum in the night.
+Elise did her best to focus on reading *The Siren* aloud to Marc.
+She’d been determined to keep going despite his distractions,
+but his touch intensified as the story’s spice level climbed.
+Her swimsuit was clinging damply to her body, made her predicament worse, leaving her flushed and aching.
 
-She knew, Marc’s attentiveness wasn’t accidental.
 Each time her breath caught mid-sentence or her voice wavered,
 he smirked, a look that held just the right amount of satisfaction.
 He was fully aware of the effect he had on her,
-and while the night air kept a slight chill, the heat between them had Elise biting her lip to maintain her composure.
-She was certain he could sense everything—the pheromones, the subtle dampness on her skin.
+and while the night air kept a slight chill, the heat between them had Elise biting her lip.
 It would take all her willpower to hold back until the watch change at one.
 
 Sometime after midnight, Marc closed her book, leaving her in suspense as he gently nudged her shoulder.
 “Go freshen up,” he said, his voice low and suggestive.
 “We still have a bit of time.”
 
-Elise returned to the cabin, stepping under the shower to cool her skin and rinse away the evidence of Marc’s teasing.
-When she reemerged on deck, her long hair hung loose, drying in the gentle breeze,
+Elise returned to the cabin and showered to cool her skin and rinse away the evidence of Marc’s teasing.
+When she reemerged on deck, her long hair hung loose,
 and she wore a short, light sundress that fluttered against her bare skin.
-There was no mistaking that she’d left her swimsuit behind, and Marc’s appreciative glance confirmed she’d hit her mark.
+There was no mistaking that she’d left her swimsuit behind,
+and Marc’s appreciative glance confirmed she’d hit her mark.
 
 He let his gaze wander slowly down her body, taking in every detail,
 then looked back up with a smile of approval, his eyes darkening as they lingered on the curves beneath the dress.
@@ -434,8 +422,7 @@ the corners of his mouth twitching as he checked the time.
 
 “Just a few more minutes,” he murmured, stepping closer.
 He trailed a finger along her shoulder, down to her wrist, leaving her practically vibrating with anticipation.
-The minutes ticked by slowly, each second making her long for the relief she’d been holding off for hours,
-and Marc’s touch only intensified the ache.
+The minutes ticked by slowly, each second making her long for the relief.
 
 As the clock finally neared one,
 the distant sound of Angelique and Olivier stirring below decks signaled the end of their watch.
@@ -448,148 +435,123 @@ pointing out the tanker lights they might see through the early hours and remind
 to wake him if anything seemed amiss.
 Satisfied that everything was in order, Marc gave Olivier a reassuring pat on the shoulder and headed below deck.
 
-When he reached his cabin, he found Elise waiting, her sundress discarded,
-her skin warm and flushed from the long hours of anticipation.
+When he reached his cabin, he found Elise waiting, her sundress discarded.
+Her skin was warm and flushed from the long hours of anticipation.
 She met his gaze with a look that left no question of how ready she was,
 her body responding eagerly to every touch after the night's build-up.
 They lost themselves in each other,
-finally indulging in the release they’d been holding off on, their quiet moans muffled by the gentle creaks of the ship.
+finally indulging in the release they’d been holding off on.
 
 By the time they stirred, the sun was already high.
-Lazily pulling themselves out of bed, they dressed and made their way to the upper deck.
-There, they found Angelique and Olivier already seated, breakfast spread out on the small deck table.
-Fresh croissants, fruit, and coffee gave off an inviting aroma,
-and Angelique looked up with a wry smile as they joined them.
+They dressed and went up on deck.
+Angelique and Olivier sat at the small table over croissants, fruit, and coffee.
+Angelique looked up with a wry smile.
 
-“Good morning, sleepyheads,” she teased, passing a plate of strawberries to Elise, who took it with a smirk.
-Olivier, leaning back with his coffee in hand,
-shot Marc an amused glance but said nothing, a knowing look passing between them.
+“Good morning, sleepyheads,” she teased, passing Elise a plate of strawberries.
+Elise smirked. Over his coffee, Olivier gave Marc a knowing look.
 
-Marc gave a shrug, completely unbothered, as he helped himself to a croissant.
-“Long night,” he said with a slight grin, causing Elise to stifle a laugh.
-They settled in comfortably, the morning air crisp and warm as they relaxed into an easy breakfast,
-the sea stretching out calm and clear before them.
+Marc shrugged and helped himself to a croissant.
+“Long night,” he said, and Elise stifled a laugh.
+They settled around the table in the warm air, the sea calm and clear before them.
 
-After their smooth arrival in Cartagena, the four of them decided to take advantage of their day on solid ground.
-After a quick breakfast on deck,
-Marc suggested
-they start with a walk through the historical parts of the city to stretch their legs after two days on the water.
+In Cartagena, Marc suggested a walk through the old city
+to stretch their legs after two days on the water.
+They began with a guided tour of the Roman Theater.
+Angelique posed against the ancient stone walls and took photos with Elise for her social media.
+Elise lingered over the city's history; Olivier studied the architecture.
+Marc told them stories about the old port.
 
-In the morning, they explored Cartagena’s rich history,
-starting with a guided tour of the Roman Theater, one of the city's most famous landmarks.
-Angelique, ever the content-creator, snapped photos for her social media,
-posing against the ancient stone walls and sharing moments with Elise, who was just as captivated by the city’s history.
-Olivier took a quieter approach, observing the architecture and taking in the atmosphere,
-while Marc, always up for storytelling,
-shared a few tales he knew about the ancient city and its role as a Mediterranean port over the centuries.
+By midday, they had reached a crowded market.
+Angelique and Elise browsed handmade jewelry, crafts, and bright textiles,
+while Olivier bought a few bottles of local wine.
+Marc insisted they try the food: fresh anchovies, spicy meatballs, and other tapas.
 
-By midday, they wandered into a bustling local market.
-Angelique and Elise browsed stalls filled with handmade jewelry, artisanal crafts, and vibrant textiles,
-while Olivier picked up a few bottles of local wine.
-Marc insisted they try some regional specialties from food vendors: fresh anchovies,
-spicy albóndigas (meatballs), and a few other tapas that gave them a taste of the region’s flavors.
+That afternoon, they drove the short distance from the marina to Cala Cortina.
+Angelique read on the sand while Elise went swimming and invited Olivier to join her.
+Marc put on a diving mask and explored the rocks offshore, looking for fish.
 
-In the afternoon, they decided on some leisure and relaxation.
-They headed to Cala Cortina, a nearby beach just a short drive from the marina,
-where they spent hours unwinding in the sun.
-Angelique lay out on the sand, catching up on her reading, while Elise went for a swim, inviting Olivier to join her.
-Marc, the natural sailor, took the opportunity to explore the coastline,
-diving with a mask to see if he could spot some fish or interesting underwater rock formations.
+Back aboard, they washed and changed for dinner.
+At sunset, they walked to a seafood restaurant by the marina
+and ate grilled dorada and calamari with a crisp local white wine.
+They traded stories and laughed across the table.
 
-After the beach, they returned to the boat to freshen up before dinner.
-As the sun began to set, they made their way down to a charming seafood restaurant by the Marina.
-They dined on the catch of the day—grilled dorada and calamari, paired with a crisp local white wine.
-Laughter filled the table as they shared stories,
-each of them relaxing into the easy camaraderie that had developed over the last few days on the water.
-
-By the time they strolled back to the Epicurean, the night air was cool and pleasant,
-and they felt recharged, ready for the next leg of their journey.
+They walked back to the Epicurean in the cool night air,
+rested and ready to sail again.
 
 ## Chapter 4: A Storm
 
 The morning they set out from Cartagena, the skies were clear,
 but Marc kept an eye on the weather reports,
-aware that the powerful gota fría storm was predicted to unleash itself on Valencia.
+which warned of a powerful gota fría storm over Valencia.
 The wind had picked up faster than expected,
-blowing at a steady 6 on the Beaufort scale, with gusts occasionally spiking to 9.
-By mid-morning, it was clear that their route might need to shift further south to avoid the worst of the storm’s reach.
+blowing at a steady 6 on the Beaufort scale, with gusts reaching 9.
+By mid-morning, Marc was considering a course farther south to avoid the worst of it.
 
-As they adjusted to the stronger winds, Marc decided to keep only the foresail up,
-its reduced size giving them better control.
+Marc kept only the foresail up to give them better control.
 After a while, even that seemed too much, and he called for a reef, then a second,
 showing the crew how to pull in the sail to reduce its surface area.
 Angelique, Elise, and Olivier moved with more confidence than on their first day,
-though Marc’s tension was evident as he reinforced the importance of safety.
+but Marc kept checking their safety gear.
 
 “Life jackets on, always,” he instructed firmly, his voice rising over the wind.
 He pointed to the harness lines he’d secured around the cockpit.
 “And make sure you’re clipped in at all times.
 We’re deep into the open water now, and in these gusts, one misstep can be dangerous.”
 
-Angelique’s face showed a hint of apprehension,
-but she tightened her life jacket and clipped herself to the line without question.
+Angelique tightened her life jacket and clipped herself to the line, trying to steady her hands.
 Elise, too, buckled her harness, casting a quick, reassuring look at Marc as he came around to check the clips.
 “Always remember,” he said, raising his voice again over the rush of the wind, “one hand for the man—”
 he caught Elise’s eye with a half-smile, “or woman—and one hand for the ship.”
 
 The boat leaned heavily into each gust, the sails pulling them southward.
 By midday, their course was well below Almería, heading them closer to the coast of North Africa.
-Marc checked the navigation, and it was obvious they were approaching Nador.
-He didn’t say it,
-but the crew could tell he was keeping his options open in case they needed to head for shore sooner than planned.
+Marc checked their position: they were approaching Nador.
+Angelique wondered if he meant to put in there.
 
 The sea swelled around them, each wave seeming to rise higher than the last.
 Olivier took his turn at the helm,
 his hands gripping tightly as Marc instructed him on maintaining the angle to the waves.
-The salty spray filled the air, and despite the nerves, a sense of unity had developed on board as they worked together.
+Spray struck their faces, but they no longer needed Marc to direct every movement.
 
 As evening fell, Marc gathered them in the cockpit.
 “We’re a good bit off course now.
 I want everyone to be prepared.
 If the wind keeps up, we may need to pull into Nador for the night.”
 
-Angelique’s eyes widened, but she nodded, understanding the seriousness.
+Angelique nodded, her eyes wide.
 Elise moved to sit beside her, offering a steadying hand.
 Olivier kept his gaze on Marc, nodding in agreement.
 
-The boat rocked and surged beneath them,
-and though the journey had turned into a more intense adventure than they’d anticipated,
-they all felt a deeper respect for both the sea and for Marc’s quiet, steady leadership.
-With the wind howling around them, the crew steeled themselves for whatever lay ahead.
+The boat rocked and surged beneath them.
+Angelique watched Marc at the helm, waiting for his next instruction.
 
-Navigating into Nador’s harbor under motor, Marc’s face was set in concentration,
-his hands steady on the wheel as he guided the Epicurean through the rough waters.
+Marc guided the Epicurean into Nador’s harbor under motor, his hands steady on the wheel.
 With all sails hauled in, they faced the force of the wind and waves directly from the starboard side.
 Every few moments, a towering wave crashed against the hull, sending a cascade of seawater across the forecastle.
-Angelique and Elise, soaked to the bone, clung tightly to the railings, their hair plastered to their faces,
+Angelique and Elise clung to the railings, their hair plastered to their faces,
 dripping with salt and spray as they braced against each lurch of the boat.
 
-Finally, they passed the breakwater,
-the roughness easing somewhat as they made their way into the shelter of Nador’s inner harbor.
-Despite the relative calm, the harbor was far from inviting.
+They passed the breakwater, and the boat steadied in the shelter of Nador’s inner harbor.
 Grey clouds churned above,
-casting an eerie, shifting light over the docks and the rundown buildings that lined the shore.
-The smell of diesel and salt lingered heavily in the air, and a layer of grime seemed to cling to everything in sight.
+casting a shifting light over the docks and rundown buildings along the shore.
+The air smelled of diesel and salt. Grime coated the docks.
 
 They pulled alongside a worn, rust-streaked dock,
 the cement chipped and covered with patches of algae and old fishing nets.
 Marc kept a careful eye on their approach, calling out instructions to Olivier, who quickly secured the lines.
 As the boat settled, Angelique looked around, catching sight of a few men lingering near the edge of the quay,
-watching their arrival with a mixture of curiosity and something darker, an interest that felt almost predatory.
+watching them long after Marc had secured the boat.
 
 One of the men, tall and gaunt with a cigarette dangling from his lips,
 nudged his companion and muttered something in a language she couldn’t make out.
 His eyes lingered on her and Elise, the two of them dripping wet, their clothes clinging to every curve.
-Angelique wrapped her arms around herself instinctively,
-feeling the weight of their stares as they stood on the deck, vulnerable in their drenched state.
-Elise’s gaze hardened slightly,
-noticing the same attention and giving a subtle nod to Marc as if to say they’d be on their guard.
+Angelique folded her arms across her wet clothes.
+Elise watched the men, then gave Marc a slight nod.
 
-The dock itself was littered with scraps of old rope, discarded nets, and a scattering of empty bottles,
+Scraps of rope, discarded nets, and empty bottles littered the dock,
 and the handful of boats moored nearby were a mix of fishing vessels and smaller, questionable-looking craft.
 A few weathered men sat huddled against a nearby wall,
-eyeing the Epicurean with a suspicion that made it clear strangers weren’t a common sight here—or welcome,
-for that matter.
+eyeing the Epicurean. Angelique saw no welcome in their faces.
 
 Marc stepped onto the dock,
 his expression steely as he secured the last line and gave a polite but firm nod to the men nearby,
@@ -601,119 +563,112 @@ stared at him, giving a slow nod of acknowledgment but not moving from his spot.
 “We’ll keep to the boat tonight.”
 
 As they made their way down into the cabin,
-Angelique couldn’t shake the feeling of those watchful eyes lingering on them,
-even as the storm’s winds howled outside, battering the small port with an almost unnatural fury.
+Angelique still felt watched.
+Outside, the wind howled through the port.
 
 ## Chapter 5: A rough night and an early departure
 
-As the winds howled outside and the storm battered Nador’s harbor,
+As the storm battered Nador’s harbor,
 Marc and Olivier quietly agreed to split the night watch.
-The shady figures lurking near the dock had kept their distance,
-but the men knew better than to leave the Epicurean unattended.
-Olivier volunteered to go first, positioning himself near the cockpit with a vigilant eye on the surrounding pier.
-The occasional flicker of light from a passing car cast eerie shadows across the weathered men huddled nearby,
+The men near the dock had kept their distance,
+but the Marc and Oliver knew better than to leave the Epicurean unattended.
+Olivier took the first watch near the cockpit, where he could see the pier.
+Passing headlights swept over the men huddled nearby,
 but the strangers stayed out of the boat’s reach, their eyes darting only now and then toward the Epicurean.
 
 Meanwhile, below deck, Angelique and Elise were grateful for the warmth and privacy of the cabin.
 They took turns in the tiny shower,
-relishing the feeling of hot water washing away the cold, salt, and tension from the rough day at sea.
+letting the hot water wash away the salt and warm their chilled skin.
 Once warm and dry, they slipped into their bunks,
-falling into an exhausted, dreamless sleep as the boat rocked gently in the relative shelter of the harbor.
+and slept without dreams as the boat rocked in the sheltered harbor.
 
 Around one in the morning, Olivier gently tapped Marc’s shoulder, signaling his turn for watch.
 Marc nodded, stretching his tired limbs as he moved up to take Olivier’s place on deck.
 The storm raged on, but the rain had eased to light drizzle,
-and the winds had calmed, settling into a steady but manageable gust.
+and the wind had steadied.
 Marc wrapped his jacket tighter around himself, scanning the quiet, dimly lit harbor.
 The men from earlier were gone, and apart from a few cats slinking around the piles of fishing gear, all was silent.
 
-As dawn broke, the storm finally loosened its grip,
-revealing a slate-grey sky and waters that had settled to a soft roll.
+At dawn, a slate-grey sky hung over water that had settled to a soft roll.
 Marc decided it was time to leave.
 He went below deck to rouse the others, finding Olivier already awake, sipping coffee in the galley.
 
 Angelique and Elise joined them,
 still bleary-eyed from sleep but grateful for the promise of an escape from Nador’s uneasy harbor.
 They dressed quickly and joined Marc and Olivier on deck, where they helped with the lines.
-Angelique cast a glance back at the figures still lingering along the quay,
+Angelique glanced back at the men along the quay,
 their expressions unreadable but their eyes locked on the departing boat.
 The men didn’t wave or shout,
 merely stood, cigarettes smoldering,
-their dark stares following the Epicurean as it motored slowly out of Nador’s shadowed harbor and into open water.
+watching the Epicurean motor out into open water.
 
 Out at sea, the boat rocked gently as the remnants of the storm tugged at it,
 the wind still strong but steadying, the sky gradually brightening to reveal patches of lighter clouds.
 Angelique and Elise,
 emerging from below deck, looked out to see the harbor fading behind them,
-a sense of relief in the fresh morning air as they left the watchful eyes behind.
+and Angelique breathed more easily as the quay receded.
 Olivier joined them,
 offering a reassuring smile as he handed Angelique a coffee, the warmth a comfort in the lingering chill.
 
 Marc scanned the sky, observing the wind shifting from north to west.
 It was far from ideal for sailing,
 but after a night spent on edge, he wasn’t keen to test his luck with an inexperienced crew in unpredictable conditions.
-Glancing at the fuel gauge, he noted they had enough diesel for the next leg of the journey.
+The fuel gauge showed enough diesel for the next leg.
 
 “We’ll stick to the motor for now,” he called over the hum of the engine.
 “With this wind, we’d be fighting more than we’d be sailing, and I’d rather save you all the hassle.”
 He gave them a reassuring grin, though his eyes were serious, keeping watch on the horizon.
 
-As they moved farther from shore, the clouds began to break, allowing a few rays of sunlight to pierce through.
+Farther from shore, sunlight broke through the clouds.
 Angelique leaned against the rail, the wind sweeping her hair back, her gaze lingering on the open sea ahead.
 Elise joined her, both of them breathing easier now, feeling the tension of the night in Nador slipping away.
 
 By mid-morning, the sea had settled into a steady rhythm,
 and while the sky remained overcast, the worst of the storm had passed.
 Marc kept his eye on the course, his mind focused on reaching Almería without further detours.
-Against the wind and the waves, they did not cover much distance, but the day came and went uneventful.
-The night was deceptively calm as Olivier kept his quiet vigil at the helm,
-guiding the Epicurean through the rolling seas.
-The rhythmic hum of the motor drowned out the distant drone of two fast-approaching boats,
-sleek aluminum RIBs that blended into the night,
-each carrying six armed figures with the precision of military training.
+They made little headway against the wind and waves, but the day passed without incident.
+Olivier held the helm as the Epicurean rolled through the night.
+The motor drowned out the engines of two aluminum RIBs approaching in the dark,
+each carrying six armed men.
 
-The attack came swiftly, a calculated ambush in the dead of night.
-Olivier didn’t hear them approach until the harsh click of boots hit the deck.
-He barely had time to turn, a flash of shock on his face,
-before two sharp cracks echoed across the boat, and he slumped silently to the floor.
+The attack came swiftly.
+Olivier didn’t hear them approach until he heard boots on the deck.
+He barely had time to turn, shock on his face,
+before two sharp cracks echoed across the boat, and he slumped to the floor.
 
-Below deck, Marc was jolted awake by the muffled shots above,
-but before he could react, two figures burst through the cabin door, their eyes cold and weapons trained.
-A double tap, and he fell, too.
+The shots woke Marc below.
+Two men burst into his cabin with their weapons raised.
+They shot him twice before he could move.
 
-Angelique and Elise woke to the harsh sound of heavy footsteps thudding through the boat,
-confused and terrified as their doors were forced open.
-Strong hands pinned them down before they could cry out,
-binding their wrists and covering their mouths as rough voices barked commands in a language neither woman understood.
-The attackers worked quickly, coldly,
-rifling through the cabin and collecting anything of value—cash,
-jewelry, electronics, anything that could be easily taken and sold.
+Angelique woke to footsteps outside her cabin.
+The door crashed open.
+Hands pinned her down, bound her wrists, and covered her mouth.
+Men shouted in a language she did not understand.
+Through the noise, she heard them forcing Elise’s door.
+The attackers searched the cabins, taking cash, jewelry, and electronics.
 
-Angelique’s heart pounded as she was dragged up to the deck, her eyes darting to the dark waves below, wild with fear.
-She caught a brief, terrified glimpse of Elise, her friend equally restrained,
-struggling against the men’s iron grip as they forced her toward one of the RIBs.
+They dragged Angelique onto the deck.
+She looked for Elise and saw her struggling in the men’s grip.
+They forced Elise toward one of the RIBs and hauled Angelique into the other.
+She could neither call out nor reach her.
 
-The attackers split them up, forcing Angelique onto one boat and Elise onto the other.
-Neither of them had a chance to scream, to fight back, or even to process what had happened.
-The Epicurean, now rigged with explosives, was abandoned to the darkness.
-As the RIBs sped away, a muffled thud sounded behind them,
-and Angelique twisted around just in time to see a plume of water and debris rise where the Epicurean had once been,
-quickly swallowed by the deep, unforgiving sea.
+The men left explosives aboard the Epicurean.
+As the RIBs sped away, Angelique heard a muffled thud and twisted around.
+Water and debris rose where the yacht had been.
+Then the wreckage sank into the the deep, unforgiving Alboran Sea.
 
-The Alboran Sea lay silent once more,
-with nothing but the faint ripples of waves to mark where the yacht and its passengers had disappeared.
+Ripples spread across the place where the Epicurean had gone down.
 
 ## Chapter 6: A Trip through the Desert
 
-Angelique’s body was battered and raw as the RIB sped relentlessly across the waves,
-its powerful twin engines forcing the boat forward without mercy.
-Every impact jarred her to the core,
-her wrists raw from the ropes cutting into her skin as she lay on the unforgiving aluminum floor.
+The RIB’s twin engines drove it across the waves.
+Angelique lay on the aluminum floor, each impact jarring her bruised ribs,
+the ropes rubbing her wrists raw.
 Saltwater splashed over her, stinging the scrapes and bruises that covered her legs and arms,
 and a dull ache throbbed where the rough metal had bitten into her flesh.
 
 At last, the RIB veered toward a rocky, desolate stretch of coast,
-the mountains looming in the dim light like silent sentries.
+mountains rising above it in the dim light.
 The shore was harsh and unwelcoming, littered with sharp rocks and dark, jagged slopes that rose steeply from the water.
 They had come to a place where the wild terrain met the coast in sheer cliffs,
 broken only by the occasional dry riverbed—the narrow wadis that offered a way up into the mountains,
@@ -721,50 +676,47 @@ dangerous even in fair weather, treacherous in the rain.
 
 Waiting in the shadows along the shore were more men, bundled against the storm with mules at their side.
 Angelique barely had a chance to register her surroundings before rough hands yanked her off the RIB,
-cutting her bonds only to bind her arms behind her back with heavier, coarser rope.
+cutting her bonds only to bind her arms behind her back with heavy padded leather cuffs.
 She gasped as they hoisted her onto a mule,
 forcing her to lie face down, her body pressed painfully against the animal’s back,
 each step jarring her bruised ribs and aching limbs.
 The men showed no mercy, pushing on without a word,
 ignoring her muffled cries as the mule began its slow, unsteady climb up the steep trail.
 
-As they moved higher, the heavens opened, unleashing a relentless, icy rain that quickly soaked her to the bone.
+Higher up, icy rain soaked her clothes.
 The cold bit into her skin, each droplet a fresh sting,
 and she shivered uncontrollably as the rain mixed with the blood and salt on her raw skin.
 The trail was slippery, treacherous, and every lurch of the mule sent a fresh wave of pain through her.
-All around her, the men moved like shadows, their voices low and indistinct over the roar of the storm,
-guiding the mules up the twisting path that wound into the heart of the mountains.
+The men guided the mules up the twisting mountain path,
+their voices barely audible over the storm.
 
-Eventually, after what felt like an eternity, they reached a narrow plateau where an SUV waited,
-its headlights casting an eerie glow on the muddy ground.
+At last they reached a narrow plateau where an SUV’s headlights lit the mud.
 Angelique was too weak to resist as they pulled her from the mule and dragged her toward the vehicle.
-She was slumped on the cold leather seat of the SUV, bound and helpless,
-where she drifted in and out of a foggy, disoriented state,
+They left her slumped on the cold leather seat.
+She drifted in and out of sleep,
 each bounce of the SUV jarring her awake.
-Her wrists were immobilized behind her,
-locked in padded leather restraints fastened to a thick leather belt around her waist,
+The padded leather restraints held her wrists behind her,
+fastened to a thick belt around her waist,
 ensuring she couldn’t move her arms more than an inch or two.
 Her ankles were similarly secured,
 and she could feel a padded collar snug around her neck,
 limiting her ability to shift or lift her head.
 
-The acrid scent of antiseptic hung in the air,
-hinting that someone had tended to her wounds.
+The acrid scent of antiseptic hung in the air.
 The raw spots from the night’s rough treatment were now covered,
-and her skin prickled from what felt like a topical numbing cream.
-Whoever had handled her had been efficient, clinical, but their actions hadn’t been out of care.
-It was damage control, ensuring she stayed in manageable condition for whatever lay ahead.
+and her skin prickled from what felt like a numbing cream.
+She could not mistake it for kindness: the restraints were still fastened.
 
 Her eyes darted around, taking in the shadowed confines of the SUV.
 Darkened windows obscured the outside, leaving her with only her captors for company.
 The man next to her sat calmly,
 silent and imposing in a traditional jellaba with its hood raised, his expression hidden.
-His hands rested on his lap, but the combat boots peeking out from beneath the robe betrayed a rougher reality.
+His hands rested on his lap. Combat boots showed beneath the robe.
 
 Angelique’s throat was parched, and instinctively, she tried to speak,
 managing only a rough croak before a sharp, stinging slap cut her off.
 The force of it left her cheek burning, and she recoiled, tasting the metallic tang of blood where her lip had split.
-The silent warning was clear: she would not be allowed to speak.
+She closed her mouth.
 
 Gritting her teeth, she forced herself to stay silent,
 blinking back tears of frustration as she glanced to the front of the vehicle.
@@ -777,11 +729,11 @@ Every so often, another vehicle appeared in the distance, loosely keeping pace w
 It was impossible to see who was inside, but she clung to the faint hope that Elise might be in that second car,
 that her friend was still alive and enduring this same nightmare, somewhere close by.
 
-The vehicle continued its relentless course, bumping along a poorly paved road.
+The SUV jolted along a broken road.
 Angelique fought against the panic rising in her chest,
 trying to maintain control, to think through the haze of fear and pain.
 She didn’t know where they were taking her, or what awaited her and Elise at the end of this road,
-but she understood one thing clearly: any attempt to resist would be swiftly and mercilessly suppressed.
+but the burning in her cheek kept her from trying to speak again.
 
 The journey blurred into an agonizing stretch of hours—or perhaps days—for Angelique.
 Every so often, the SUV would halt, and she’d be dragged out,
@@ -792,352 +744,288 @@ she felt a fresh wave of humiliation as she was forced to relieve herself under 
 She kept her eyes trained on the ground, cheeks burning,
 a sense of helplessness clawing at her as she gritted her teeth and waited for each degrading moment to pass.
 
-Afterward, they’d pull her upright, offering her a bottle of water,
-which she was ordered to drink in harsh, clipped tones.
-She drank deeply, parched from the relentless heat, and while it provided relief, she soon noticed an unsettling effect.
-Her thoughts grew hazy, slipping from her grasp like sand through her fingers.
-A strange detachment crept over her, dulling the edges of her fear and anger.
-She felt as if she were watching herself from a distance, as though it wasn’t her body bound in the back of the SUV,
-but someone else’s.
+Afterward, they pulled her upright, handed her a bottle of water, and ordered her to drink.
+Parched from the heat, she drank deeply.
+Then her thoughts began to blur.
+Fear and anger receded, and she seemed to watch herself from a distance:
+someone else bound in the back of the SUV.
 
-Sometimes, the man beside her would pull out an energy bar, holding it up to her mouth and ordering her to eat.
-She obeyed numbly, chewing slowly, the taste barely registering.
-She was hungry, her stomach tightening as she swallowed each bite, but even the act of eating felt surreal, dreamlike.
-English words reached her ears, vaguely recognizable yet slippery, hard to process in her altered state.
+Sometimes the man beside her held an energy bar to her mouth and told her to eat.
+She chewed, hungry but barely tasting it.
+She recognized some English words without quite grasping what they meant.
 
-Hours passed—or perhaps it was only minutes; time had lost all meaning in her sedated haze.
-The rough vibrations of the road became her reality,
-the occasional slap of her captor’s hand against her cheek
-when she began to drift too deeply into unconsciousness bringing her back just enough to stay vaguely aware.
-She couldn’t tell where they were or even if they were still on earth.
-It might have been the Sahara outside, or the surface of Mars—she couldn’t focus long enough to discern.
-All she knew was the endless cycle of jolting, submission,
-and that growing sense of dissociation that shielded her from the sharpest edges of her suffering.
+Hours passed. Or minutes.
+She knew the jolting of the road and the slap against her cheek whenever she sank too far into sleep.
+Beyond the windows might have been the Sahara or Mars.
+She could not hold a thought long enough to decide.
+Even the pain seemed distant.
 
-Eventually, the SUV slowed and then stopped, the sound of the engine cutting off.
-Angelique blinked,
-trying to piece together where they had arrived, but her vision was blurred, her mind only partially responsive.
-She saw glimpses of a small, desolate settlement—a few low,
-clay-colored buildings standing against a harsh, arid landscape.
-The horizon was marked by rocky cliffs and sparse vegetation,
-the once-vibrant colors of the world dulled under a layer of fine, sandy dust.
+At last the SUV stopped. The engine cut out.
+Angelique blinked at a few low, clay-colored buildings beneath rocky cliffs.
+Dust dulled the walls and the sparse vegetation.
+A village in the foothills. She had no idea which one.
 
-A nameless, remote, forgotten village nestled in the foothills, where the land was rugged and unforgiving.
-The buildings were weathered, some crumbling at the edges,
-as if the sun and wind had conspired to erode them into the earth.
-Stray animals wandered the dirt paths between the homes, their ribs visible beneath their dusty coats,
-while the few residents visible cast wary, hooded glances toward the newcomers.
+The buildings were worn by sun and wind, some crumbling at the edges.
+Thin animals wandered the dirt paths between them.
+A few residents watched the SUV warily.
 
-The SUV came to a halt in the center of the village, and Angelique was pulled out,
-her body stiff from the prolonged confinement, every movement sending a fresh ache through her bones.
-She stumbled, the sedative still clouding her mind, as the men dragged her forward into one of the buildings.
+The men pulled Angelique out in the center of the village.
+Her stiff limbs ached as she tried to stand.
+Still dazed by the sedative, she stumbled between them as they dragged her into a building.
 
 ## Chapter 7: An Inspection and an Auction
 
-Angelique stumbled, her vision still wavering from the effects of the sedative,
-as the men dragged her through a low doorway into a dimly lit room.
-Rough hands shoved her forward,
-and she barely registered the scrape of a knife at her clothing
-before her shirt and pants were stripped from her body in harsh,
-tearing motions.
-Cool air hit her skin, and she shivered, a surge of fear breaking through the drug’s dulling haze.
+Angelique stumbled, still affected by the sedative, as the men dragged her into a dimly lit room.
+Rough hands shoved her forward, and her shirt and pants were cut off with a knife..
+She shivered in the cool air, and fear broke through the drug’s dulling haze.
 
-They forced her back onto a large, cold chair,
-her wrists and ankles locked into place by the hard straps that bit into her skin,
-securing her in a humiliating, vulnerable position.
-She recognized it with horror—it was a modified gynecologist's chair,
-and her heart pounded as her legs were forced apart,
-the restraints binding her so tightly she couldn’t shift even an inch.
+They forced her onto a large, cold chair,
+locking wrists and ankles into place with straps that bit into her skin.
+She was secured in a spread, vulnerable position,
+and recognized the contraption as a modified gynecologist's chair.
+The lay bound and in fear, with her legs forced apart.
 
-A man, clearly a doctor but a stranger in this barren village, approached with an air of calm, dispassionate efficiency.
-His expression was utterly detached, and he didn’t bother meeting her eyes.
+A man with the demanor of a doctor, better dressed than the natives of the village,
+inspected her body with detached efficiency.
+He did not even look at her eyes, nor did he speak to her:
 To him, she was just a body to examine, not a person.
-Behind him, two men in local dress loomed, standing silently like guards,
-their hard eyes trained on her, ensuring she remained still and compliant.
+Two men in local dress stood guard behind him, watching her.
 
-Her first attempt to speak was met with a sharp slap to her face, the sting of it jolting her from her drugged daze.
-She flinched, a whimper escaping, but the doctor’s only reaction was a quiet, clipped command to her assailants.
-"Don’t mark her," he muttered,
-then repeated it in a language that sounded sharp, guttural, with rolling,
-rhythmic sounds that she couldn’t place but guessed was Arabic.
-The words were unfamiliar but carried an unmistakable tone of command,
-something like "la tsim’ha," with curt, harsh intonation.
+She tried to speak, but a slap caught her across the face, the pain cutting through her drugged haze.
+She flinched, but the doctor's only reaction was a command to her guards.
+"Don't mark her," he muttered, then repeated it in a language she guessed was Arabic.
+The words were unfamiliar, but she caught something like "ma tkhalliwsh fiha l'atar."
 
-Her ears rang as the doctor continued his work, ignoring her entirely as he checked her vital signs.
-A cold stethoscope pressed against her chest and back, and she winced,
-feeling the thudding of her own panicked heartbeat against the cold metal.
-Her blood pressure was measured with clinical precision, and he held her wrist, taking her pulse,
-counting aloud in soft tones she could barely hear over the sounds of her own breathing.
+Her ears rang as the doctor examined her without a word.
+He pressed a cold stethoscope against her chest and back.
+She winced as her heart pounded.
+He measured her blood pressure, then held her wrist and counted her pulse aloud.
+She could barely hear him over her breathing.
 
-He leaned forward, prying her mouth open, his fingers rough as he inspected her teeth,
-then shined a small light directly into her eyes, each step meticulous, unhurried, his expression unreadable.
-Her attempts to resist, no matter how slight, were met with another hard slap,
-leaving her cheeks stinging and her spirit sinking deeper with each blow.
+He forced her mouth open and checked her teeth, then shone a light into her eyes.
+He worked slowly, his face blank.
+Whenever she resisted, he slapped her.
+Her cheeks burned, and she grew too frightened to fight back.
 
-When he moved down to inspect her more intimately, she froze, helpless to do anything but endure.
-His touch was cold, impersonal, every movement exact, as if he were examining livestock rather than a human being.
-She felt her entire body burn with humiliation, tears gathering in her eyes,
-though she forced herself not to cry, determined not to give them the satisfaction.
-The clinical detachment of the examination made it even worse,
-a degrading reminder that they didn’t see her as a person, just a possession they could examine, assess,
-and likely sell.
+Then he moved down to inspect her intimately, and she was helpless to resist.
+His touch was impersonal in the manner of a doctor examing livestock rather than a person.
+She felt humiliated, tears gathering, but she forced herself not to cry, determined not to give them the satisfaction.
+Their clinical detachment made it clear that they didn't see her as a person, just a possession.
 
-Angelique barely registered the scratchy, ill-fitting overalls they pulled over her,
-the fabric cheap and the legs pooling around her ankles.
-The worn Babouches they shoved onto her feet felt loose and unfamiliar,
-slipping slightly as they dragged her toward a crude, weathered platform outside.
-A wooden stage of sorts, with the heavy, unmistakable feel of an auction block.
-She stumbled, feeling the press of rough hands forcing her to stand upright under the dim, relentless gaze of the crowd.
+They dressed Angelique in scratchy overalls, the legs pooling around her ankles,
+and pushed loose, worn slippers onto her feet.
+She stumbled as they dragged her outside and onto a weathered wooden platform.
+An auction block.
+Hands held her upright before the crowd.
 
 ![](ang-sale.jpg)
 
-She turned, looking out over the gathering, a strange mix of onlookers.
-Simple villagers watched quietly curious from the shadows.
-On the other side of the platform, though, the atmosphere was entirely different.
-The doctor, his report in hand, was showing it to a small group of sharply dressed men,
-each standing with a carefully maintained air of superiority.
-Their suits were custom-tailored, and their assistants, dressed in similar but slightly more modest attire,
-hovered nearby, checking documents, nodding, or whispering into phones.
+Villagers watched from the shadows.
+On the other side of the platform, men in tailored suits studied the doctor’s report.
+Their assistants checked documents and whispered into phones.
 
-The auctioneer,
-dressed in garb, which seemed designed for effect rather than authenticity, was a caricature from a bygone era,
-clad in flowing robes and an exaggerated headscarf.
-He barked out in a wild, chaotic blend of languages: a fast-paced, rolling Arabic mixed with heavily accented French,
-punctuated by halting, broken English that allowed her to catch a few jarring phrases—"high-quality,"
-"well-kept," "rare find."
+The auctioneer wore flowing robes and an elaborate headscarf,
+a costume that made the scene seem staged.
+Then he began to speak: rapid Arabic, accented French, scraps of English.
+“High-quality.”
+“Well-kept.”
+“Rare find.”
 
-The numbers rose in rapid-fire increments.
-She could only make out fragments,
-but the sums being called out echoed in her mind,
-each new bid feeling like a fresh nail in the coffin of her former life.
-She couldn’t tell if the currency was dollars or dirhams, but the way the numbers spiked made her stomach lurch.
+The bids rose.
+Angelique caught numbers but could not tell whether they meant dollars or dirhams.
+With each increase, her stomach tightened.
 
-After what felt like an eternity, a final bid sounded louder than the rest,
-followed by a ripple of movement among the assistants.
-A murmur went through the crowd, and Angelique felt her heart sink as the auctioneer gestured sharply, closing the sale.
+At last came a final bid.
+Assistants shifted places. A murmur passed through the crowd.
+The auctioneer gestured, and the sale was over.
 
-In moments, they moved to her,
-pulling her arms behind her back and fastening them tightly into the familiar padded leather restraints.
-A rough sack was thrown over her head, the darkness pressing in as they tightened the drawstring at her neck,
-cutting her off from her surroundings entirely.
-Her senses narrowed to touch and smell—the coarse material against her face,
-the firm, steady grip of her captors, the faint scent of leather and sweat.
+Men pulled her arms behind her and fastened the padded leather restraints.
+They covered her head with a sack and tightened the drawstring at her neck.
+Coarse fabric pressed against her face. Hands gripped her arms.
+She smelled leather and sweat.
 
-She was lifted, pushed, and maneuvered into another SUV.
-The air inside was cool, almost antiseptic, the scent of leather seats far cleaner and richer than the one before.
-As the engine hummed to life, she felt the weight of her reality sink in, the truth of her situation pressing down on her in the cold silence of the luxury vehicle, with only the faint sound of her own breaths under the stifling hood as they began the journey to her new, unknown destination.
+They lifted her into another SUV.
+Cool air touched her skin, and the leather smelled cleaner than in the last vehicle.
+The engine started.
+Beneath the hood, she heard her own breathing.
+Someone had bought her. Now they were taking her to him.
 
-Angelique sat in the darkness of the hood, her mind spiraling between fears for Elise and her own grim fate.
-She hadn’t seen a trace of her friend since they’d been separated,
-and she didn’t know if Elise had gone through the same horrifying process,
-sold to some unseen buyer, or if her destiny had taken a different, possibly darker turn.
-The gnawing uncertainty twisted painfully in her stomach,
-and she pushed the thoughts aside, knowing she couldn’t afford to lose herself in them now.
-She needed her focus, her resilience—anything to help her survive whatever lay ahead.
+She tried to think of Elise.
+No one had told her anything since the boats separated.
+Had they sold her too? Was she still alive?
+Angelique could not make herself stop asking.
+But she needed to listen, to stay alert.
+She knew nothing about where they were taking her.
 
-The hours dragged on, the luxury SUV moving steadily over roads she couldn’t see or imagine.
-Her body ached from confinement, her throat was parched,
-and uncomfortable pressure grew as her bladder begged for relief.
-Finally, with a careful, trembling breath, she managed a quiet, polite plea,
-keeping her tone as deferential as she could.
+The hours passed as the luxury SUV carried her along unseen roads. Her body ached from sitting still, her throat was dry, and her bladder was full. At last, she found the courage to speak.
 
-“Excuse me… please… I need to relieve myself.”
+"Excuse me... please... I need to relieve myself."
 
-There was a tense silence before the SUV began to slow, pulling to a stop.
-Rough hands gripped her shoulders, guiding her out of the vehicle.
-The shift from the cool, filtered air of the SUV to the heat outside made her dizzy,
-but she forced herself to stay still as she felt the blade of a knife suddenly press close to her.
-Panic spiked in her chest—she froze,
-barely daring to breathe as the blade traced close to her lower body, its cold edge grazing her skin.
+No one answered. Then the SUV slowed and stopped. Rough hands gripped her shoulders and pulled her out. The heat outside made her dizzy after the cool air inside.
 
-But instead of a cut, she felt the blade slice through the fabric of the overall between her legs, leaving her exposed.
+She stood still as a knife pressed against her. Fear gripped her. She held her breath as the cold blade grazed the skin of her lower body.
+
+She felt the blade cut through the fabric of the overall between her legs, exposing her.
 She heard a calm, almost disinterested voice, speaking in plain, accent-free English.
 
 “Kneel.”
 
-Heart pounding, she obeyed,
-lowering herself to the ground as best as she could manage with her wrists still tightly bound.
-Humiliation washed over her, but she knew resisting would bring nothing but more pain.
-She knelt there, her face flushed, the hood over her head amplifying her vulnerability,
-but she bit back her shame, trying to focus only on compliance.
+She obeyed, kneeling down in fear as good as she could manage this in her bonds.
+It was humiliating, but she knew by now that resistance would bring just more pain.
+Finally she knelt, sigtless and hooded, deeply ashamed.
 
 “Pee,” the voice commanded.
 
-Swallowing her pride, she did as she was told,
-the humiliation of it settling over her like a heavy, suffocating blanket.
-When she finished, they hauled her to her feet, the torn fabric left as it was,
-and she was roughly maneuvered back into the SUV without a word.
-She closed her eyes beneath the hood, feeling the sting of humiliation mixing with her rising dread,
-knowing that this was only the beginning of whatever horrors lay ahead.
+Swallowing her pride, she did as she was told.
+
+When she finished, they pulled her to her feet and shoved her back into the SUV, leaving her clothes torn. No one spoke. She closed her eyes beneath the hood, ashamed and afraid of what they would do to her next.
 
 ## Chapter 8: A Palace
 
-As Angelique was led forward, still hooded and struggling to keep her footing, the air around her changed.
-She could hear the murmur of voices, some speaking Arabic in fast, indistinguishable tones,
-while others responded softly in French.
-The atmosphere felt calmer here, marked by the gentle sound of trickling water and the distant trill of birdsong.
-The weight of her captors' hands remained firm until they came to a halt,
-and she could feel them shifting around her,
-the jangle of keys and a quiet exchange in Arabic before the heavy boot steps receded.
+Angelique stumbled forward beneath the hood.
+She heard voices around her, some speaking Arabic, others French.
+Water trickled nearby, and birds sang in the distance.
+Her captors stopped.
+Keys rattled, and the men exchanged a few words in Arabic.
+Their hands released her, and their heavy footsteps faded.
 
-She remained still,
-her heart pounding as a softer hand touched her shoulder, guiding her down gently, the touch almost tender.
-A voice spoke near her, female, soothing, her words lilting and musical in a softly accented English.
-"You are safe now.
-Breathe.
-You will be cared for here."
+She stood still, her heart pounding.
+A woman touched her shoulder and gently guided her into a seat.
+"You are safe now," the woman said in soft, accented English.
+"Breathe.
+We will take care of you."
 
-The sensation of her restraints being unlocked sent a wave of relief through her sore limbs,
-though the fear of what was next kept her tense.
+Her restraints clicked open. She eased her sore wrists apart, afraid to move farther.
 At last, the hood was lifted from her head, and the blinding sunlight made her squint,
 her eyes watering as they adjusted to the brightness.
 Slowly, her surroundings came into view.
 
-She found herself in an enclosed courtyard, a breathtaking garden filled with lush, vibrant greenery and flowers.
-Delicate fountains sent arcs of crystal water into the air,
-catching the sunlight and scattering it in glittering sprays across the white marble surfaces.
-The brightness and beauty of it felt surreal after the oppressive darkness of the hood and the cramped SUV,
-yet the high, windowless concrete walls surrounding the garden reminded her that this was no paradise.
-Each wall was at least four or five meters tall, unyielding and smooth,
-the only exit guarded by intricately designed Moroccan doors that hinted at the opulence beyond.
+Angelique sat in a courtyard filled with plants and flowers.
+Fountains sprayed water over white marble, where it glittered in the sunlight.
+After the darkness of the hood and the cramped SUV, the brightness hurt her eyes.
 
-As Angelique looked around, she realized this space was a modern rendition of an ancient harem,
-a private garden built as much to contain as to please the eye.
-The architecture blended clean, modern lines with traditional patterns and accents,
-where luxury and its confining purpose stood in stark contrast to each other.
+Smooth concrete walls rose five meters around the garden, without a single window.
+The only exit was a pair of carved Moroccan doors.
+Traditional patterns decorated the modern walls.
 
-The woman beside her sat close, dressed in a gossamer-like garment of sheer veils that clung to her skin,
-revealing her nakedness beneath.
-A delicate piece of gold ornamentation rested over her mons, catching the light,
-similarly her areolas were hidden under palm-sized golden domes that seemed to magically hold on to her breasts.
-Her face was obscured by a translucent veil, though her makeup was flawless, accentuating her striking features.
-Her dark shiny hair was artfully braided, woven with fine gold chains and jewelry,
-creating a dazzling cascade down her back.
+The garden reminded her of a harem, built for pleasure and confinement alike.
+She looked again at the doors.
+
+A woman sat beside her, dressed in sheer veils that revealed her naked body.
+A small gold shield covered her mons, held in place by a thin post through her pierced outer labia.
+Gold cups covered her breasts, each fastened through a pierced nipple.
+A translucent veil covered her face, showing dark eyes framed by careful makeup.
+Her glossy black hair hung in long braids, threaded with fine gold chains and ornaments.
 
 ![](ang-garden.jpg)
 
-She continued to whisper gentle words of reassurance, her hand softly brushing Angelique’s arm.
-“You will be fine,” she murmured.
-“They are strict, but you are safe here.
-Follow the rules, and you will be cared for.”
+The woman stroked Angelique’s arm as she spoke.
 
-The woman’s eyes met hers with an understanding that spoke of experience,
-and Angelique felt an uneasy mixture of gratitude and dread.
-She was in a world where her autonomy was stripped away,
-yet this stranger’s care felt almost maternal, a small mercy in an otherwise terrifying reality.
+"You will be fine," she said.
+"They are strict, but you are safe here.
+Follow the rules, and they will take care of you."
 
-The woman introduced herself as Samira.
-She spoke with a smooth and warm voice, and her eyes were never leaving Angelique's as
-she gestured for Angelique to follow her through a set of archways into an adjoining room, where a bath awaited.
-Sunlight streamed down through skylights, casting a soft, warm glow over the opulent bathroom.
-Basins of water were set into the marble floor—one steaming with hot water, the other cool and refreshing.
-The space was filled with the rich comforting scent of jasmine and sandalwood.
+Her eyes met Angelique’s.
+She seemed to know what Angelique was going through.
+Angelique wanted to trust her, but she was still a prisoner.
+The woman's kindness offered some comfort.
 
-Samira moved gracefully,
-shedding her veils and pinning up her intricate braids with care before guiding Angelique toward the warm basin.
-“Slowly,” she murmured, gesturing for her to ease in.
-“It’s hot.”
+"My name is Samira," the woman said.
+She rose and led Angelique through an archway into a bathroom.
+Sunlight entered through skylights above two basins set into the marble floor.
+Steam rose from one, while the other held cold water.
+The room smelled of jasmine and sandalwood.
+
+Samira removed her veils and pinned up her braids. She led Angelique toward the warm basin.
+"Slowly," she said. "The water is hot."
 Her voice held a soothing, almost hypnotic quality.
 
 ![](samira-bath.jpg)
 
-Angelique slipped cautiously into the water, feeling the heat soak into her tired, sore muscles.
-She wasn’t sure how to feel about this—her instinct was to resist,
-to assert her independence, to insist that she didn’t need help.
-But the recent trauma of her capture and the memory of the bruising slaps
-she’d received for any defiance kept her quiet.
-Her limbs ached, her skin was raw from rough treatment,
-and, despite her uncertainty, she found herself clinging to this gentleness.
+Angelique eased into the hot water.
+The heat soothed her aching muscles.
+She wanted to refuse Samira’s help, but she remembered the slaps she had received for resisting.
+Her skin was sore, and she was too tired to argue.
+She let Samira care for her.
 
-Samira entered the bath beside her,
-dipping a cloth into the water and then beginning to wash Angelique with slow, deliberate strokes.
-Her touch was far from clinical; it was tender, lingering, and sensual, each movement almost reverent.
-Angelique felt herself tense, her cheeks flushing as Samira’s hands moved over her body.
-But there was kindness in her gaze, a softness that made Angelique hesitate, torn between unease and gratitude.
+Samira stepped into the bath beside her, dipped a cloth into the water, and began washing her.
+She was gentle and sensual, each movement almost reverent.
+Angelique tensed and blushed as Samira moved the cloth over her body.
+Samira watched her with kind eyes, and Angelique let her continue.
 
-Samira took her time, washing her hair with fragrant oils, massaging the scalp, rinsing and then repeating the process.
-Angelique’s mind drifted somewhere between fear and resignation, finding solace in the familiarity of touch,
-though a voice in the back of her mind reminded her this was not for her benefit.
-She had been bought, claimed, and she was being made ready for a purpose she could only guess at.
+Samira washed her hair with scented oil, rubbed her scalp, and rinsed it twice.
+Angelique closed her eyes and tried to enjoy the attention.
+Yet she knew why she was here.
+Someone had bought her, and Samira was preparing her for a purpose she did not know.
 
-Once her hair and skin were scrubbed to glowing softness, Samira guided her from the bath,
-drying her with a large, soft towel.
-She then gestured to a low, padded massage bed with a face cradle.
-Angelique, still unsure, obeyed, lying face down with her face resting in the ring, her body vulnerable and exposed.
+When she finished, Samira helped Angelique out of the bath and dried her with a soft towel.
+She pointed to a padded massage table with a face cradle.
+Angelique obeyed. She lay face down, resting her face in the opening, naked and exposed.
 
-Samira’s hands moved over her back, kneading the tight knots in her muscles,
-working along her shoulders, down her spine, and across her hips.
-The massage was thorough, almost intimate, with scented oils smoothed over her skin in slow, practiced strokes.
-Angelique felt herself melting under the touch, yet the underlying dread remained, like a cold knot deep in her stomach.
+Samira kneaded the tight muscles in Angelique's back, working from her shoulders down to her hips.
+She rubbed scented oil into her skin with slow, firm strokes.
+The massage was thorough, almost intimate, and Angelique eventually relaxed under her hands, though her stomach remained tense.
 
-This ritual, she knew, wasn’t meant for her comfort or recovery—it was a preparation,
-a meticulous process to make her presentable, desirable.
-The slaps she’d received for speaking up echoed in her memory, a reminder of the cost of resistance.
+None of this was for her comfort.
+The oils, the scrubbing, the patient hands were readying her for display.
+She remembered the slaps she’d received for speaking up, so she did not try to resist.
 
-As Samira’s hands glided over her, murmuring soft reassurances,
-Angelique could only lie there, her body betraying her as it unwound under the expert care.
-Eventually she fell asleep
+Samira kept working, murmuring reassurances as she went.
+Angelique lay still, unable to resist the relief as the tension left her muscles.
+At last, she fell asleep.
 
-As Angelique stirred awake, she felt the lingering warmth of the massage oil on her skin,
-the faint scent of jasmine still clinging to her.
-Her mind snapped back to her grim reality,
-recalling her last memories before sleep—Samira's gentle touch,
-the looming dread of her situation, and Samira’s calm, soothing presence.
-Opening her eyes, she saw Samira kneeling beside her, back in her sheer,
-teasingly revealing veils, an enigmatic smile playing on her lips.
+Angelique woke with the warmth of massage oil still on her skin and the faint scent of jasmine around her.
+She remembered Samira's gentle hands and the dread she had felt before falling asleep.
+She opened her eyes.
+
+Samira knelt beside her, dressed again in her sheer veils, her lips curved in a faint smile.
 
 ![](ang-dressup.jpg)
 
-At a signal from Samira, two women entered the room,
-deeply veiled in black abayas and niqabs that obscured their faces, their movements almost silent.
-Angelique felt a surge of anxiety as they approached,
-their dark, faceless figures contrasting sharply against her own pale, barely covered form.
-With quiet efficiency, they guided her to stand and began draping her in a set of veils similar to Samira’s,
-each layer soft and transparent, designed to accentuate rather than conceal.
-Her red hair was loosely braided back and partially open, a stark contrast to the dark tresses of the other women,
-unadorned except for the simple, elegant drop pearl earrings that swayed with her movements.
+At Samira's signal, two women entered.
+Both wore black abayas and niqabs that hid their faces.
+They approached without a word.
+Angelique grew tense as they stopped beside her, black faceless figures contrasting sharply with her own pale, uncovered form.
 
-The veiled women set to work, applying makeup that highlighted her features with a practiced hand,
-emphasizing her green eyes and the soft flush of her cheeks.
-She watched them carefully, remembering the slaps that had kept her in line earlier.
-Summoning her courage, Angelique looked at Samira, careful to keep her tone respectful, polite.
+They helped her to her feet and dressed her in veils like Samira's.
+The thin fabric covered little of her pale skin.
+They loosely braided her red hair, leaving some of it free.
+Her only jewelry was a pair of pearl drop earrings.
 
-"Thank you… for all of this, Samira," she said quietly.
-"May I ask… what is going to happen?
-Why am I being… prepared like this?"
+The women applied her makeup, drawing attention to her green eyes and adding color to her cheeks.
+Angelique watched their hands, remembering the slaps she had received earlier.
 
-Samira’s expression softened as she met Angelique’s gaze.
-"You’re going to meet your owner," she replied, her voice lilting in that same gentle, singsong English.
+She turned to Samira, choosing her words carefully.
+
+"Thank you for all of this, Samira," she said quietly. "May I ask what's going to happen? Why am I being prepared like this?"
+
+Samira’s met her gaze.
+"You’re going to meet your owner," she replied in lilting singsong English.
 "His Excellency will see you today, and he must be pleased.
 He is… powerful, and wealthy beyond imagining.
 Impressing him is your chance to secure a good place here, to earn privileges in the harem.
 From now on, his will is your world, and pleasing him should be your first thought."
 
-Samira’s words confirmed the dread that had been growing inside Angelique.
-The calm, almost matter-of-fact way she spoke made it clear that she,
-too, was under his control, part of this well-orchestrated captivity.
-She had no illusions about the purpose behind this introduction;
-it was as if she were being polished up and presented like a rare object—a mere possession for someone else’s pleasure.
+Samira's words confirmed Angelique's fears.
+She spoke calmly, as though his control over them were an ordinary fact of life.
+The shields locked over her body showed that she, too, belonged to him.
 
-Her mind raced.
-While she’d known her situation was grim, the directness of Samira’s statement left her shaken.
-She could feel the weight of her predicament pressing down,
-each layer of veil on her body a reminder of the cage she was now in.
-If she defied him openly, she had little doubt that punishment would be swift and severe.
-But the thought of simply offering herself up,
-submitting without a fight, filled her with a mixture of rage and despair.
+Angelique understood why she had been washed, oiled, and dressed. She was being presented to him as a possession, prepared for his pleasure.
+She had known she was a captive.
+Hearing Samira say it so plainly still shook her.
+Open defiance would bring punishment.
+Yet she could not bear to give in without a fight.
 
-Inwardly, she steeled herself, searching for any hint of a strategy.
-Her captor might have wealth and influence, but maybe, with time, she could learn more, find a weakness.
-For now, she would play the part expected of her, using every bit of restraint and wit she could muster.
-Samira’s gaze lingered on her, perhaps sensing her inner turmoil.
+She needed a plan.
+Given time, she might learn enough about her captor to find a weakness.
+Until then, she would have to play her part.
+Samira watched her.
 
-“Be calm,” Samira murmured softly, adjusting a lock of Angelique’s hair.
+“Be calm,” Samira said, her voice pitched low, adjusting a lock of Angelique’s hair.
 “Strength here is in learning when to submit, and when to bide your time.”
 
-The words, barely above a whisper, struck a chord within Angelique.
-Samira’s eyes, behind that gentle façade,
-held a glint of something—perhaps a warning, perhaps a tiny spark of solidarity.
+Angelique searched Samira’s eyes.
+Was that a warning? Could it be solidarity?
 
 Angelique was ready.
 She knelt, her body tense as she settled into the precise posture Samira had shown her,
@@ -1150,384 +1038,343 @@ It was a position of submission, but also one that displayed her,
 and the implication was clear—she was to be seen, appraised,
 and expected to remain perfectly still.
 
-Across the room, the door loomed.
-It looked like a beautifully crafted piece of Moroccan art, its intricate designs carved with precision and care,
-but she knew it was a facade.
-Behind the artistic wood lay thick, cold steel, a fortress-like barrier that made her captivity all too tangible.
-She had already glimpsed the security cameras that lined the room’s edges,
-silently observing her, recording her every movement.
-She was not alone, even here in her silence.
+Across the room stood the door: carved Moroccan wood over thick steel.
+Cameras lined the room’s edges.
+Even here, waiting alone, she was watched.
 
-Samira had left her with a final lesson on obedience and form,
-a lesson she delivered not with words but with a pointed look toward the garden,
-where the sandstone pillar stood like an ancient monolith, stark against the greenery.
-It was a brutal, rough-hewn pillar, thick and intimidating, its height nearly double that of a man.
-Chains hung from the top, swinging gently in the breeze,
-each ending in a set of heavy, crude manacles that looked as if they had seen use in centuries past.
-Dark, unmistakable stains marred the sand at its base and the stone itself, small reminders of defiance punished.
+Before leaving, Samira had looked toward the sandstone pillar in the garden.
+Rough-hewn and nearly twice a man’s height, it stood above the greenery.
+Chains swayed from its top, ending in heavy manacles.
+Dark stains marked the stone and the sand beneath it.
 
-Samira’s words had been soft, almost gentle as she explained the importance of following ritual and form,
-of respecting the invisible boundaries that shaped life here.
-Her tone was careful, as though delivering advice that might save Angelique from something worse.
-But her gaze had shifted to the pillar as she spoke, the unspoken warning clear as day.
-Angelique knelt on the dais,
-knowing that any act of defiance would likely lead her straight to that pillar, a fate she was desperate to avoid.
+Samira had spoken gently of ritual and form, of the rules Angelique must learn.
+But she had looked at the pillar as she spoke.
+Kneeling on the dais, Angelique understood what breaking those rules could cost.
 
-So she waited, as Samira had shown her, maintaining the flawless posture demanded of her,
-her hands clasped demurely in her lap, her head bowed just enough to convey respect.
-She understood now, more deeply than ever, that her survival hinged on her ability to play this role,
-to wear the mask of obedience and restraint.
+She waited as Samira had shown her,
+hands clasped in her lap, head bowed.
+A tremor built in her thighs from holding the pose; she breathed it down and let nothing show.
 
-Yet behind her outward compliance, Angelique’s mind churned, clinging to a single thought: this was a game,
-and if she was forced to play it, she would do so with every ounce of cunning she possessed.
+Across the room a camera’s red light blinked, steady and patient, and she kept her face a mask—
+whatever game this was, she would give it only what it demanded, and keep the rest.
 
 ## Chapter 9: An Owner
 
-As the door swung open,
-Angelique had to stifle a laugh as a towering figure stepped into the room—a man dressed in the full,
-theatrical garb of a harem eunuch,
-as if plucked from a fantasy book.
-His bare upper body gleamed, muscular and meticulously hairless,
-and his sash, deep purple silk, held a coiled whip that hung menacingly at his side.
-He wore wide white silk bloomers and shoes with pointed, curled tips, completing the image with a surreal flourish.
+As the door swung open, Angelique stifled a laugh.
 
-Yet as her eyes moved to Samira, she saw her guide drop into a deep, submissive kowtow,
-her forehead almost touching the floor, her entire body an image of complete deference.
-Angelique froze, wondering if she should mirror the gesture,
-but she trusted that if such a display were required, Samira would have prepared her.
-So, she stayed as she was, her posture a careful display of submission,
-her hands resting obediently on her lap as she offered herself up for inspection, veiled but all too visible.
+A huge man stepped inside, dressed like a eunuch from an Arabian tale. His bare chest was broad, muscular, and shaved smooth. A whip hung coiled from a purple silk sash around his waist. Loose white silk trousers and shoes with curled toes completed his costume.
 
-Then he entered.
+Her amusement vanished when Samira dropped to her knees and pressed her forehead to the floor.
 
-The second man was a striking contrast to the theatrical eunuch—a figure that exuded refinement and power,
-dressed in a tailored suit that seemed as much an extension of him as a crafted weapon.
-His dark hair was shot through with silver, artfully arranged to look effortless.
-A pristine dress shirt peeked from beneath the dark suit jacket, gold cufflinks glinting at his wrists,
-and a pocket watch rested against his chest,
-a polished gold accessory that felt like a calculated nod to timeless sophistication.
-His shoes, polished to mirror shine, spoke of care, of pride in his appearance, the way a general wore his uniform.
+Angelique almost followed her. But Samira had taught her how to behave, and surely she would have warned her if she had to kneel. Angelique stayed where she was, her hands folded in her lap, as she offered herself up for inspection, veiled but all too visible.
+
+
+Another man entered.
+
+He wore a dark suit, perfectly tailored to his lean frame. Silver streaked his black hair, which was neatly combed back. Gold cufflinks fastened his white shirt, and a gold watch chain crossed his waistcoat. His shoes shone.
+
 
 ![](sayyid.jpg)
 
-But it wasn’t his attire that struck Angelique with sudden dread.
-It was the aura he projected—one of absolute authority, the kind that went beyond mere wealth.
-This was a man who held power over people, not through fear alone,
-but through a deep-seated understanding of his control.
-She could sense it in the way he stood, in the way he looked at her,
-not as a person but as an object to be assessed, as something he owned before she even spoke a word.
+Angelique knew expensive clothes when she saw them. His suit had been made for him, down to the last stitch. His watch alone probably cost more than she once earned in a year.
 
-At that moment, any lingering hope that she might be held for ransom, that this was simply about money, faded away.
-Money was irrelevant here; this man’s wealth had already bought him everything tangible he could want.
-His interest, she realized with a sinking feeling, lay in the dominion he wielded over others—over her.
+But his wealth frightened her less than his face.
+He showed no pleasure at seeing her. He offered no greeting, no smile, not even a polite nod. His eyes passed over her with the calm attention of a man inspecting a horse he had already bought.
 
-He looked at her slowly,
-taking in every detail with an assessing, coldly appraising gaze that left her feeling more exposed than ever.
-She held her position,
-forcing herself not to break form, as Samira had warned, her eyes downcast but her senses heightened,
-trying to gauge his every reaction, his every word.
+Angelique felt a chill.
+Until now, she had clung to the hope that her captors wanted ransom. Money was something she understood. There could be demands, negotiations, perhaps even a way out.
 
-Finally, he raised a hand and gestured for her to stand and follow.
-Angelique rose gracefully, falling in line behind him.
-The eunuch led the way, unlocking a heavy door and stepping aside, taking guard beside it.
-The man gestured for her to go ahead as they approached a winding staircase that spiraled upward.
-She hesitated only a fraction of a second before stepping forward,
-ascending the stairs while feeling his presence close behind, every step taking her deeper into his world.
+But this man had more money than he could ever need. He had paid for her because he could, and now he meant to enjoy what his money had bought.
 
-At the top, she entered a vast private suite.
-It was opulent, breathtakingly so, with every detail arranged to showcase wealth and taste.
-The space was larger than her entire apartment back home, a bedroom that seemed more like a private palace.
-Angelique’s eyes swept over the room, taking in each carefully curated detail.
-The deep carpets, the towering four-poster bed, and the exquisite balcony overlooking the serail garden below.
-She could see the sandstone pillar from here, the chains hanging ominously, and through skylights,
-she could even glimpse the various rooms below,
-each section arranged to be observable, to leave no private corner untouched.
-She realized that her every move, every breath, could be monitored at any time.
+He wanted her obedience.
 
-Across from the bed, the diwan beckoned,
-arranged with opulent pillows and small tables, an elegant espresso machine among the trays of tea,
-as though her captor valued both ceremony and modern convenience.
-But when her gaze shifted to the left, her heart stilled.
-The shadows in that corner of the room spoke of darker intentions: deep red velvet,
-dark wood and polished steel, cages and manacles hanging neatly on polished ironwood,
-whips arranged with meticulous care, and a large wooden cross with sturdy restraints at each end.
-The sinister arrangement stood in stark contrast to the rest of the suite’s refined beauty,
-a cruel reminder of her captor’s control over every aspect of her fate.
+He wanted to see her kneel, lower her eyes, and do as she was told. He wanted the power to decide what happened to her, down to the smallest detail.
 
-Her captor stood by the window, his back straight, hands clasped behind him.
-His gaze was fixed on the view, as if waiting for her to take in the room, to comprehend the extent of her situation.
-Before him on the floor was a cushion, identical to the one she had just knelt on in the waiting room.
+The thought made her stomach tighten.
 
-Angelique’s mind raced.
-She had a choice, though it felt painfully limited.
-She could defy him here and now, make some stand for her own autonomy,
-though she knew full well where defiance might land her—bound and punished,
-a spectacle of obedience enforced by whatever lay in the darker corner of the suite.
+He took his time looking her over. Angelique kept her eyes lowered, as Samira had instructed, though she watched him through her lashes. She searched his face for some sign of approval or displeasure.
 
-Or, she could kneel, as Samira had taught her, and comply.
-Compliance would keep her from immediate punishment,
-but it also risked locking her further into this role he expected her to fill,
-making her submission another brick in the walls of this gilded cage.
+He gave her none.
+
+At last, he raised one hand and beckoned.
+Angelique stood and followed him.
+The eunuch went ahead, unlocked a heavy door, and stepped aside to guard it. Beyond lay a narrow staircase that wound upward.
+
+The man motioned for Angelique to go first.
+She hesitated, then gathered her skirts and began to climb. He followed close behind her, near enough that she could hear his footsteps on each stair.
+
+She kept her eyes on the steps and climbed.
+
+At the top of the stairs, Angelique entered a vast private suite.
+The room was larger than her entire apartment back home. Thick carpets covered the floor, and a great four-poster bed stood against the far wall. Beyond it, open doors led onto a balcony overlooking the harem garden.
+Angelique could see the sandstone pillar below, with its chains hanging from the top. Skylights gave a view into several rooms beneath her. From here, someone could watch much of what went on in the harem without being seen.
+
+She wondered how often she had been watched already.
+
+Opposite the bed stood a long diwan covered with silk cushions. Low tables held silver trays, a tea service, and an espresso machine. Everything was expensive, from the carved furniture to the thick curtains framing the windows.
+
+Then she noticed the far corner.
+
+Red velvet covered the walls. Against the dark wood stood cages of polished steel. Manacles hung from hooks, alongside whips of different lengths and thicknesses, each kept in its place. A large wooden cross stood nearby, with leather restraints fastened to its four ends.
+Angelique stared at it.
+
+She had seen enough in the harem to understand what these things were for. Here, their purpose was even clearer. They belonged to the man who had bought her, and he had placed them within sight of his bed.
+
+She looked away.
+
+Her captor stood by the window, his hands clasped behind his back. He seemed content to let her inspect the room. Perhaps he wanted her to see everything before he gave his first order.
+
+A cushion lay on the floor in front of him, identical to the one in the waiting room.
+
+Angelique knew what he expected.
+
+She could refuse. She could stand where she was and tell him she would not kneel. For a moment, she pictured herself doing exactly that.
+
+Then she glanced at the whips and manacles.
+
+He had the means to punish her, and nothing she had seen suggested that anyone would stop him. Defiance might give her a moment of satisfaction, followed by hours of pain.
+
+Samira had taught her another way.
+
+She could kneel, lower her eyes, and obey. She might escape punishment for now. She might even earn enough trust to learn more about this place and find some way out.
+
+But every act of obedience would make the next one easier for him to demand. He would grow accustomed to her submission, and perhaps, in time, she would grow accustomed to giving it.
+That frightened her almost as much as the whips.
+
+Angelique looked at the cushion again.
+
+She had to decide whether to kneel before he ordered her to do so.
+
 
 ![](ang-kneeling-for-sayyid.jpg)
 
-Angelique felt the cold weight of reality settle over her as she lowered herself onto the cushion,
-her eyes carefully cast down as the man turned to face her.
-His approval was immediate, his voice low and resonant, carrying an authority that sank deep into her mind.
+Angelique felt the weight of her decision as she lowered herself onto the cushion. She folded her hands in her lap and kept her eyes down.
+The man turned to face her.
+
 "Good girl."
-The words were simple, yet they held a disturbing power, touching something within her that she hadn’t anticipated.
-She felt a strange conflict—resignation and defiance twisting together in a knot deep within.
 
-“It is refreshing to see a western woman understanding her place and showing manners,”
-he continued, his gaze heavy upon her as though measuring her soul.
-With a measured motion, he handed her a newspaper, an article marked.
-Angelique’s breath caught as she read the headline: "Four Dead at Sea."
+His deep voice carried quiet authority. Angelique felt an unwelcome flicker of satisfaction at his approval. She resented it at once. She had knelt to avoid punishment, not to please him.
 
-A sickening understanding washed over her.
-Angelique had vanished in that stormy night on the Alboran Sea, lost to the world,
-swallowed by the depths along with the wreckage of the Epicurean.
-There would be no rescue, no search, no one holding out hope for her.
+"It is refreshing to see a Western woman who knows her place and has manners," he said.
+She kept silent.
 
-"Angelique died that night," he said, his tone devoid of pity or remorse, only calculated precision.
-"Here, you will be Wardah, the rose.
-It suits your red and green, and it will remind me of the thorns you may have."
-His gaze drifted briefly toward the implements on the other side of the room, the cages, the cross, and the whips.
-A silent warning.
+He picked up a folded newspaper and handed it to her. An article had been marked in red.
+Angelique read the headline.
+"Four Dead at Sea."
 
-She shivered as he went on, outlining her future as if it were nothing more than a carefully organized itinerary.
-“Samira will train you in the ways of the harem.
-She will teach you Arabic and the intimate arts required here.
-You would do well to heed her.
-Fatima is the Umm al-Harem.
-Her word is law in my absence.
-To defy her is to defy me, and you will address her as Al-Kabira.”
-He paused, letting the weight of his words sink in before continuing.
+She recognized the name of the yacht beneath it. The Epicurean had been lost in a storm on the Alboran Sea. Four people were presumed dead, including Angelique herself.
+
+She read the short article twice.
+
+The authorities believed she had drowned. Her family and friends would be mourning her. No one would be searching for a woman the world already considered dead.
+
+"Angelique died that night," he said.
+She looked up before she could stop herself.
+
+"Here, you will be Wardah. It means rose. A fitting name for your red hair and green eyes. And a reminder that roses have thorns."
+He glanced toward the whips hanging on the far wall.
+
+Angelique lowered her eyes again. She understood his warning.
+
+"Samira will teach you the customs of my harem," he continued. "You will learn Arabic, proper manners, and the intimate arts expected of you. Listen to her. She knows what pleases me, and she knows what happens when a girl refuses to learn."
+
+Angelique thought of Samira kneeling with her forehead against the floor. She had done it without hesitation. How many years had it taken her to learn such obedience?
+
+"Fatima is the Umm al-Harem, the mother of the harem," he said. "She governs the women in my absence. Her word is my word. You will address her as Al-Kabira, the Great Lady. If she gives you an order, you will obey it as though it came from me."
 
 “My doctor will see you as well.
-He will assess your health, assist you in adapting to life here, and advise me on any modifications I may wish to make.”
-His voice was calm, utterly indifferent to the impact his words had on her.
-“Do you understand?”
+He will check your health, help you adjust to life here, and advise me on any modifications I might wish to make."
+He spoke as though he were discussing the care of a horse.
+"Do you understand?"
 
-Angelique—Wardah, she reminded herself, because now that was her identity, her existence—nodded,
-feeling the gravity of his decree tighten around her.
-She understood perfectly.
-Her life was no longer her own; her choices were bounded by obedience and survival.
-Here, in this carefully crafted prison, she was to be the obedient rose,
-trimmed of her thorns when necessary, existing only to serve her captor’s whims.
+Angelique nodded.
+Wardah, she reminded herself. That was her name now, at least within these walls. He had made it clear that she would have little say in what happened to her, even to her own body.
 
-“Yes, I understand,” she murmured, the words barely audible, her voice steadier than she felt.
+"Yes, I understand," she said quietly.
 
-"Na'am afham, ya sayyidi," he corrected, his tone carrying a strange,
-almost friendly warmth that only deepened her unease.
-"Na'am afham – I understand. Ya sayyidi – my master.
-Try it; you will need it."
+"Na'am, afham, ya sayyidi," he corrected her. His voice softened. "Na'am, afham means 'Yes, I understand.' Ya sayyidi means 'my master'. You will learn to address me properly. Try it."
 
-Angelique felt her pulse quicken.
-The words tasted foreign and uncomfortable on her tongue, but she dared not hesitate.
-Every instinct urged her to resist, to assert her independence,
-but the memory of the chains, the pillar,
-and the brutal implements lurking in the shadows behind her served as a reminder of what defiance might cost her.
+Angelique swallowed.
+She hated the thought of calling him her master.
+She wanted to refuse, to tell him that no amount of money gave him the right to own her.
+But the whips and chains behind her were real, and she had no wish to discover how readily he used them.
+She raised her eyes to his face.
+"Na'am, afham, ya sayyidi."
+The unfamiliar words came slowly.
+She felt like an actress reciting a line she had never rehearsed.
 
-Swallowing her pride, she forced herself to meet his gaze, keeping her voice calm.
-"Na'am afham, ya sayyidi."
-The phrase felt alien, as if she were reciting a line in a play.
+He smiled.
+"Good girl. You learn quickly. That will serve you well."
 
-He smiled, apparently satisfied, though his eyes continued to assess her,
-piercing through the polished veneer of her compliance.
-"See, such a good girl," he said, a subtle nod acknowledging her effort.
-"You are quick to learn.
-That will serve you well."
+Angelique lowered her eyes. His praise meant she had done what he wanted. She would have to learn to accept such small victories without mistaking them for kindness.
 
-"That will be all," he said, turning his attention to the window,
-already dismissing her as if she were a piece of furniture rather than a person.
-"Report to Samira.
-Have her introduce you to Fatima; she will arrange an appointment with Al-Tabib."
+"That will be all."
+He turned back to the window, dismissing her without another glance.
+"Return to Samira. Have her introduce you to Fatima. She will arrange your examination with the tabib."
 
-Angelique took a steadying breath, then rose carefully, whispering "Salam aleikum,
-ya sayyidi" in a final attempt to meet his expectations.
-She bowed slightly, keeping her eyes downcast as she backed out toward the staircase,
-mimicking the deference she’d seen in old movies and trying to give him as little reason as possible to call her back.
-Out of the corner of her eye, she thought she caught the faintest hint of a smile on his face,
-a glimmer of satisfaction at her performance.
+Angelique took a breath and rose carefully.
+"Salam aleikum, ya sayyidi," she whispered.
 
-Once downstairs, she passed the eunuch,
-who remained in his imposing stance by the door, then spotted Samira waiting nearby.
-Angelique relayed her experience, her voice controlled, careful.
+She bowed her head and backed toward the staircase, keeping her eyes lowered. She had seen servants leave their masters this way in old films and hoped she was doing it correctly.
+From the corner of her eye, she caught a faint smile on his face.
+At least she had pleased him.
 
-Samira listened and nodded approvingly.
-"You did well, Wardah," she said, using her new name with ease.
-"Wardah suits you.
-Some women come back with names like Lahm or Mal'aba."
+She descended the stairs and passed the eunuch, who still stood guard beside the door. He gave no sign that he had noticed her.
+Samira was waiting nearby.
+Angelique told her what had happened, from the newspaper announcing her death to the doctor's promised examination. She repeated his instructions as closely as she could.
 
-Angelique couldn’t help the curiosity that flashed across her face.
-"What do those names mean?
-And… what does Samira mean?"
+Samira listened and nodded.
 
-Samira’s eyes softened with a small, almost sympathetic smile.
-"Samira means ‘pleasant companion,’" she explained.
-"Lahm means ‘meat,’ and Mal'aba means ‘plaything’ or ‘toy.’
-You made a good impression and earned a respectable name."
+"You did well, Wardah. And he has given you a good name. It suits you."
+Angelique looked at her.
 
-Angelique absorbed the information, feeling a chill at the thought of being reduced to such dehumanizing labels.
-"Thank you," she whispered, grateful at least that her new identity held some dignity.
+"Does it?"
 
-Samira reached out, a guiding hand on her shoulder, her tone gentle but instructional.
-"When you leave his presence, it’s customary to say ‘Shukran, ya sayyidi.’
-‘Shukran’ means ‘thank you.’
-But you did well, Wardah.
-Our sayyidi is strict, but he is not cruel."
+"Yes. Some women return with names like Lahm or Lu'ba."
 
-Angelique nodded, her gaze flicking down as she digested the information.
-She could still feel the weight of her captor’s eyes, the sense of being inspected, assessed,
-measured against some invisible standard.
-"Strict, but not cruel."
-The phrase hung in her mind as both warning and reassurance.
-She was beginning
-to understand
-that her survival would depend not only on compliance
-but on understanding the unspoken rules that governed her new world.
+"What do those mean?" Angelique asked. "And what does Samira mean?"
+
+"Samira means 'pleasant companion.' Someone who keeps you company in the evening."
+She smiled.
+"Lahm means 'meat.' Lu'ba means 'toy' or 'plaything.'"
+
+Angelique stared at her.
+
+"He calls women that?"
+
+"When he chooses to."
+
+She thought of the newspaper, the whips, and the way he had looked her over without a word. She could easily believe it.
+
+"So Wardah is a compliment?"
+
+"A rose is a beautiful thing. You should be pleased. You made a good impression, and he gave you a respectable name."
+
+"Thank you," Angelique murmured.
+
+Samira rested a hand on her shoulder.
+
+"One more thing. When you leave his presence, you should say 'Shukran, ya sayyidi.' It means 'Thank you, my master.'"
+
+"You did well," Samira said. "Our sayyidi is strict, but he is not cruel."
+
+Angelique looked at her.
+She remembered the cages in his bedroom, the restraints on the wooden cross, and his promise that the doctor would advise him on changes he might wish to make to her body.
+"Strict, but not cruel," she repeated.
+
+Samira nodded, apparently content that Angelique understood.
+
+Angelique said nothing more. She had learned enough that morning to know how much those words might depend on what Samira considered cruelty.
+She followed her guide down the corridor, repeating the new phrases in her head.
+She would remember them. She would learn the rules and do what she needed to stay safe.
+And she would remember that her name was Angelique, whatever he chose to call her.
 
 ## Chapter 10: Al-Kabira
 
-Samira guided Angelique—now Wardah—through the winding halls of the harem, leading her to Fatima’s quarters.
-The air grew cooler as they moved deeper into the secluded heart of the compound, where Fatima’s domain lay.
-The entrance itself was framed with heavy, dark wood and adorned with intricate carvings.
-The interior of her room was furnished with more sense of practicality than luxury:
-polished marble floors softened by richly woven carpets,
-deep crimson cushions arranged precisely in seating areas,
-and an ornate carved desk with ledgers and records carefully stacked.
+Samira led Angelique, now Wardah, through winding halls to Fatima's quarters. The air grew cooler as they descended into the compound.
 
-Fatima herself awaited them near the far wall,
-where tall shelves held a selection of books and scrolls on art, history, and culture.
-The shelves also held ledgers and documents—evidence of her role in managing both the harem and its order.
-
-Dressed in rich dark blue robes, she was an imposing figure.
-Her dark eyes held a sharp intelligence, a gaze honed by decades of authority and control.
-Her skin, touched by age but still radiant, bore witness to years of service with loyalty and discipline.
-Her head was wrapped in a deep blue scarf that matched her robe.
-Her presence filled the room; she exuded a calm but unyielding strength.
+Carvings framed a heavy wooden door. Inside, polished marble floors lay beneath woven carpets. Deep crimson cushions lined the seating areas. Ledgers and records stood in neat stacks on a carved desk. The room was furnished for work, not display.
 
 ![](al-kabira.jpg)
 
-Samira paused, bowing with reverence, and then gently nudged Wardah to kneel beside her.
-Keeping her voice soft and respectful, Samira spoke.
-"Al-Kabira, I bring to you Wardah, by Sayyidi’s wishes."
-She used Angelique’s new name without hesitation, a signal that Angelique’s former life truly ended on that boat.
-“Sayyidi has commanded that she learn our ways and find her place here.
-He also wishes for her to undergo her first session with Al-Tabib.”
+Samira bowed and nudged Wardah to kneel beside her.
 
-Fatima’s gaze moved slowly to Wardah, sharp and assessing.
-Without a word, she rose from her seat and moved closer, her eyes taking in every detail,
-inspecting Wardah as though she were an item of inventory.
-Fatima’s experienced fingers lifted Wardah’s chin,
-tilting her face to one side and then the other, her eyes scanning for signs of defiance or fear.
-She ran her fingers through Wardah’s hair, examining its texture, length, and color.
+"Al-Kabira, I bring you Wardah, as Sayyidi commanded."
 
-Fatima circled her, taking in every inch of her posture,
-noting the way Wardah held herself, sensing the tension in her body.
-Her fingers tapped lightly on Wardah’s back, encouraging her to straighten,
-to present herself with the dignity expected of her new identity.
-Satisfied, she stepped back, and her voice, when she spoke, was low, clipped, and firm.
+She used the new name without hesitation. Angelique had died on that boat.
 
-"You may not yet understand, Wardah, but I expect trouble from you.
-Western women rarely adapt willingly, and I do not tolerate disruption here.
-I run a harem, not a halfway house for rebellious minds."
-Her eyes flashed as she continued.
-"Angelique died on that boat.
-You are Wardah here, and this place has no door handles on the inside."
-She let the words settle, her tone matter-of-fact rather than malicious.
-"This is your life now.
-You would be wise to accept it.
-If you don’t, there are means to adjust you."
+"Sayyidi has ordered her to learn our ways and find her place here. He also wishes her to see Al-Tabib."
 
-Wardah’s heart began to pound as Fatima turned toward Samira, her voice calm and commanding.
-"Set an appointment with Al-Tabib for tomorrow morning, as early as possible," she instructed.
-"He will conduct an intake examination and compile a list of possible and recommended modifications for Sayyid’s review.
-Sayyid will decide which procedures she will undergo."
+Fatima studied Wardah, then rose and approached. She lifted Wardah's chin, turned her face from side to side, and searched her eyes for fear or defiance. She ran her fingers through Wardah's hair, checking its length and texture.
 
-A chill crept over Wardah at the mention of “modifications” and “procedures.”
-She had no idea what those terms entailed in this world or what kind of doctor Al-Tabib was,
-but her mind raced with images of irreversible alterations,
-the fear of losing control over her own body hitting her like a punch to the gut.
-Panic surged, and she couldn’t hold back her protest.
+She circled Wardah, studying her posture and the tension in her shoulders. A tap between her shoulder blades made Wardah straighten.
 
-“Modifications?” she stammered, her voice cracking with desperation. “What…what does that mean? Please, I don’t—”
+Fatima stepped back.
 
-Fatima’s face remained unmoved, her tone unwavering.
-"It is not the place of a harem girl to ask questions.
-It is the place of a harem girl to fulfill all of her master’s wishes, always and without question.
-You will become whatever Sayyid desires, in any manner he commands."
+"You may not understand this yet, Wardah, but I expect trouble from you. Western women rarely adapt willingly. I will not tolerate disruption. I run a harem, not a refuge for rebels."
 
-Wardah’s pleas turned frantic, her voice shaking as she tried to reason with the woman before her.
-"Please.
-I…I’ll obey, I’ll do whatever I’m told, but no operations.
-Please, don’t let them—"
+She held Wardah's gaze.
 
-The sharp crack of Fatima’s palm silenced her mid-sentence, the force of the slap leaving her cheek searing.
-The shock stole her breath, her head snapping sideways.
-Tears blurred her vision as the sting radiated down her jaw, a cruel punctuation to her desperate plea.
-Fatima’s hand lingered in the air, her expression unchanged.
+"Angelique died on that boat. You are Wardah now. There are no door handles on the inside."
 
-“This is your first and only warning,” Fatima intoned coldly.
-Her gaze cut through Wardah like a blade.
-“Here, you speak only when permitted.
-And you never question what has already been decided.”
+She let the silence stretch.
 
-Before Wardah could muster a response,
-her knees buckled beneath her as two powerful hands clamped down on her shoulders from behind.
-The eunuch, Rafiq, loomed over her, his previously theatrical presence now grimly imposing.
-His grip was unrelenting, his silence more terrifying than any threat.
+"This is your life. Accept it. If you refuse, we have ways to make you comply."
 
-Wardah cried out, a ragged sound of fear and protest,
-but it was cut short as a thick, rough gag was forced into her mouth.
-The coarse fabric scraped her lips and tongue, muffling her cries into useless whimpers.
-Her arms were wrenched behind her back with brutal efficiency,
-thick cords binding her wrists tightly enough to send a spike of pain up her arms.
-Her struggles were met with indifference, her writhing only tightening the bonds.
+Wardah's heart pounded.
 
-Fatima didn’t spare her a second glance.
-“Rafiq,” she said, her voice smooth as silk yet colder than ice.
-“Take her to the garden.”
+Fatima turned to Samira.
 
-Rafiq hoisted her bound form effortlessly over his shoulder, carrying her from Fatima’s quarters into the garden.
-Wardah’s cheeks burned with humiliation as she hung helplessly,
-her arms pinned and mouth gagged, unable to do more than endure the undignified transport across the courtyard.
+"Arrange an appointment with Al-Tabib for tomorrow morning. The earliest available."
 
-Rafiq’s steps didn’t falter as he crossed the lush pathways,
-heading directly for the far corner where a patch of sand surrounded the imposing sandstone pillar.
-The ancient stone structure stood resolute and unyielding, slightly lower than the walls enclosing the garden,
-its faded patterns barely visible, echoes of interlocking circles and floral motifs etched by hands long gone.
-Despite the pillar’s weathered appearance, the chain hanging from its top gleamed with an unsettling newness,
-its polished links a harsh contrast against the ancient stone.
+She glanced at Wardah.
 
-Rafiq positioned her against the pillar, the stone hot from the sun and rough against her skin.
-With practiced motions, he fastened her wrists into the wide, well-oiled manacles at the end of the chain,
-the metal snug around her wrists, allowing no room to struggle.
-Her arms secured, he pulled the chain taut, forcing her body upward.
-Her toes barely grazed the ground,
-straining to support her weight, and the coarse surface of the stone pressed into her front,
-the roughness scraping against her veils, which offered no protection as her nipples brushed the unforgiving texture.
+"He will examine her and prepare a list of recommended modifications for Sayyid's review. Sayyid will decide which procedures she undergoes."
 
-Breathless, Wardah’s gaze traveled over the pillar,
-noting the small, triangular holes spaced evenly along its length from top to bottom, just where her body was pinned.
+Wardah went cold at the mention of modifications and procedures. She knew nothing about Al-Tabib or what he might do to her. She pictured herself on an operating table, her body altered beyond repair.
 
-Rafiq reappeared from behind the pillar, holding a slender triangular metal bar.
-With deliberate precision, he positioned it obliquely between Wardah’s legs,
-sliding it carefully into one of the small, carved openings in the pillar.
-With a quick movement, he straightened the bar, securing it firmly in place,
-forcing Wardah to balance precariously on its sharp edge.
-She had no choice but to stretch herself as high as she could, her calves burning with the effort,
-to avoid the harsh pressure against her most vulnerable places.
+Her hands trembled. She struggled to breathe.
 
-Satisfied with her position, Rafiq stepped back, his face impassive as he observed her predicament.
-Wardah’s wrists remained shackled above her head, her arms pulled taut,
-and her bare skin pressed against the heated, rough surface of the sandstone.
-Her toes strained to hold her up,
-knowing that the slightest release of tension would drive the pointed bar painfully against her.
+"Modifications?" Her voice cracked. "What does that mean? Please, I don't..."
 
-Time passed in agonizing stillness until at last, she heard the sound of footsteps on the garden path.
-Fatima approached slowly, her movements deliberate, a small entourage of harem women following silently behind her.
-Fatima’s gaze fell upon Wardah, her expression as composed and commanding as ever.
+Fatima regarded her without expression.
+
+"A harem girl does not question her master's wishes. She obeys them. You will become whatever Sayyid desires, by whatever means he chooses."
+
+"Please." Wardah fought to steady her voice. "I'll obey. I'll do whatever he wants. But no operations. Please, don't let them..."
+
+Fatima slapped her.
+
+Wardah's head snapped sideways. Her cheek burned. Tears blurred her vision.
+
+Fatima lowered her hand.
+
+"This is your first and only warning."
+
+She waited until Wardah looked at her.
+
+"Here, you speak only when permitted. You do not interrupt your superiors. And you never question what has already been decided."
+
+Before Wardah could answer, two hands seized her shoulders from behind and forced her to her knees.
+
+The eunuch stood over her. His earlier theatrics were gone. He held her still without a word.
+
+Wardah cried out. He forced a cloth gag between her teeth and tied it behind her head. He pulled her arms behind her back and bound her wrists. She struggled, but the cords held.
+
+Fatima did not look at her.
+
+"Rafiq. Take her to the garden."
+
+He hauled Wardah over his shoulder and carried her out of Fatima's quarters. She twisted against his grip, her cries muffled by the gag. He paid her no attention.
+
+He crossed the garden to the sandstone pillar standing in a patch of sand near the outer wall. Weathered carvings of interlocking circles and flowers covered its surface. A new iron chain hung from the top.
+
+Rafiq set Wardah against the pillar. The sun had heated the stone, and its rough surface scraped her nipples through her thin veils.
+
+He removed the cords from her wrists and locked them into iron manacles attached to the chain. Then he drew the chain upward until she stood on her toes, her arms stretched above her head.
+
+Wardah tried to lower her heels. The chain held her in place.
+
+She noticed a row of triangular holes cut into the stone at different heights.
+
+Rafiq went behind the pillar and returned with a narrow iron bar. He passed it between her legs and fitted one end obloquely into a hole.
+
+Wardah watched him adjust its height.
+
+When the bar slotted into a hole, its narrow edge faced upward. He pulled it up and pushed it in.
+
+Wardah balanced precariously on the sharp edge. She tried to shift her weight. The bar stopped her. To escape its pressure, she had to rise higher on her toes, pulling against the manacles.
+
+Her calves began to ache.
+
+She looked at Rafiq, pleading through the gag.
+Rafiq stepped back to inspect his work.
+
+Wardah hung against the sun-heated sandstone, her wrists shackled above her head. She stood on her toes to keep her weight off the iron bar beneath her. Her calves burned.
+
+Footsteps sounded on the garden path.
+
+Fatima approached, followed by a group of harem women. She stopped before Wardah and addressed them.
 
 “This,” she announced with her voice carrying over the garden,
 “is Wardah who has come among us as one refusing the will of her Sayyid,
@@ -1535,1155 +1382,1101 @@ whose wisdom guides her life, as personified by Al-Kabira,
 whose hand arranged all necessary for her place in this harem.
 Let each of you bear witness to what awaits any who defy Sayyid’s wishes.”
 
-The gathered women looked on, their expressions reflecting pity, fear, and solemn acceptance,
-each absorbing the silent lesson of Wardah’s punishment.
-Fatima’s words lingered in the air like a ritualistic chant:
-defiance was met not with anger, but with unyielding consequence.
+The women stood silent. Some lowered their eyes. Others watched Wardah without moving. One woman clasped her trembling hands.
 
-At Fatima's subtle nod, Rafiq stepped forward, his face calm as he uncoiled a short,
-well-worn bullwhip from the purple sash at his waist.
-The leather,
-polished smooth from countless uses, glistened with a faint natural sheen,
-a hint of texture still visible on its surface.
-The ease with which he held it, the way his hand balanced it,
-gave him an air of quiet menace, each movement a promise of precision.
+Fatima nodded to Rafiq.
 
-The first crack split the air, sharp and fierce.
-Wardah’s heart raced as the whip sliced through the thin layers of her veils,
-barely grazing her skin yet severing the delicate fabric cleanly.
-Rafiq continued, each strike calculated to shred her veils piece by piece,
-the sound alone enough to make her tense, each crack a fresh reminder of her vulnerability.
-The blows themselves barely stung, a controlled display of Rafiq’s expertise that left her exposed and trembling.
+He took a short, worn whip from his purple sash and uncoiled it. The leather was smooth from use. He tested its weight in his hand.
+
+The first crack made Wardah flinch.
+
+The whip caught her veil, tearing the thin fabric while leaving her skin untouched.
+
+Rafiq struck again. Another strip fell away.
+
+He continued, cutting through the fabric with each stroke. Wardah jerked at every crack, pulling against her shackles. The whip barely touched her, but her veils hung in tatters.
+
+Rafiq lowered his hand and looked to Fatima.
+
+He had shown her what he could do without drawing blood.
 
 Then came the real pain.
 
-The first strike landed across her shoulder blades, sending a sharp, stinging fire radiating through her back.
-The second lashed her hips, and the third cut across her calves.
+The first strike hit her shoulder blades, a sharp, stinging fire radiating through her back.
+The second lash stroke her hips, and the third cut across her calves.
 The pain made her legs give out, her body falling hard onto the metal bar.
-The blunt edge pressed deep into her most sensitive place, sending a surge of pain that stole her breath.
-She writhed, desperate to lift herself off the bar, but the chain above her kept her wrists pulled taut,
+The edge pressed deep into her most sensitive place, another burning pain.
+She writhed, desperate to lift herself off the bar. The chain held her wrists high above her head,
 her toes barely able to find purchase on the ground.
-The effort to rise ignited the muscles in her calves,
-but the alternative—remaining pressed against the bar—was unbearable.
+Her calves burned,
+but remaining pressed against the bar was unbearable.
 
-The sandstone pillar scraped her chest and belly as she twisted in place, her movements frantic yet futile.
-The whip came down again, the strike landing on the same spots as before—her back, hips, and calves.
-The precision was merciless, amplifying the agony already burning through her body.
-Her cries turned into muffled sobs, her vision blurred with tears.
-She could feel the sharp edge of the bar digging in deeper every time her legs wavered,
-her strained muscles failing to keep her weight aloft.
+The whip struck again, the strikes landing in the same spots as before, back, hips and calves.
+Wardah twisted against the sandstone, scraping her chest and stomach. She tried to escape the next blow, but the chain held her in place.
+
+Rafiq worked without haste. Each stroke brought another cry. Wardah's legs trembled. She struggled to keep her balance, her breath coming in gasps through her nose.
 
 Another crack of the whip.
-Her body jerked reflexively, the pain shooting through her like a lightning bolt.
-Her strength drained further, and her legs gave out entirely, driving her fully against the punishing bar.
-She screamed against the gag, her voice breaking into ragged whimpers as the pain in her core reached a crescendo.
-The stone behind her seemed to mock her, its roughness unyielding,
-its heat a cruel counterpoint to the sharp cold of the bar.
 
-Rafiq continued, each lash precise and unrelenting.
-The whip landed on tender, already-bruised skin, reigniting the fire that burned through her body.
-Wardah sagged against the pillar, her head falling forward,
-the chain above her rattling as her wrists pulled against the manacles.
-She sobbed openly now, her resistance shattered,
-her cries muffled but still audible in the oppressive silence of the garden.
+Her knees gave way. The restraint caught her, and she screamed into the gag. She hauled herself upright, but her legs could barely support her.
 
-At last, Fatima raised her hand, her gesture freezing Rafiq mid-motion.
-He stepped forward and wrenched the bar free from the pillar.
-Wardah barely registered the change as he turned her, pressing her back against the rough sandstone.
-The stripes from the whip stung as the stone’s abrasive surface scraped against them.
-Rafiq reinserted the bar, forcing it between her legs and locking it into place again.
-The pain shot through her, and she rose onto her toes instinctively, her entire body straining to avoid the pressure.
+Rafiq continued until Fatima raised her hand.
 
-With one swift motion, Rafiq removed the gag, leaving her panting and exposed, her breath ragged.
-Her cries turned to soft, broken sobs as tears streamed down her cheeks.
-The sun bore down on her tear-streaked face, unrelenting,
-as she hung there, her body trembling with exhaustion and pain.
-The world around her faded into the ache of her limbs, the fire of her stripes,
-and the unyielding edge of the bar that kept her balanced on the thin line between agony and relief.
+He stopped at once.
 
-Fatima’s voice sliced through the oppressive haze of Wardah’s agony, steady and sharp.
-“And?”
+Wardah sagged against the pillar. Her wrists strained against the manacles, and tears ran down her cheeks. She could hear herself sobbing.
 
-The question hung in the air, incomprehensible in Wardah’s shattered state.
-Pain drowned her thoughts,
-the burn of her welts and the unrelenting pressure of the bar reducing her world to raw sensation.
-Her breath hitched, her sobs wracked her chest, but no words formed.
-Her silence was met with inevitability.
+Rafiq approached and pulled out the iron bar. He turned Wardah to face the garden and secured her again, with her back against the pillar, then re-inserted the bar again between her legs.
 
-Fatima’s nod was slight but immediate.
-Rafiq didn’t hesitate.
-The whip cracked again, its impact louder than her own gasping breaths.
-The first blow crossed her chest, a line of fire that forced the air from her lungs.
-The second struck her stomach, folding her against the stone as her muscles convulsed.
-The third, aimed at the juncture of her thighs, ignited a pain so consuming it drowned all else.
-Her body jerked involuntarily, her toes slipping from their strained perch.
-The bar beneath her took full weight for a terrible instant, the sharp edge biting deeper than before.
+She rose onto her toes, struggling to stand, her back painfully pressed against the abrasive stone surface.
 
-Her scream tore through the garden, unrestrained and ragged.
-The bar drove pain into the core of her being,
-sending her spine arching as she instinctively tried to lift herself again.
-Her toes scrabbled against the sand, finding enough purchase to relieve the bar’s bite, but only just.
-The slightest quiver in her legs sent fresh waves of agony radiating upward.
+He removed her gag.
 
-Fatima approached, her steps measured, her presence a stark contrast to Wardah’s trembling, broken form.
-“You will become whatever Sayyid wishes you to be.
-You will do as told,” Fatima said, her tone steady,
-as though she were reciting an unchanging truth.
-“When you are told.
-Every time.
-The first time.
-With a smile on your face.”
+Wardah gasped for air. Her whole body trembled, and she could scarcely keep her head raised. The women watched in silence.
 
-Wardah forced herself to look up, her vision blurred by tears.
-Fatima’s eyes held no cruelty, only an unyielding authority that demanded submission.
-The weight of those words pressed into her mind, as heavy as the chains binding her wrists.
-"Repeat it," Fatima said calmly.
-There was no other path.
-Resistance had no place here.
+Fatima approached.
 
-Her voice wavered, caught between sobs and gasps for air.
-She fought the tremor in her throat, the burning in her chest.
-“I will… become whatever Sayyid wishes me to be… I will do as told… when I'm told… every time… the first time.
-And with a smile on my face.”
+"And?"
 
-Fatima’s expression shifted, a faint approval flickering across her otherwise stoic face.
-“Good girl,” she said, the words as cold as the bar beneath Wardah.
-Then, with a final glance, she turned away.
-Rafiq followed, his whip coiled neatly in his hand.
-The other harem women trailed behind, silent witnesses to Wardah’s submission.
-Their departure was marked by the fading sound of their footsteps on the garden paths, leaving her alone.
+Wardah stared at her.
 
-The sun bore down mercilessly, the heat intensifying the pain of the stone pressing against her back.
-Her body ached from head to toe, every muscle stretched beyond its limits.
-The sharp edge of the bar kept her perched precariously, her calves trembling with the effort to stay aloft.
-Each spasm sent her crashing back onto the metal, the pressure driving a scream to her lips before she bit it back,
-choking on her own sobs.
+She had heard the question, but could make no sense of it. Her thoughts scattered whenever she tried to speak. She opened her mouth, then closed it.
 
-She tried to pull herself up with her wrists, but the strain was unbearable.
-Her arms burned, her wrists raw from the metal biting into her skin.
-Each attempt left her weaker than the last, her strength ebbing like water slipping through her fingers.
-She sagged again, the bar finding its cruel mark, the pain so sharp it left her gasping for air.
+Fatima nodded.
 
-Time lost meaning.
-There was only the sun above, the stone behind, and the bar below.
-Her body trembled, her mind grasping at fragments of thought,
-each one overwhelmed by the relentless cycle of strain and release.
+Rafiq struck again.
 
-Wardah’s sobs racked her chest, her body trembling as the pain from her ordeal continued to pulse through her.
-She hung limply, her legs too weak to keep her aloft, the biting bar beneath her a cruel reminder of her vulnerability.
-The sun bore down, unrelenting, its heat mixing with the dampness of her tears and sweat, salt stinging her tender skin.
+The first blow caught Wardah across the chest. The second struck her stomach, driving the breath from her lungs. The third, aimed at the juncture of her thighs, drowned everything else.
 
-At last, movement broke the monotony of her suffering.
-From the corner of her eye, she saw Samira approach, her figure a silhouette against the brightness.
-Rafiq walked beside her, his expression blank, whip tucked neatly into his sash as though it had never been used.
-Without a word, Rafiq released the bar,
-the sound of metal scraping against stone ringing in Wardah’s ears as her weight shifted.
-She gasped in relief as he let her down and unshackled her wrists, her body sagging into his grip.
+She screamed. Her feet slipped against the sand, and the bar beneath her took full weight for a terrible instant, the sharp edge biting deeper than before.
 
-Rafiq’s strength was impersonal, his hands steady and efficient as he lifted her from the pillar.
-Her legs crumpled beneath her, too weak to support her.
-Before she could collapse, Samira stepped forward, her arm slipping around Wardah’s waist with surprising gentleness.
+Fatima raised her hand. Rafiq stopped.
 
-“Shh, you’ve endured well, Wardah,” Samira murmured, her voice low and soothing.
-She guided Wardah with slow, careful steps toward the shaded archway of the harem.
+She approached Wardah.
+
+"You will become whatever Sayyid wishes you to be. You will do as you are told. When you are told. Every time. The first time. With a smile on your face."
+
+Wardah struggled to look up. Tears blurred her sight.
+
+"Repeat it."
+
+Wardah opened her mouth, but a sob came out. All defiance had been cleansed from her body and mind. She swallowed and tried again.
+
+"I will become… whatever Sayyid wishes me to be." She fought to steady her voice. "I will do as told… when I'm told… every time… the first time. And with a smile on my face.”
+
+Fatima studied her.
+
+"Good girl."
+
+She turned and walked away.
+
+Rafiq coiled his whip and followed. The other women went with them, their footsteps fading along the garden path.
+
+The heat pressed down mercilessly, intensifying the pain of the stone against her back.
+The sandstone burned against her back, and her calves trembled as she struggled to stay on her toes. Whenever her legs failed, the sharp edge of the iron bar between her legs caught her weight. She cried out, then fought to stand again.
+
+She tried to pull herself up by the chain. The manacles dug into her wrists, and her arms shook under the strain. She could no longer hold herself upright for long.
+
+Time passed. Wardah lost count of how often she tried to stand, how often her legs gave way. At last, she stopped trying to count.
+
+She hung against the pillar, sobbing. Sweat ran into her eyes. Her throat hurt, and she could scarcely feel her feet.
+
+Footsteps sounded on the path.
+
+Samira approached with Rafiq beside her. His whip was tucked into his purple sash.
+
+Rafiq removed the bar. Wardah gasped as the pressure eased. He lowered the chain and unlocked her manacles.
+
+Her knees buckled.
+
+Rafiq caught her beneath the arms, but Samira stepped forward and put an arm around her waist.
+
+"You've endured well, Wardah," she said softly.
 “I am here now.
 Breathe deeply.
 The worst is behind you.
 Rest your mind and your heart.
 Just breathe.”
 
-Each step felt like an eternity, every muscle in Wardah’s body screaming in protest.
-The cool air of the harem’s interior hit her like a balm,
-the oppressive heat of the garden replaced by the shaded quiet of marble and stone.
-Samira led her to a low couch, easing her down with practiced care.
+Wardah leaned against her. She could barely move her legs.
 
-Wardah shivered as Samira gathered the tools of her care:
-a bowl of water, soft cloths, and a jar of thick, fragrant cream.
-Samira worked with calm precision,
-dipping a cloth into the water and wiping away the sweat and grit that clung to Wardah’s skin.
-The touch was gentle, almost maternal, yet it was a reminder of her place, of the powerlessness she now lived under.
+"One step at a time," Samira said. "There's no need to hurry."
 
-The first stroke of the cream against her skin made Wardah flinch,
-but Samira whispered reassurances as she smoothed the balm over her back, her shoulders, her legs.
-The coolness sank into her raw, swollen skin, dulling the fire of her welts.
-Despite the ache that still lingered, the numbing effect began to take hold, her body relaxing inch by inch.
+She helped Wardah across the garden and through the shaded archway. The marble felt cool beneath Wardah's feet. Inside, Samira guided her to a low couch and eased her down.
 
-“You are fortunate,” Samira said, her voice barely above a whisper, her eyes focused on her task.
-“Fatima knows her limits.
-Had your skin burned in that sun, it would have angered Sayyid.
-Otherwise…” She trailed off, her hands never pausing.
-“Otherwise, you might still be there.”
+Wardah shivered as Samira brought a bowl of water, soft cloths, and a jar of scented cream.
 
-Wardah’s breath hitched, the truth of Samira’s words settling like a weight in her chest.
-She closed her eyes, her voice hoarse and lifeless as she repeated the phrase she had been forced to commit to memory.
-“I will do as told, when I am told, every time, the first time, with a smile on my face.”
+She dipped a cloth into the water and wiped the sweat and sand from Wardah's skin. Her touch was gentle, and she worked without haste.
 
-Samira paused, her hands stilling for a moment.
-“Good,” she murmured.
-“That is the way forward, Wardah.
-Obedience will protect you.
-It is the only protection you have here.”
+Wardah flinched when Samira began spreading cream over her back.
 
-As the cream worked deeper into her skin, Wardah’s sobs subsided into quiet, shallow breaths.
-Her muscles uncoiled, exhaustion sweeping through her.
-Samira draped a light cover over her, the soft fabric brushing her skin like a whisper.
+"Easy," Samira whispered. "Let me help you."
 
-Wardah drifted, her body giving in to the pull of sleep.
-The faint scent of the cream lingered, mixing with the low, rhythmic tone of Samira’s voice.
-The last thing Wardah heard before sleep claimed her was Samira’s soft murmur.
+She worked the cream over Wardah's shoulders, back, and legs. It cooled her tender skin and eased the sting. Wardah's breathing slowed.
 
+"You are fortunate," Samira said as she worked. "Fatima knows her limits. Sayyid would be displeased if the sun had damaged your skin."
 
-## Chapter 11: A night of Pain and Pleasure
+She smoothed cream across Wardah's shoulder.
 
-Angelique woke in the dark, her body humming with the residual ache of punishment.
-The numbing cream had faded, leaving each welt raw and throbbing beneath the silk sheet that clung lightly to her skin.
-She blinked, her surroundings swimming into focus.
-Beside her, Samira lay sprawled on her side,
-her curves visible beneath the delicate veils that never quite covered her completely, her breathing soft and steady.
+"Otherwise, you might still be out there."
 
-The quiet intimacy of the room offered little solace.
-Angelique curled into herself, her body trembling as the memories of the day broke over her like a wave.
-Tears spilled silently, soaking into the pillow as she gave in to her grief.
-The sound of her stifled sobs stirred Samira, who shifted gracefully,
-her body moving like water as she turned toward Angelique.
+Wardah closed her eyes. She could still feel the manacles around her wrists.
 
-Without hesitation, Samira slid closer,
-her arm slipping under Angelique’s head while her other hand drew the younger woman against her chest.
-The bare skin of Samira’s stomach was warm,
-her breath brushing softly against Angelique’s ear as she murmured in low, soothing tones.
+"I will do as I'm told," she whispered. "When I'm told. Every time. The first time. With a smile on my face."
 
-“Hush now, Wardah,” she whispered, her voice rich and steady. “Let it out. I am here.”
+Samira smiled.
 
-Her fingers moved to Angelique’s hair, threading through the strands with a deliberate, languid touch.
-The motion was hypnotic, grounding, the kind of comfort that felt as intimate as it was overwhelming.
-Samira’s lips brushed Angelique’s temple as she murmured softly, her breath sending a shiver down Angelique’s spine.
+"Good, Wardah. You remembered."
 
-When the sobs finally subsided, Angelique pressed her cheek against Samira’s chest,
-her voice cracking as she whispered, “Thank you… for being here.”
+Her hands continued their slow, steady work.
 
-Samira tilted Angelique’s chin up, her fingertips grazing her jaw as she smiled, her face serene and achingly close.
-“You are never alone, my dear Wardah,” she said, brushing a tear from Angelique’s cheek with the back of her hand.
-“I am here for you, always.”
+"Obedience keeps you safe. Learn what is expected of you, and you need never fear that pillar again."
 
-The dim light cast a soft glow over Samira,
-and for the first time, Angelique noticed the details of the golden shields that adorned her nipples and mons.
-They gleamed faintly, ornate and captivating, blending with the jeweled chains woven into Samira’s braided hair.
-The sight of them stirred a mix of curiosity and unease,
-and Angelique hesitated before asking, her voice shy and tentative.
+Wardah said nothing.
+
+"There's so much to learn," Samira continued. "And I will teach you. One thing at a time. Soon, you will know what pleases Sayyid without being told."
+
+She covered Wardah with a light sheet and tucked it around her.
+
+"Rest now. You've done enough for today."
+
+Wardah's breathing grew slow and even. She felt the cool cream against her skin and heard Samira's voice, soft and steady beside her.
+
+"That's it, little rose. Rest. Tomorrow we begin again."
+
+Wardah fell asleep to the sound of her new name.
+
+## Chapter 11: A Night of Pain and Pleasure
+
+Angelique woke in the dark. The cream had worn off, and her welts stung beneath the silk sheet.
+
+Samira lay beside her, curled on her side, her curves visible beneath the delicate veils that never quite covered her completely, her breathing soft and steady
+
+Angelique drew her knees up. Memories of the garden returned: the pillar, Rafiq's whip, Fatima's voice. She pressed her face into the pillow and began to cry.
+
+Her sobs woke Samira.
+
+Samira moved closer, slipped an arm beneath Angelique's head, and drew her against her chest. Her skin was warm, her touch gentle.
+
+"Hush, Wardah," she whispered. "Let it out. I'm here."
+
+Wardah.
+
+Angelique caught herself. Even here, in the dark, she had to remember. Fatima's slap still ached in her jaw.
+
+Angelique had died aboard the Epicurean. That was what they wanted her to believe. Here, she had to be Wardah.
+
+Samira stroked her hair, drawing her fingers slowly through the strands. Again and again, she repeated the motion, whispering to her until Angelique's sobs grew quieter.
+
+"There, little rose. That's better."
+
+Samira kissed her temple and kept stroking her hair.
+
+When she could speak, Angelique pressed her cheek against Samira's chest.
+
+"Thank you," she whispered. "For being here."
+
+Samira lifted her chin and wiped a tear from her cheek.
+
+"You are never alone, my dear Wardah. I am here for you. Always."
+
+In the dim light, Wardah noticed the gold shields covering Samira's nipples and mons. Fine patterns decorated their surfaces, matching the jeweled chains woven through her braids.
 
 “Samira… what are those?”
 
-Samira’s hand moved down her own body, her fingers tracing the edges of the shields.
-Her expression remained calm, even as her touch lingered.
-“These are chastity shields,” she said.
-“Sayyidi chose them for me.
-They ensure that I may give pleasure but not receive it—unless,
-of course, he decides I have earned such a reward and removes them.”
+Samira touched one of the shields.
 
-Her tone was matter-of-fact, but the simplicity of her words carried an unsettling weight.
-Angelique’s stomach tightened, sympathy and unease tangling in her chest.
-She watched as Samira’s fingers ghosted over the shields one last time before returning to Angelique’s face.
+"Chastity shields. Sayyidi chose them for me. They allow me to give pleasure, but I may receive it only when he permits it. When he wishes to reward me, he removes them."
 
-“How… how can you live like this?” Angelique asked, her voice trembling with disbelief.
+She spoke as though explaining an ordinary piece of jewelry.
 
-Samira’s expression softened, her gaze filled with a mixture of understanding and quiet acceptance.
-She rested a hand on Angelique’s shoulder, her thumb tracing lazy circles on her skin.
-“I am a harem girl,” she said, her voice gentle yet firm.
-“This is my world.
+Wardah stared at her.
+
+"How can you live like this?"
+
+Samira rested a hand on her shoulder and stroked it with her thumb.
+
+"I am a harem girl, Wardah. This is my world.
 It ends at these walls.
 My purpose is to serve Sayyidi.
 If he wishes me to live this way, then this is my life.
-It is not a question of how—it simply is.”
+It is not a question of how—it simply is."
 
-Angelique’s breath hitched, the reality of Samira’s words pressing in on her.
-She wanted to argue, to say it wasn’t right, that no one should accept such a life.
-But as she looked at Samira’s calm, unshaken face, the futility of resistance became starkly clear.
-Her voice faltered as she repeated the words she had been forced to memorize,
-each one falling like a stone in the quiet.
+"But don't you ever want something for yourself?"
+
+Samira smiled.
+
+"Of course, little rose. I want to please him. I want him to be happy with me."
+
+Wardah struggled to answer. Samira meant every word. She could see it in her face.
 
 “I will do as told, when I am told, every time, the first time, with a smile on my face.”
 
-Samira nodded slowly, approval flickering in her dark eyes.
-She drew Angelique closer,
-her hand moving in a slow, deliberate stroke along her back, her touch both comforting and inescapable.
+"Good. You remember."
+
+Samira drew her closer and stroked her back.
+
 “That is how it is,” she murmured.
 “In time, the words will guide you.
-You will learn to let go.”`
+You will learn to let go.”
 
-As Samira’s hands moved over her, Angelique felt her muscles gradually release their tension,
-her mind quieting under the gentle rhythm of Samira’s touch.
-The pain from her punishment began to fade into the background,
-her anxieties softened by Samira’s warm, deliberate care.
-Every movement was smooth, expert,
-her fingers tracing lines across Angelique’s skin with a practiced elegance that exuded both comfort and sensuality.
-Slowly, Angelique found herself leaning into the massage, her breaths deepening, her thoughts drifting.
+Wardah said nothing.
 
-Samira’s touch was subtly different from any she’d ever known, an artful mastery honed over years,
-and Angelique’s body responded before she could register it.
-Each stroke, each gentle press of Samira’s hands held a barely perceptible invitation,
-a delicate coaxing that seemed to bypass her mind entirely, speaking directly to her senses.
-She felt her body warm, a quiet yearning building that she barely recognized as arousal until it was undeniable.
-Her skin flushed, her muscles softened, her breaths growing unsteady under Samira’s skillful hands.
+"Now rest. You have suffered enough for one day."
+
+Samira's hands moved slowly over Wardah's back, easing the tension from her shoulders. She worked with steady pressure, repeating each stroke until Wardah's muscles began to relax. The pain receded. Her breathing deepened, and she leaned into Samira's touch.
+
+There was something different about the way Samira touched her. She never hurried, never broke the rhythm. Each stroke followed the last, giving Wardah less reason to think about anything beyond the warmth of Samira's hands.
+
+Her thoughts began to drift. She knew she should be wary, yet she wanted the touch to continue. Her skin warmed, and her breathing grew uneven. Beneath the comfort stirred a desire she had not expected.
+
+Samira felt her relax and continued, patient and unhurried.
 
 ![](ang-massage.jpg)
 
-But as the awareness of her own response rose, a surge of hesitation followed.
-She hadn’t ever been this close with a woman, hadn’t known her body could respond this way.
-It felt foreign, an unexpected intensity that stirred both curiosity and resistance.
-Her heart beat faster, caught between surrendering to the strange, intoxicating pleasure and the instinct to pull back,
-to hold onto the remnants of control.
+As the pleasure grew, Wardah hesitated. No woman had ever touched her this way. She pressed her palms against the sheet, unsure whether to pull away or remain still.
 
-Sensing her hesitation, Samira leaned closer, her voice a soft murmur.
-“Relax, Wardah.
-Let yourself feel.
-Your body and your soul need this now, after everything you’ve been through.
-Allow yourself to receive.”
-Her words were like a gentle breeze, coaxing her past her confusion, urging her to let go.
+Samira noticed and slowed her breathing. Her hands kept their gentle rhythm.
 
-Yet Angelique’s instincts warred within her.
-She wanted to pull away, to put distance between herself and Samira’s touch, but her body resisted,
-leaning into the contact, craving the warmth and solace that Samira offered.
-It was as though her entire self had split—one part wanting to retreat,
-to escape the unfamiliar intimacy, and the other, yearning for it,
-knowing somehow that she needed this touch, this connection, this wordless comfort.
+"Relax, Wardah," she whispered. "You are tired. You are safe with me. Let yourself rest."
 
-Angelique hovered on the edge of a choice.
-She could rise, pull away, guard her vulnerability.
-Or she could surrender, let her defenses down,
-and accept Samira’s touch as the relief and healing her body seemed to recognize even if her mind did not.
+Wardah's fingers tightened around the sheet. She wanted to sit up, to reclaim some control.
+But no one had touched her like this in longer than she could remember.
+She longed for the comfort of Samira's hands.
+Samira felt Wardah's resistance in her shoudlers, and met it before it could take hold.
+Her palm pressed flat along Wardah's spine until the tension had nowhere left to go.
 
-Samira’s touch grew lighter,
-her movements fluid and deliberate as though guiding Wardah into an intricate dance she didn’t yet know she was part of.
-Her hands drifted over the tender marks on Wardah’s skin,
-avoiding them at first but letting her presence linger,
-her warmth teasing just enough to pull a quiet gasp from Wardah’s lips.
-There was no urgency in Samira’s movements, only patience and control,
-a slow rhythm that seemed to draw the tension out of Wardah’s very core.
+"Stay," Samira murmured, and something in Wardah relaxed.
+Wardah stayed.
 
-Wardah’s breath hitched as the sensations began to spiral,
-each stroke of Samira’s hands coaxing her deeper into a state she couldn’t entirely comprehend.
+Samira eased the tension from her shoulders, careful of the welts left by Rafiq's whip. Her touch remained warm and steady. Whenever Wardah stiffened, Samira slowed and waited for her to relax.
+
+Wardah closed her eyes. She listened to Samira's breathing and felt her own gradually settle into the same rhythm. Her thoughts drifted, though she remained aware of the woman beside her.
+There was no urgency in Samira's movements, only patience and control,
+a slow rhythm that drew the tension of of Wardah's very core.
+
+Wardah's breath stuttered, as each stroke of Samira's hands pulled a small helpless sound from her throat before she could stop it.
 There was a softness to it, a warmth that felt safe,
-but it carried an undercurrent of something sharper, something irresistible.
-She wanted to resist, to tell Samira to stop, but the words caught in her throat as her body betrayed her,
-melting under the tender pressure of Samira’s touch.
+but it carried an undercurrent of something more urgent and irresistible.
+She opened her mouth to tell Samira to stop, and what came out instead was a low, unguarded moan.
 
-“Shh,” Samira murmured, her voice low and hypnotic, a soft hum that wrapped around Wardah’s mind like velvet.
+“Shh,” Samira murmured, matching the hum of her voice to the rhythm of Wardah’s own breath,
+then slowing it, drawing Wardah’s breathing down with hers.
 “You are safe here, Wardah.
-Let yourself feel.
-Let yourself receive.”
+Let the ache go soft.
+Let your body answer for you.”
 
-Wardah’s mind hesitated,
-still fighting the instinct to retreat, but her body leaned into Samira’s words,
-the pull of her voice stronger than any conscious thought.
-Samira’s hands moved lower,
-pressing just enough to send a wave of heat through Wardah’s body,
-the pain from her punishment blending into the growing tide of pleasure.
-The conflicting sensations left her breathless, her thoughts dissolving into a haze of need and confusion.
+For a moment Wardah’s mind looked for a way out, to stop,
+but Samira felt the flicker of resistance grow and answered it.
+Her hands found the same welt Rafiq’s whip had opened.
+She pressed, so gently, exactly there.
+“This too,” Samira breathed. “Let it be pleasure instead. It already wants to be.”
+The sting sharpened, then folded over into something wet and open,
+and Wardah heard herself moan before she understood she had stopped fighting.
 
-“Good girl,” Samira whispered, her breath warm against Wardah’s ear. “Let go. Trust me.”
+“Good girl,” Samira whispered. “Let go. Trust me.”
 
-Wardah shivered at the sound of the words, her body reacting even as her mind screamed for her to hold on.
-But Samira’s hands were relentless in their tenderness,
-her touch erasing every edge of resistance until Wardah’s world was reduced to sensation and sound.
-Samira’s voice became the anchor, the only thing Wardah could hold onto as her thoughts slipped further away.
+Wardah shivered at the praise. She was accustomed to hearing those words as a command. From Samira, they sounded like affection.
+
+She kept her eyes closed and listened to Samira's voice.
+It had become an anchor, the one steady thread Wardah’s mind could still follow as everything else in her came loose.
 
 “You will do as told,” Samira whispered,
 her hands pressing into the sensitive hollows of Wardah’s body, drawing a soft moan from her lips.
 “When you are told… every time… the first time…”
 
-The words sank deep into Wardah’s mind, carried on the rhythm of Samira’s touch.
+The words sank deep into Wardah's mind, carried on Samira's rhythm.
 Each phrase was repeated,
 punctuated by a carefully timed stroke or a gentle press that left Wardah teetering on the edge of release.
-Her breath came faster, her body trembling as she hovered there,
+Her breath came faster, her body shuddering as she hovered there,
 ready to fall but held back by the precise, controlled movements of Samira’s hands.
 
 “With a smile on your face,” Samira finished, her tone firm but soothing,
 her hands stilling just as Wardah was about to surrender completely.
 The denial was sharp, a jolt that left Wardah gasping, her body aching for release.
 
-Wardah whimpered, the mantra spilling from her lips unbidden.
-“I will… do as told… when I am told… every time… the first time… with a smile…”
+Wardah stirred, reluctant to lose their warmth.
 
-“Good girl,” Samira purred, her voice softer now, as though rewarding Wardah for her obedience.
-Her hands resumed their dance, guiding Wardah back to the edge with the same deliberate rhythm.
-Each time Wardah repeated the mantra, Samira pulled her closer to release,
-only to hold her back again, building the tension higher with every denial.
+"Say it with me, little rose."
 
-Wardah’s mind blurred, the mantra and the sensations becoming inseparable.
-She repeated the words without thought,
-her voice trembling with desperation and need, her body yearning for the release Samira denied her.
+" will… do as told…," Wardah whispered. "when I am told… every time… the first time… with a smile…"
+
+"Good girl."
+
+Samira resumed the massage. Wardah sighed and relaxed against her.
+
+Again, Samira spoke the words. Again, Wardah repeated them. Each time, Samira pulled her closer to release, only to hold her back again, building the tension higher with every denial.
+
+Soon Wardah no longer needed prompting. The mantra and the sensations became inseparable.
+She repeated the words without thought, with increasing desperation in her voice, her body yearning for the release Samira denied her.
 The world narrowed to Samira’s touch, her voice, and the rhythm of the mantra echoing in her mind.
 
-When Samira finally let her fall, the release was overwhelming,
-a wave that crashed through Wardah with unrelenting force.
-It left her gasping, trembling,
-her body shaking in Samira’s arms as the last shreds of resistance dissolved into the pleasure.
-Samira held her, her hands now gentle, soothing, guiding her back from the precipice with soft murmurs of approval.
+"Very good, my little rose."
+Samira smiled and drew her close.
 
-“Good girl,” Samira whispered again, brushing her lips against Wardah’s temple. “You have done well.”
+When Samira finally let her fall, the release was overwhelming,
+a wave that crashed through Wardah.
+It left her gasping in Samira’s arms as the last shreds of resistance dissolved into the pleasure.
+Samira held her now, gentle, soothing, guiding her back from the precipice with soft murmurs of approval.
+
+“Good girl,” Samira murmured against her temple, her lips lingering there, pride and something gentler threading through the words. “You have done well.”
 
 ## Chapter 12: A Breakfast
 
-As the first light of dawn crept into the room, Samira gently stirred Wardah awake.
-The warmth of sleep clung to her, but Samira's soft but firm encouragement coaxed her into motion.
-Exhausted from the relentless routine, Wardah complied, letting Samira guide her through the morning ritual:
-cleansing her skin, applying light makeup, and carefully arranging her hair.
-The few transparent veils they were allowed flowed over her,
-offering the illusion of modesty while revealing almost everything.
+At dawn, Samira woke Wardah with a gentle shake.
 
-Samira’s voice remained calm and instructive as she worked.
-“A harem girl must rise early, quietly,” she explained.
-“She must slip from Sayyidi’s bed without waking him, prepare herself, and return to him at her best.”
-Samira’s lips curved into a knowing smile.
-“Or perhaps wake him with pleasure, if that is what he desires.”
+"Come, little rose. Time to get ready."
 
-Wardah’s cheeks flushed, her thoughts flitting uncomfortably to the night before.
-Samira’s smirk deepened, but she said nothing more, focusing on tying the veils with effortless precision.
+Wardah ached from the previous day's punishment, but Samira helped her rise, wash, and dress. She brushed Wardah's hair, applied a little kohl around her eyes, and arranged her veils. The sheer fabric covered little.
 
-Beyond their quarters, faint sounds of activity drifted in—the rustling of fabrics,
-murmured voices, the clinking of dishes.
-When they stepped out, the other women were already busy preparing for the day.
-Samira led Wardah to the main hall,
-where breakfast had been arranged: a traditional Moroccan spread of msemen, olives, fruit, and mint tea.
-Fatima presided over the table,
-her posture straight and her expression calm as the women knelt around her in graceful silence.
+"A harem girl rises early and quietly," Samira explained. "If she has spent the night with Sayyidi, she must leave his bed without waking him, wash, dress, and return looking her best."
 
-Nadira moved between them, serving with quiet efficiency.
-When everyone was in place, Fatima began introductions.
-Her tone was brisk but kind, her authority clear.
-“Wardah, these are your sisters.
-Layla, Nadira, and Yasmine.
-And, of course, you already know Samira.”
+She smiled.
 
-Layla smiled gently, her posture as poised as her words.
-“I am Layla, from a small village in Saudi Arabia.
-My family lived simply, rooted in tradition, and they taught me early about loyalty and grace.
-My grandmother often spoke of her time in a nobleman’s harem.
-She described it as a life of elegance, beauty, and purpose.
-For her, it was an honor to serve someone powerful.”
+"Unless he wishes to be woken with pleasure."
 
-Her smile softened as she glanced toward Fatima.
-“When my family arranged for me to join Sayyid’s harem, I saw it as my chance to continue that legacy.
-At first, it was challenging—learning the expectations, adapting to the discipline.
-But now, I see this life as one of fulfillment.
-To serve Sayyidi is to be part of something greater than myself.
-A harem girl is not just a servant; she is an extension of Sayyid’s will.
-That gives me pride.”
+Wardah blushed. She remembered the night before, but Samira said nothing more. She finished arranging the veils and stepped back to inspect her work.
 
-Nadira, placing a plate of msemen near Wardah, nodded politely before speaking.
-Her voice carried the polished tone of someone used to blending worlds.
-“I am Nadira, from Rabat.
-My family believed in balancing tradition and modernity, and I was encouraged to seek education and independence.
-For a time, I lived that life—I studied in Paris, lived alone, and pursued my career.
-It felt like freedom.”
+Beyond their room came voices, rustling fabric, and the clatter of dishes. The other women were already at work.
 
-She paused, her gaze momentarily distant.
-“But that freedom came with loneliness.
-No matter what I achieved, it never felt like enough.
-When I met Sayyidi, it was different.
-He saw through the image I had built and offered me something I didn’t realize I needed: stability and purpose.”
+Samira led Wardah into the main hall. A low table held warm msemen, olives, fruit, honey, and mint tea. Fatima sat at its head while the women settled on cushions around her.
 
-Her expression steadied, and she met Wardah’s eyes directly.
-“At first, I resisted.
-Submission felt foreign.
-But over time, I understood how hollow my independence had been.
-Here, I have a role, a place.
-I’m no longer chasing validation.
-My life is harmonious, free of the chaos I once thought was fulfillment.”
+Nadira moved between them, pouring tea and setting out small dishes.
 
-Yasmine, her dark blue eyes meeting Wardah’s briefly, spoke last.
-Her tone was calm, practiced, and careful.
-“I am Yasmine. Yasmine Badr, born in Marseille to a French mother and an Egyptian father.
-I grew up between two cultures, finding success in marketing and the fast-paced world of business.
-But it was also a world of relentless pressure and shallow connections.”
+When everyone had taken her place, Fatima addressed Wardah.
 
-She paused, glancing down before continuing hesitantly.
-“I didn’t choose this life, but I’ve learned to adapt.
-There’s a strength in discipline, in knowing your place.
-Vanity and rebellion have no place here—they only bring pain.
-Instead, we learn to embrace peace through obedience.”
+"These are your sisters. Layla, Nadira, and Yasmine. You already know Samira."
 
-Yasmine’s gaze flickered briefly toward Fatima, then back to Wardah.
-“It takes time to adjust, but you will.
-We all do.
-And we are here to help.”
-Her voice was calm, but there was something beneath the surface—a flicker of something unspoken, quickly buried.
+Wardah looked at the women. Yesterday, they had watched her punishment in silence. Now they sat together for breakfast.
+Layla began before Fatima had finished speaking. A glance from Al-Kabira quieted her, though she kept smiling.
 
-Samira smiled at Wardah, her presence radiating the sensuality that seemed to flow naturally from her.
-Adjusting her veil, she spoke in her soft, lilting tone.
-“You already know who I am, Wardah, but let me tell you something important.
-I was born into this life.
-I grew up in a harem, and this world is all I’ve ever known.
-I’ve never seen what’s beyond those walls, and I’ve never needed to.
-What I am doing here is my purpose.”
+"I'm Layla, from a small village in Saudi Arabia. My grandmother served in a nobleman's harem. She told me stories of fine clothes, beautiful rooms, and the honor of serving a great household."
 
-Her voice remained gentle, but there was an authority behind it that couldn’t be ignored.
-“Every task is a dance, Wardah.
-To serve tea, to kneel, to obey—each must be done beautifully, with grace.
-That is how we please him, and that is how we are seen.
-They give us meaning.
-And everything we do here must be done beautifully.
-Grace, elegance, sensuality—these aren’t just lessons to learn.
-They are ways of being.
-In time, you will see this too.”
+She glanced at Fatima.
 
-Samira leaned in slightly, her dark eyes sparkling with conviction.
-“I will teach you, Wardah.
-You will learn how to move with poise, how to serve with dignity, and how to bring joy simply by being present.
-It is not a burden; it is a privilege.
-You will understand this.”
+"When my family arranged for me to come here, I thought of those stories. It was difficult at first. There were so many rules to learn, and I made mistakes. But now I understand. Serving Sayyidi gives me purpose. I'm proud of my place here."
 
-Fatima’s voice interrupted, steady and grounding.
-“Samira will guide you, Wardah.
-She will show you everything you need to know to fulfill your place here.
-For now, you will stay in Samira’s quarters.
-She will teach you, and you will follow.”
+Nadira set a plate of msemen beside Wardah. She straightened before speaking. Her French was fluent, though Wardah could hear another accent beneath it.
 
-Fatima said nothing about yesterday’s events.
-Her expression was calm, her authority unwavering.
-It was clear she considered the matter settled.
-Wardah had disobeyed, been corrected, and that was the end of it.
-The unspoken message was clear: punishment was a tool, not a grudge.
+"I'm Nadira, from Rabat. My parents wanted me to have an education and a career. I studied in Paris, lived alone, and found work I enjoyed. I thought I had everything I wanted."
 
-Wardah’s thoughts turned inward as she tried to process the unrelenting structure of her new life.
-The rules were absolute, the hierarchy as rigid as the stone walls around her.
-She could feel the pull of the mantra Samira had taught her,
-almost slipping into it without thought before catching herself.
-She wasn’t sure if she wanted to embrace it or resist it.
-Around her, the other women seemed to have found peace—or at least acceptance—in their roles,
-their histories shaping them but their dedication uniting them in submission to their sayyid.
+She paused.
+
+"But I was lonely. I worked hard, achieved my goals, and still felt something was missing. Then I met Sayyidi. He offered me a place here, and I accepted."
+
+She met Wardah's eyes.
+
+"Submission was difficult for me. I was used to making my own decisions. But I learned that independence wasn't giving me the happiness I expected. Here, I know my duties. I belong somewhere. I no longer have to prove myself every day."
+
+Nadira held Wardah's gaze before returning to her place.
+
+Yasmine spoke last. Her dark blue eyes met Wardah's, then dropped to the table.
+
+"I'm Yasmine Badr. I was born in Marseille. My mother is French, my father Egyptian. I worked in marketing. I had a good career, but the pressure was..."
+
+"Relentless," Fatima supplied. "And the friendships were shallow. Yasmine, tell her the rest."
+
+Yasmine tightened her jaw.
+
+"I didn't choose to come here. I fought it for a long time."
+
+She glanced at Fatima.
+
+"I learned that fighting only brought punishment. There is peace in knowing what is expected of you. I try to remember that."
+
+She looked at Wardah again.
+
+"You will learn the rules. We will help you."
+
+Her voice was steady, but Wardah had seen the glance at Fatima.
+
+Samira smiled at Wardah and adjusted her veil.
+
+"You already know me, little rose. I was born in a harem. I grew up among women like us, learning to serve. I've never been beyond the walls, and I've never wanted to. This is my world."
+
+She poured herself a little tea, her movements graceful and unhurried.
+
+"Everything we do matters, Wardah. The way we walk, kneel, serve tea, even the way we smile. Sayyidi should find pleasure in everything we do for him. And we should take pleasure in doing it well."
+
+She set down the teapot.
+
+"Once you learn, you won't have to think about every movement. You'll know what pleases him. You'll enjoy pleasing him."
+
+Samira leaned closer and took Wardah's hand.
+
+"I will teach you, little rose. How to move, how to speak, how to serve. I'll teach you to be graceful, to be beautiful, and to find joy in your duties."
+
+She squeezed Wardah's hand.
+
+"You will see. There is happiness in giving yourself to someone who knows what is best for you."
+
+Fatima spoke.
+
+"Samira is responsible for your training, Wardah. You will remain in her quarters until I decide otherwise. She will teach you our ways, and you will obey her."
+
+Wardah lowered her eyes.
+
+Fatima said nothing about the punishment. As far as she was concerned, the matter was settled.
+
+Wardah looked at the women around the table. Layla was smiling. Nadira seemed content. Yasmine sat quietly, her hands folded in her lap.
+
+Samira's fingers still rested against her own.
+
+The familiar words came into Wardah's mind.
+
+*When I'm told. Every time. The first time.*
+
+She caught herself before completing the mantra.
+
+Yesterday, Fatima had forced her to say those words. Last night, Samira had whispered them while holding her close.
+
+Now Wardah could hear them without either woman speaking.
+
+She withdrew her hand to reach for her tea.
+
+Samira smiled and passed her the cup.
 
 As breakfast concluded, Fatima began assigning duties for the day.
-Nadira was tasked with chores, while Layla and Yasmine were sent to endurance and dexterity training.
-When Yasmine let out a quiet groan, Fatima’s gaze snapped to her like a hawk.
-With calm precision, she ordered Yasmine to double her stretching exercises.
-The authority in her tone was unshakable, a subtle reminder of the discipline that governed the harem.
-Wardah watched, feeling a fleeting spark of hope at Yasmine’s defiance,
-but it was snuffed out as Yasmine complied without further protest.
-The reminder was chilling: no one here was free from these routines or expectations.
 
-Wardah’s thoughts were interrupted when Fatima addressed Samira. “Take Wardah upstairs. Al-Tabib is expecting her.”
+Nadira rose to clear the table. As she reached for a plate, her sleeve slipped back, exposing a thin, pale scar around her wrist. She caught Wardah looking and pulled the fabric down without interrupting her work.
 
-Wardah’s stomach sank.
-The looming medical exam was another reminder of how far her life had spiraled.
-Yesterday’s punishment had stripped her of any illusion of resistance,
-and she understood now that compliance, however bitter, was her only option.
+Fatima ordered Layla and Yasmine to endurance and dexterity training.
 
-Samira led her through the harem’s halls and up the grand staircase toward Karim’s quarters.
-Each step felt heavier as her thoughts raced.
-The stoic eunuch stood by the door, his gaze fixed forward, and let them pass without a word.
-Inside, the room was unchanged from the day before,
-the dark corner lined with bondage implements still casting its foreboding shadow.
+Yasmine gave a quiet groan.
 
-Samira guided her through a second door, one Wardah hadn’t noticed the day before.
-Behind it was a clinical space that seemed entirely out of place in Karim’s luxurious quarters.
-One side was warm and inviting, with a recliner and a plush chair arranged as if for comfort.
-The other side was coldly practical, with sleek monitors,
-sterile instruments, and metal surfaces gleaming under the lights.
-Wardah’s eyes landed on a gynecological chair fitted with restraints, the sight of it sending a shiver through her.
-She wanted to feel shocked, but she wasn’t.
-The harem had stripped her of expectations like mercy or normalcy.
-This was just another step in her new reality.
+Fatima looked at her.
 
-Samira rested a gentle hand on her arm, grounding her.
-“Al-Tabib will be here soon.
-Remember, Wardah, it is your place to follow his instructions.
-Do not fear the doctor.
-He does not hurt when you comply.
-He improves.
-He perfects ”
-Her tone was soft but firm, a reminder that resistance would only bring worse consequences.
+"Double your stretching exercises."
 
-Samira gestured for her to kneel on the cushions beside the door.
-Wardah obeyed, settling into the pose Samira had drilled into her:
-back straight, gaze lowered, hands resting lightly on her lap.
-The position was familiar now, her body responding to the command before her mind could resist.
-All she could do was wait, her heart pounding as she prepared for what was to come.
+Yasmine lowered her eyes.
+
+"Yes, Al-Kabira."
+
+Wardah had felt a brief hope at Yasmine's protest. It vanished when Yasmine obeyed without another word.
+
+Fatima turned to Samira.
+
+"Take Wardah upstairs. Al-Tabib is expecting her."
+
+Wardah's stomach tightened.
+
+She remembered the talk of modifications and procedures. Yesterday, she would have demanded to know what the doctor intended to do. Now she knew better.
+
+She rose when Samira touched her arm.
+
+Samira led Wardah through the halls and up the grand staircase toward Sayyid's quarters.
+
+Wardah climbed reluctantly. She remembered what Fatima had said about the examination and the procedures Sayyid might order.
+
+A eunuch stood guard outside the door. He let them pass without a word.
+
+Karim's room looked much as it had the day before. In one corner, the restraints and other implements still hung against the wall.
+
+Samira opened a second door that Wardah had not noticed before.
+
+Beyond it lay a medical room. On one side stood a recliner and a cushioned chair. On the other were monitors, steel cabinets, and trays of instruments.
+
+Wardah stopped when she saw the examination chair. It had leg supports and restraints.
+
+Samira touched her arm.
+
+"Come, little rose. Al-Tabib will be here soon."
+
+Wardah stared at the chair.
+
+Samira followed her gaze and smiled.
+
+"Don't be afraid. Al-Tabib is wonderful. He can correct almost any imperfection. And when Sayyidi chooses to improve one of us, it is a great honor."
+
+Wardah looked at her.
+
+"Improve?"
+
+"Of course." Samira sounded delighted. "He knows exactly what pleases Sayyidi. I've seen his work, little rose. You should be happy Sayyidi has chosen you."
+
+She gave Wardah's arm a gentle squeeze.
+
+"Just do as he asks. He will tell you what he needs, and you must obey. There's nothing to fear when you cooperate."
+
+Wardah looked again at the instruments.
+
+Samira pointed to the cushions beside the door.
+
+"Kneel here, little rose. Back straight, hands in your lap."
+
+Wardah knelt and lowered her eyes, as Samira had taught her.
+
+"Very good."
+
+Samira settled beside her, pleased with her progress.
+
+Wardah listened to the faint hum of the equipment and waited for the doctor.
 
 ## Chapter 13: A Piercing
 
-The door opened with a quiet click, and Wardah stiffened, her breath caught in her throat.
-She had spent the night dreading this moment, her thoughts looping through images of harsh,
-sadistic figures—someone who might gloat over her helplessness or revel in her humiliation.
-Her skin still stung from the whip’s bite,
-and the sight of the bondage equipment just on the other side of this door.
-Her heart pounded as polished shoes tapped lightly on the tiled floor.
+The door clicked open.
 
-When she looked up, she froze, surprised.
-The man who entered was nothing like she’d imagined.
-He was tall and clean-cut, his tailored suit speaking of refinement rather than menace.
-His fit, athletic build was accentuated by the smooth lines of his clothing,
-and his warm, intelligent eyes met hers briefly before she remembered herself and dropped her gaze.
-He smiled, not cruelly but with the calm assurance of someone who expected his presence to command respect.
-He seemed like a man she might have passed in a Parisian café,
-someone discussing literature over espresso—not the man responsible for what she knew would come.
+Wardah stiffened. She had dreaded this meeting since Fatima ordered the examination. She expected another man like Rafiq, someone who would enjoy her fear. Her back still ached from yesterday's punishment.
 
-“I am Dr. Rashid,” he said, his voice calm and professional, but not without a touch of friendliness.
-“Or Dr. Dr. Feisal Rashid, if we’re being formal, but that seems unnecessary here.”
-His tone carried a casual ease, as though this were some ordinary medical consultation.
-The dissonance made her stomach churn.
+Polished shoes crossed the tiled floor.
 
-Wardah swallowed hard, forcing her body to comply with the lessons drilled into her.
-She straightened her posture, kept her head slightly bowed,
-and folded her hands neatly in front of her, presenting the image of grace she knew was expected.
-She felt her muscles tighten further with each passing second,
-her mind grappling with this incongruous scene: a polite doctor in an opulent,
-clinical room equipped with a gynecological chair fitted with restraints.
-The sight of it made her skin prickle, a visceral reminder of her complete vulnerability.
+The man who entered was tall and athletic, dressed in a tailored suit. His hair was neatly cut, his face clean-shaven. He looked at Wardah and smiled.
 
-“Would you care for some coffee, Wardah? Or tea, perhaps?” he asked, his voice soft and pleasant.
+She lowered her eyes.
 
-Her eyes flicked up, startled by the question.
+He could have been a businessman she had passed in a Paris café, discussing books over coffee. Nothing about him suggested the procedures Fatima had mentioned.
+
+"I am Dr. Feisal Al-Rashid," he said. "I trained in both psychology and plastic surgery. You may call me Dr. Rashid."
+
+He studied her face.
+
+"I prefer my patients to work with me. Tell me if something troubles you, or if you need anything during the examination. I want you to be as comfortable as possible."
+
+He spoke as though this were an ordinary consultation.
+Wardah caught the qualifications.
+He *preferred* cooperation.
+He wanted her as comfortable *as possible*.
+Neither meant she had a choice.
+She straightened her back, lowered her chin, and folded her hands in her lap, as Samira had taught her.
+
+Behind the doctor stood the examination chair, its metal supports and restraints gleaming under the lights.
+
+"Would you like some coffee, Wardah? Or perhaps tea?"
+
+Wardah looked up.
+
 Tea?
-It felt absurd, almost laughable, in this setting.
-For a moment, she hesitated, her mind stumbling over how to respond.
-The civility in his voice made her feel more off-balance than cruelty might have.
 
-“Tea, please, Dr. Rashid,” she managed, her voice subdued but steady.
-She kept her gaze low, noting how Samira, kneeling beside her, had not moved or spoken.
-Samira’s silence was its own reminder of the hierarchy at play.
-Her deference was telling, leaving Wardah feeling even more exposed.
+She had expected orders, perhaps threats. Instead, the doctor was offering refreshments.
 
-Dr. Rashid nodded,
-as he prepared two cups of tea with a quiet precision that felt almost rehearsed.
-He ignored Samira entirely, focusing solely on Wardah, as if she were the only person in the room.
-“This must all feel overwhelming,” he said as he handed her the cup.
-“But I am here to help you adjust.
-If you have concerns, please don’t hesitate to tell me.
-My role is to ensure your well-being.”
+"Tea, please, Dr. Rashid."
 
-His words were calm, measured, almost reassuring.
-Wardah stared into the swirling mint leaves in her cup, her emotions a turbulent mess.
-Part of her wanted to believe him,
-to cling to this semblance of normalcy in a world that had torn her from everything familiar.
-But a deeper part of her, the part that had spent the last few days enduring punishments and indignities,
-screamed at her to stay on guard.
-No one here could be trusted.
+"Of course."
 
-“Thank you, Dr. Rashid,” she said softly, her voice betraying none of her inner turmoil. “I appreciate your concern.”
+He went to the counter and prepared two cups of mint tea. Samira remained kneeling beside Wardah, silent and attentive.
 
-He gestured for her to rise, and she set the tea aside, moving carefully to obey.
-Her muscles felt taut, like they might snap under the tension of keeping up this controlled facade.
-Dr. Rashid began to circle her, his gaze clinical, his movements unhurried.
-She suppressed a shiver as his eyes traveled over her form, visible through the thin veils she had been given to wear.
+Dr. Rashid handed Wardah a cup, then took his own and settled into the chair opposite her.
 
-“Your correction yesterday did not break the skin, and you were fortunate the sun did not burn you.
-Your sayyid would be disappointed if you were marked.”
+"This must be quite an adjustment," he said. "I understand you have had a difficult introduction to the household."
 
-The matter-of-factness of his comment hit her like a slap.
-Her mind reeled at how easily he spoke of her whipping, as if it were nothing more than an unfortunate inconvenience.
-She clenched her hands at her sides, fighting the wave of anger and shame that rose within her.
+Wardah wrapped her hands around the warm cup.
 
-“Do you require painkillers?” he asked, as if he were discussing a minor headache.
+"My role is to look after your health and advise Sayyid on your care. I take that responsibility seriously."
 
-Her lips parted, and for a moment, she couldn’t speak.
-The surreal normalcy of the question left her disoriented,
-caught between her anger and the necessity of keeping her composure.
-“No, Dr. Rashid,” she finally said, her voice measured.
-“Samira was kind enough to help me yesterday.”
+He smiled.
 
-For the first time, Dr. Rashid acknowledged Samira with a brief nod. “Ahsanti, ya Samira,” he said smoothly in Arabic.
+"If anything worries you, tell me. I would rather know than have you suffer in silence."
 
-Samira’s response was immediate, soft and deferential. “Ahsan al-Tabib ila.”
+Wardah watched the mint leaves settle in her tea.
 
-Dr. Rashid gestured toward the gynecological chair.
-His calm professionalism, while polite, offered no reprieve from the indignity of what was about to happen.
-Her gaze flicked briefly to the straps dangling from the chair, and a cold shiver ran through her.
-Memories of the restraints in her owner’s room flashed unbidden in her mind, fueling her fear.
-She took a deep breath and stepped forward, knowing resistance was not an option.
+He sounded kind. She wanted to believe him. Yet Fatima had already told her who would decide which procedures she underwent.
+
+"Thank you, Dr. Rashid," she said. "I appreciate your concern."
+
+Dr. Rashid gestured for Wardah to stand.
+
+She set her tea aside and rose, careful not to show how much she still ached.
+
+He walked around her, examining her through the thin veils. She kept her hands at her sides and tried not to flinch.
+
+"Your correction yesterday did not break the skin. Fortunately, the sun did not burn you either." He examined her shoulders once more. "Al-Kabira was fortunate. Sayyid would be most displeased if you were left with marks."
+
+Wardah clenched her fists. He spoke of her whipping as though it were a minor inconvenience.
+
+"Do you need something for the pain?"
+
+She stared at him. The question was so ordinary that she struggled to answer.
+
+"No, Dr. Rashid. Samira took good care of me yesterday."
+
+He glanced at Samira.
+
+"Ahsanti, ya Samira."
+
+"Shukran, ya doktor," Samira replied, lowering her head.
+
+Dr. Rashid turned to the examination chair.
 
 "Please disrobe and take your place," he said,
-his voice as steady and detached as if he were asking her to take a seat in a waiting room.
+his voice unbothered, as if he were asking her to take a seat in a waiting room.
 
-Her hands trembled as she let her veils fall to the floor.
-Every movement felt like an act of surrender, her instincts screaming to cover herself.
-She forced her legs to move, her body wooden as she climbed into the chair.
-The cold metal frame pressed against her skin as she positioned herself,
-placing her arms beside the leather straps and leaning back until her head rested on the padded support.
-The bright overhead light was merciless, making her feel even more exposed.
+Wardah looked at the restraints attached to its sides. She remembered the equipment in Karim's bedroom.
 
-Dr. Rashid moved methodically, adjusting the chair’s angle with smooth, practiced motions.
-“I’ll begin by checking your vitals,” he said evenly.
-His tone, calm and almost reassuring, did nothing to dispel the feeling that she was a specimen on display.
+She drew a breath and untied her veils. They slipped to the floor. She wanted to cover herself, but kept her hands at her sides.
 
-Wardah clenched her hands into fists, her breathing shallow as he took her blood pressure and checked her pulse.
-Each step of the exam was accompanied by a detached explanation: her reflexes, her breathing, even her teeth.
-His hands were steady, his touch devoid of malice, but the clinical detachment only heightened her discomfort.
-She felt like a prize animal being judged for her value, each observation another reminder of her loss of autonomy.
+Then she climbed into the chair and lay back against the padded headrest. The leather straps lay beside her arms. A bright lamp hung overhead.
+
+Dr. Rashid adjusted the chair.
+
+"I'll begin by checking your vital signs."
+
+Wardah watched his hands. He worked with the same care he had shown while preparing her tea.
+
+She clenched her fists as he took her blood pressure and checked her pulse. He explained each step, examining her reflexes, breathing, and teeth.
+
+His hands were steady, his manner professional. Wardah felt like an animal being inspected before a sale.
 
 “I’m going to begin the pelvic exam now,” he said.
 “This will be quick.
 The instrument is warmed and lubricated to minimize discomfort.”
 
-Wardah stared at the ceiling, her body tensing involuntarily as she felt his touch.
-Despite her efforts to stay calm, her muscles clenched, and her breathing hitched.
-Dr. Rashid paused, his tone soft but unsettlingly neutral.
+Wardah stared at the ceiling. She stiffened at his touch, her breath catching.
 
-“Some of your harem sisters find it easier to be restrained during this part of the exam,” he offered casually,
-as if offering her a blanket on a chilly day.
-“If you’d like, I can secure you.
-Many feel more at ease this way.”
+Dr. Rashid paused.
 
-Her heart lurched, a sick mix of panic and revulsion rising in her throat.
-She managed a weak shake of her head, unable to trust her voice.
-No part of her wanted to give up what little control she still held.
-Dr. Rashid simply nodded and resumed his work, unfazed by her reaction.
+"Some of your harem sisters prefer to be restrained during this part of the examination. Would you like me to secure you? Many find it more comfortable."
 
-The examination continued, each step announced with calm precision.
-His hands moved with clinical efficiency, avoiding unnecessary pain but offering no comfort.
-Wardah gritted her teeth, her body trembling under the strain of compliance.
-She focused on the sound of her own breathing, trying to block out the invasive sensations.
+Wardah shook her head. She could not bear the thought of being strapped down again.
 
-Finally, Dr. Rashid stepped back. “The examination is complete,” he said, gesturing for her to step down.
+"Very well."
 
-Relief washed over her, but it was short-lived.
-As she slid off the chair, she realized her veils still lay on the floor, her bare skin exposed to his impassive gaze.
-The urge to cover herself was overwhelming, but she forced herself to kneel, her movements mechanical.
-If he wanted her to dress, he would tell her.
-She hated how easily the thought came, the instinct to obey taking root like a reflex.
+He resumed the examination, explaining each step before proceeding. He worked quickly, taking care not to hurt her. Wardah gritted her teeth and concentrated on breathing steadily.
 
-Dr. Rashid looked over his notes, his expression neutral.
-“Congratulations, Wardah,” he said matter-of-factly.
-“You’re in good health, given the circumstances of your arrival.”
-He flipped a page and continued, “I’ll prepare the report and recommendations for your Sayyid’s review.”
-Wardah was glad that this ordeal was over.
-“Shukran, al-tabib,” she murmured with a steady voice.
-Wardah clung to that fragile sense of control as Dr. Rashid’s voice remained calm and steady,
-slicing through her thoughts.
+At last, he stepped back.
 
-“Your Sayyid has requested that we proceed with a few modifications right away,
-as your health permits it,” he announced, as if relaying instructions for a simple errand.
-His eyes briefly scanned her face, pausing on her trembling lips and widened eyes.
-“This will allow ample time for healing.”
+"The examination is complete. You may get down."
 
-Wardah’s breath hitched.
-The words felt like a hammer blow, sharp and unavoidable.
-Her heart began to race, the panic swelling in her chest as he continued.
+Wardah exhaled and climbed from the chair.
 
-“Your owner has requested piercings to accommodate chastity shields,
-similar to those worn by Samira,” Dr. Rashid said with clinical detachment.
-“One piercing in each nipple and three in each of the outer labia.”
+Her veils lay on the floor. She wanted to pick them up and cover herself, but instead knelt beside Samira, her back straight and her hands in her lap.
 
-The room tilted.
-The words replayed in her mind, their meaning refusing to settle.
-She felt her pulse pounding in her ears, drowning out everything else.
-A surge of horror overtook her—this wasn’t her body anymore.
-It was his, to alter and mark as he pleased.
+If he wanted her dressed, he would tell her.
 
-Wardah forced herself to remain still, though every fiber of her being screamed to recoil, to fight.
-She gripped the fabric of her cushion, her knuckles white, trying to quell the rising tide of helplessness.
-Her mind darted to the whipping post and the pain she had endured just a day earlier.
-The memory burned, vivid and sharp, extinguishing any flicker of rebellion before it could ignite.
-Resistance was futile.
-She would just end up with more welts on her body
-before the modifications would inevitably happen as her sayyid requested.
+The thought came so naturally that it frightened her.
 
-“I… will do as told… as Sayyid wishes…” she murmured, her voice breaking on the final word.
-The mantra fell from her lips like a fragile shield, hollow and insufficient against the violation she knew was coming.
-Her chest heaved as her breaths quickened, teetering on the edge of hyperventilation.
+Dr. Rashid reviewed his notes.
 
-Out of the corner of her eye, Samira shifted, her calm presence an unsettling juxtaposition to Wardah’s terror.
-The subtle movement felt like a reminder: compliance was the only option.
+"Congratulations, Wardah. You're in good health, considering what you've been through."
 
-Dr. Rashid rose, his hands moving with practiced ease as he prepared the tools.
-One by one, he laid them out on the sterile metal tray.
-Each click and clink of the instruments seemed louder than the last, filling the silence with a menacing rhythm.
-A bottle of anesthetic, glinting pliers, disinfectant,
-and tiny barbells that caught the light—all neatly arranged, waiting.
+He turned a page.
 
-“Wardah,” he said gently, his voice cutting through her spiraling thoughts.
-He gestured toward the chair.
-“Please come here and have a look.”
+"I'll prepare my report and recommendations for Sayyid's review."
 
-Her legs felt like lead, but she forced herself to stand.
-The instinct to run clawed at her, a primal urge she buried beneath layers of fear and futility.
-Step by step, she approached the chair, her gaze flickering to the instruments.
-They seemed alien, like tools meant for some cold experiment.
-She felt herself shrink further, her body pulling inward as if trying to disappear.
+Wardah lowered her head.
 
-Dr. Rashid’s tone was steady, almost soothing as he continued.
-“I’ll be placing the piercings as your owner requested.
-Afterward, I’ll use a Dermalynix Healing Accelerator to minimize inflammation and speed up recovery.
-This will be followed by Rejuvex Healing Factor salve, applied twice daily.
-It’s a simple process, though there will be some discomfort.”
+"Shukran, ya doktor."
 
-His voice might as well have been reciting a weather forecast.
-The casual precision of his words made her stomach churn.
-She tried to focus on the details, hoping they would distract her from the enormity of what was happening.
-But every sentence only reinforced the reality: her body was no longer her own.
+The examination was over. She had obeyed, and he had kept his word about minimizing discomfort.
 
-“It will be painful,” he added, as if it were a minor inconvenience.
-“But with proper care, it should heal without issue.”
+For a moment, she felt relieved.
 
-Wardah’s hands trembled at her sides.
-She shut her eyes,
-trying to block out the sight of the tools, the chair,
-the calm professionalism of the man who spoke as though none of this mattered.
-Her breath quickened again, and she clutched at the mantra like a lifeline.
-I will do as told.
-As Sayyid wishes.
-Each repetition felt weaker than the last, her composure fraying under the strain.
+Then Dr. Rashid spoke again.
 
-When she finally spoke, her voice was barely audible, a fragile whisper.
-“Al-Tabib… if you would, please… I would prefer to be restrained.”
+"Sayyid has requested several modifications," Dr. Rashid said. "Your health permits us to begin today. That will leave ample time for healing."
 
-The words tasted bitter on her tongue, but she forced them out.
-She couldn’t trust herself to remain still, not when every instinct screamed at her to run, to fight.
-It was better to relinquish even that small illusion of control than risk the punishment for disobedience.
+Wardah stared at him.
 
-Dr. Rashid nodded, his demeanor unchanged.
-“As you wish,” he said, his tone polite, almost respectful, as though this were her decision.
+"Your owner wishes you to wear chastity shields like Samira's. You'll need piercings to accommodate them. One in each nipple and three in each outer labium."
 
-Wardah’s legs wavered as she climbed into the chair, her movements mechanical.
+Wardah gripped the cushion.
+
+She had seen Samira's shields the night before. Now she understood that Karim intended the same for her.
+
+She wanted to refuse. The memory of the garden stopped her. Fatima would punish her, and the procedures would still take place.
+
+"I will do as I'm told," she whispered. "As Sayyid wishes."
+
+Her breathing quickened.
+
+Samira shifted beside her but said nothing.
+
+Dr. Rashid rose and arranged his instruments on a sterile tray. Wardah watched him set out the disinfectant, anesthetic, forceps, and small barbells.
+
+"Come and have a look, Wardah."
+
+She stood and approached the chair.
+
+He indicated the instruments.
+
+"I'll place the piercings Sayyid has requested. Afterward, I'll use the Healing Accelerator to reduce inflammation and speed recovery. You'll also receive Healing Factor salve, to be applied twice a day."
+
+He looked at her.
+
+"The procedure will hurt, but I'll take care to minimize the pain. With proper aftercare, I expect you to heal well."
+
+Wardah stared at the instruments. She wanted to run, but there was nowhere she could go.
+
+She remembered his earlier offer.
+
+"Al-Tabib?"
+
+"Yes, Wardah?"
+
+"Please. I would prefer to be restrained."
+
+The words were difficult to say. She feared moving during the procedure, and she feared what would happen if he considered her uncooperative.
+
+Dr. Rashid nodded.
+
+"As you wish."
+
+Wardah climbed into the examination chair.
 Straps tightened across her waist, over her pelvis, above and below her breasts,
 around her elbows, wrists, neck, forehead, legs, and ankles.
-The restraints were snug but not cruel, another reminder of how clinical, how impersonal this was.
-She was just another task, another body to be processed.
 
-As Dr. Rashid adjusted the chair, Wardah felt the last remnants of her resistance crumble.
-She lay there, bound and exposed, her heart pounding as she stared at the ceiling.
-The memory of yesterday’s pain pulsed through her, and tears welled in her eyes, slipping silently down her cheeks.
-No one acknowledged them.
-She was a possession, nothing more.
+She stared at the ceiling. Tears ran down her cheeks.
 
-Dr. Rashid began adjusting the chair’s position with the same steady precision he had shown throughout,
-his hands moving the levers and angles with a quiet efficiency
-that made Wardah feel more like a mannequin than a person.
-He explained each step in his calm, professional tone, his detachment unnerving her further.
+"I'll apply the local anesthetic to your nipples now," he said. "You may feel some cold."
 
-“I’ll be applying local anesthetic to your nipples now,” he said. “This may feel a bit cold.”
+Wardah flinched at the first touch. Her fingers tightened around the armrests.
 
-The first cool touch of the numbing agent made her flinch despite herself.
-She clenched the leather-wrapped armrests, her fingers trembling as she fought to stay still.
-The chill against her skin seemed to seep into her bones, amplifying her sense of exposure.
-Her gaze darted toward the ceiling, trying to fixate on the stark overhead light instead of the sensation.
+"I'll make sure the area is numb before I begin."
 
-Dr. Rashid continued without pause, his tone a clinical monotone that carried neither judgment nor empathy.
-“I’ll ensure the area is fully numb before proceeding.”
+She tried to steady her breathing. The straps held her in place, and she could do nothing but wait.
 
-Wardah’s chest rose and fell rapidly as she tried to steady her breathing.
-Every instinct screamed for her to curl inward, to shield herself,
-but the straps around her wrists and ankles held her firmly in place.
-Her helplessness was absolute, a sharp reminder of how completely she had been stripped of control.
+Samira moved beside her. The gold shields on her own body caught the light as she leaned closer.
 
-Beside her, Samira stepped closer, her movements fluid and silent.
-She leaned in, her face calm and composed,
-though her adorned chest—covered by gold-plated shields—was a visible testament to her own experience with this procedure.
-Her voice, low and soft, was meant only for Wardah.
+"Breathe, little rose. You're doing well."
 
-“Breathe, Wardah.
-Just breathe,” Samira murmured, her tone a careful balance of reassurance and insistence.
-“You’re doing well.
-This will pass.”
+Wardah looked at her.
 
-Wardah’s tears threatened to spill over, but Samira’s steady presence anchored her.
-The words didn’t erase her fear,
-but they gave her something to focus on, a thread of humanity in the sterile, detached atmosphere.
-She forced herself to match her breathing to Samira’s soothing rhythm, even as her chest tightened with each exhale.
+"That's it. Slowly. I'm right here."
 
-Dr. Rashid glanced toward them briefly, his expression unchanging.
-“I’m going to test the anesthetic now,” he said, his voice calm as ever.
+She followed Samira's breathing. The fear remained, but she had something to concentrate on.
+
+Dr. Rashid looked up from his instruments.
+
+"I'm going to test the anesthetic. Tell me what you feel."
 He lightly touched her nipples, first one and then the other.
 “Can you feel this?”
 
-Wardah barely registered the faint pressure, the sensation dulled and distant.
+Wardah barely registered the faint pressure, dulled and distant.
 Her lips parted, but no words came.
 Finally, she whispered, hoarse and defeated, “No, Al-Tabib.”
 
-“Good,” he replied, as if her answer confirmed nothing more than a routine observation.
+"Good."
 Without hesitation, he reached for the polished pliers.
 
-Wardah braced herself, her body tensing involuntarily as she felt the cold, metallic tool against her skin.
+Wardah braced herself as she felt the cold, metallic tool against her skin.
 There was a muted pinch, then a sharp, concentrated pain that broke through the numbing haze.
-Her breath hitched, and a strangled gasp escaped her lips before she could stop it.
+Her breath hitched and she gasped before she could stop it.
 
-Before the first piercing had fully registered, the second came, swift and efficient.
+Samira squeezed her hand.
+"You're doing well, Wardah. Just a little longer."
+
+Before the first piercing had fully registered, the second came.
 The pain was sharper this time, cutting through her attempts to remain composed.
-A sob threatened to rise, but she bit it back, her chest trembling under the tight restraints.
 
-“That was it—both are done,” Dr. Rashid said, his tone as neutral as if he had simply adjusted her chair.
-“They look perfect.”
+She sobbed, and pulled against the tight restraints.
 
-Wardah couldn’t bring herself to look.
-Her head swam with the lingering sting and the humiliation of it all.
-She felt the antiseptic’s cool sting as he dabbed it over each fresh wound,
-and then the slight pressure as he inserted the small barbells.
-The sterile procedure felt completely detached from the emotional violation she experienced.
+The procedure was brief, though Wardah struggled to remain calm. At one point, she gasped and pulled against the straps.
 
-Samira’s whisper returned, warm and soothing. “You’re brave, Wardah. It’s almost over. Just breathe.”
+Samira squeezed her hand.
+"You're doing well, Wardah. Just a little longer."
 
-Wardah turned her focus to Samira’s voice, willing herself not to crumble.
-The buzz of the Dermalynix Healing Accelerator was faint but noticeable,
-its soft vibration dulling the raw edges of the pain.
-Her breaths came slower now, the device’s warmth almost lulling her into an exhausted stupor.
+At last, the doctor set down his instruments.
 
-Dr. Rashid’s voice broke the quiet.
+"Both piercings are complete. The placement is excellent."
+
+Wardah closed her eyes. She could not bring herself to look.
+
+Dr. Rashid cleaned the treated areas and checked his work.
+
+"I'll begin the Healing Accelerator now," he explained.
 “This will promote healing and reduce inflammation.
 Let me know if you feel anything unusual.”
 
-She said nothing, her voice caught somewhere between her chest and her throat.
-Instead, she stared blankly at the ceiling,
-wishing she could detach from her body as easily as Dr. Rashid seemed to detach from the invasive acts he performed.
+She said nothing,
+instead, she stared blankly at the ceiling.
 
-Dr. Rashid’s voice remained steady and calm as he inquired, “How does it feel?
-Is the numbing working?
-You might notice a bit of vibration from the laser device.”
+A faint hum filled the room. Warmth spread across the treated skin, easing some of the discomfort.
 
-Wardah tried to focus on the sensations in her chest,
-willing herself to feel only the faint, warm buzz of the Dermalynix device.
-But her control shattered the moment she felt a sudden sharp prick below.
-The pain cut through her attempts at composure, shocking in its clarity despite the numbing.
-Dr. Rashid, unfazed, moved with clinical efficiency, placing the first two piercings in her outer labia with precision.
+Wardah's breathing slowed. Samira remained beside her, stroking her hand with her thumb.
 
-Her body jerked instinctively against the restraints, her wrists pulling against the straps,
-but they held her firmly in place.
-Tears spilled down her face, silent and unchecked, as a second, equally sharp sting followed.
-The numbing agent dulled the sensation quickly,
-leaving only a lingering ache, but the humiliation burned just as brightly.
+"How does it feel?" Dr. Rashid asked. "Is the anesthetic working? You may notice some vibration from the device."
 
-Samira leaned closer, her voice soft but insistent.
+Wardah concentrated on the faint warmth of the device.
+
+Then a sharp pain made her flinch. Dr. Rashid, moved quickly and placed the first set of piercings in her outer labium.
+
+She pulled against the restraints.
+Tears ran down her cheeks.
+The numbing agent dulled the sensation quickly, leaving only a lingering ache, but the humiliation burned just as brightly.
+
+Samira leaned closer and took her hand.
 “You’re strong, Wardah.
 Breathe through it.
 It’s almost done.”
-Her own adornments glinted faintly in the sterile light, a reminder that she had endured this before.
-Her tone carried no trace of pity, only quiet reassurance.
 
-Wardah’s breaths came in rapid bursts, her chest heaving as she tried to push back the panic rising like a wave.
-“Please… a short break,” she managed, her voice trembling with effort.
+Wardah tried to follow her breathing, but another stab of pain made her gasp.
 
-Dr. Rashid nodded, his voice as gentle as ever.
-“Of course, Wardah.
-Just a moment.
-I’ll clean the area first, and we’ll be done soon.”
-Yet even as he reassured her, he moved with quiet precision,
-setting the final two piercings before she could react, completing the procedure with practiced speed.
+"Please," she whispered. "A short break."
 
-A brief, futile struggle rose within her, her body instinctively testing the restraints,
-but the firm bindings held her motionless.
-And then it was over.
-Wardah slumped into the chair, her body spent.
-The faint buzz of the Dermalynix device returned,
-the warmth radiating through her lower body as it soothed the raw ache.
-She felt disoriented, floating somewhere between pain and exhaustion, her adrenaline ebbing away and leaving her hollow.
+"Of course, Wardah."
 
-Samira’s whispers remained steady, her hand lightly brushing Wardah’s.
+Dr. Rashid checked his work.
+
+"Let me finish cleaning the area. We're nearly done."
+
+He continued, completing the final piercings before Wardah could prepare herself.
+
+She pulled against the straps once more, then lay still.
+
+"All finished," he said.
+
+Wardah closed her eyes. Her arms ached from straining against the restraints.
+
+The device began to hum again. Warmth spread through the treated area, easing the worst of the discomfort.
+
+Samira stroked her hand.
 “You’re brave.
 It’s over now.
 Breathe deeply.
 Let the calm settle in.”
 
-Dr. Rashid observed her with professional detachment, his tone unchanged. “How are you feeling now, Wardah?”
+Dr. Rashid examined his work.
 
-Wardah blinked, her voice faint as she answered, “Afraid. Worn out.”
+"How are you feeling, Wardah?"
 
-He nodded, as if the response was expected. “Good. No significant pain or bleeding is visible. Just a dull ache, yes?”
+She opened her eyes.
 
-She managed a small nod. “Yes, Al-Tabib.”
+"Afraid. Exhausted."
 
-“I’ll need to take some photographs of the sites for documentation,” he informed her,
-holding up his phone and capturing high-resolution images of the freshly pierced areas.
-The soft clicks of the shutter felt surreal, a clinical reminder of her helplessness.
-She heard a printer whir to life as the images were immediately processed for his records.
+He nodded.
 
-“Now, I’m going to release the restraints.
-Take your time getting up,” he advised as he adjusted the chair, moving it to a more upright position.
-He began with her head restraints,
-then moved down to her wrists and ankles, each release granting her a fraction more freedom.
+"I understand. There's no significant bleeding, and the treatment appears to be working. Is the pain manageable?"
 
-When Wardah was fully unrestrained, she lay back for a moment, taking a deep, grounding breath.
-She slowly attempted to sit up, instinctively careful not to press against her tender labia.
-Dr. Rashid watched her with clinical detachment, offering a quiet reminder.
-“Most girls prefer to kneel rather than sit directly after their piercing.”
-He gestured to a nearby mirror.
-“There’s a mirror over there.
-Take your time.
-Your owner will be pleased.
-Everything looks perfect, and you did well.”
+Wardah swallowed.
 
-Wardah, still dazed, took Samira’s supportive hand and rose carefully from the chair.
-She took a few tentative steps toward the mirror,
-feeling the slight pull and dull ache with each movement, the numbness fading gradually.
+"Yes, Al-Tabib."
 
+"Good. We'll continue the healing treatment until I'm satisfied with the result."
 
-As Wardah stood before the mirror,
-her gaze fell on her altered reflection—her once unmarked body now bearing the cold glint of surgical titanium.
-Angry red welts circled her nipples where the barbells had been inserted,
-and the faint ache from the rings
-threaded through her most intimate areas served as a reminder of how deeply her "owner"
-had imposed his will upon her.
-This was no temporary punishment, no lesson that would fade;
-these marks were permanent, tangible symbols of her powerlessness.
+"I'll take some photographs for your medical records," Dr. Rashid said.
+
+He used his phone to photograph the piercings. Wardah heard the shutter click several times, followed by the whir of a printer.
+
+"Now I'll release the restraints. Take your time getting up."
+
+He raised the chair and released the straps, starting at her head and working down to her ankles.
+
+Once free, Wardah lay still for a moment. She took a deep breath, then tried to sit up. The movement pulled at her tender skin.
+
+"Most girls find kneeling more comfortable than sitting after this procedure," Dr. Rashid said.
+
+He pointed toward a mirror.
+
+"Have a look when you're ready. Everything went well. Sayyid will be pleased with the results."
+
+Samira offered her hand.
+
+Wardah took it and rose carefully. Her legs felt weak, and each step brought a dull ache as the anesthetic began to wear off.
+
+She approached the mirror.
+
+Two small titanium barbells gleamed against her breasts. Lower down, six rings caught the light, three on each side. Her skin was red and swollen around the new piercings.
+
+She stared at her reflection.
+
+Yesterday, her body had been unmarked. Now Sayyid's wishes were written upon it.
+
+Wardah raised a hand and touched the skin beside one of the barbells.
+
+The tenderness was real.
+
+So were the piercings.
 
 ![](ang-nipple-ornament.jpg)
 
-He hadn’t even needed to be there for this.
-His minions had done the work with clinical detachment, as if she were nothing more than a canvas to be molded,
-documented in sterile reports and assessments of her compliance.
-She clenched her fists as anger surged within her, helpless and raw.
-Every instinct told her to fight, to reclaim herself, but the echo of yesterday’s punishment restrained her.
-The welts, still clearly visible, reminded her of how precise and measured their control over her was.
-They'd ensured she would remember but not bear lasting scars—on the outside, at least.
+Sayyid hadn't even needed to be present. Others had carried out his wishes without question, as though her body were his to alter.
 
-And yet, today’s “marking” was different.
-These barbells and rings were not meant to be removed.
-She glanced at Samira,
-seeing in her companion a glimpse of her own future, the next stages in this process of subjugation.
-Samira, adorned with her chastity shields, stood calmly, a living testament to where this journey would end.
-Samira had been groomed to fit into this world, every hint of her own will shaped and molded to serve.
+Wardah clenched her fists. She wanted to fight, to demand they undo what they had done. But she remembered the pillar, the whip, and what resistance had cost her.
 
-Wardah looked back at herself, a strange mix of defiance and resignation flashing across her face.
-This was her reality now, her body transformed to meet her owner’s desires.
-The symbols of his control marked her visibly, but beneath the anger, a quiet resolve grew:
-while her body might bear his imprint, she would hold fiercely to the parts of herself he could never reach.
+Yesterday's welts would fade. Fatima had made sure of that. The pain would remain in her memory, but her skin would heal.
+
+The piercings were different. They were meant to stay.
+
+Wardah glanced at Samira. Her gold chastity shields gleamed beneath her veils. She watched Wardah with patient approval, pleased with what Sayyid had given her.
+
+Wardah turned back to the mirror.
+
+The scar above her knee was still there, as was the birthmark on her hip. She recognized her face, her figure, every familiar detail.
+
+But now there was metal where none had been before. Soon the wounds would heal around it, leaving her with something Karim had chosen and she had never wanted.
+
+She touched the skin beside one of the barbells.
+
+It hurt.
+
+She lowered her hand and looked at herself again.
+
+Angelique was still there.
+
+And that frightened her almost as much as the thought of losing her.
 
 ## Chapter 14: An Education
 
-Wardah followed Samira back down to the harem,
-her movements careful and deliberate as the ache from her new piercings lingered.
-Dr. Rashid’s clinical detachment had left her emotionally drained,
-but she carried the bottle of healing accelerator he’d given her,
-clutching it tightly as if it were a talisman against further humiliation.
-She glanced at Samira, whose graceful composure offered a sharp contrast to Wardah’s own hesitance.
+Wardah followed Samira downstairs and to Fatima's office, walking carefully to avoid pulling at her new piercings. She carried the bottle of Healing Factor salve Dr. Rashid had given her.
 
-Upon reaching Fatima, the older woman greeted them without preamble, her sharp gaze flicking briefly over Wardah.
-“You have received care instructions?”
-Fatima’s tone was brisk but not unkind.
+Fatima looked up as they approached.
 
-“Yes, Al-Kabira,” Wardah replied softly, lowering her gaze.
+"You have your care instructions?"
 
-Fatima nodded.
-“Good.
-Samira, you will continue her training.
-Language, behavior, poses.
-Reduced exercise for now, and take care not to aggravate her condition.”
-Her voice carried the weight of authority, but there was no malice in her instructions.
-“Wardah, you must focus.
-You will need to recover quickly and learn faster.”
+"Yes, Al-Kabira." Wardah lowered her eyes.
 
-“Yes, Al-Kabira,” Wardah murmured, curtsying as she had been taught.
+"Good. Samira, continue her training. Language, manners, and poses. Nothing strenuous until Al-Tabib clears her. Take care of the piercings."
 
-Fatima dismissed them with a wave of her hand, and Samira led Wardah to her quarters.
-The afternoon sun filtered through the high windows, casting warm light onto the cool marble floors.
-Samira gestured for Wardah to sit on a cushion, and the lesson began almost immediately.
+She turned to Wardah.
 
+"You must recover quickly. You have much to learn."
 
-Samira’s voice was patient but firm as she introduced the day’s vocabulary.
+"Yes, Al-Kabira."
+
+Wardah bowed, and Fatima dismissed them.
+
+Samira led her back to their quarters. Afternoon sunlight fell through the high windows onto the marble floor. She arranged several cushions and brought a tray of household objects.
+
 “We will begin with the breakfast table.
 Repeat after me.”
 
-She picked up a small loaf of bread and held it up. “Khubz.”
+She held up a piece of bread.
 
-“Khubz,” Wardah repeated, her voice faltering slightly.
+"Khubz."
 
-Samira nodded and moved to the next item, a teapot. “Ibreeq.”
+"Khubz," Wardah repeated.
 
-“Ibreeq,” Wardah echoed, but the pronunciation stumbled on her tongue.
+"Good."
 
-Samira’s brow lifted, her expression remaining calm but unyielding.
-“Nah, that does not sound right. Pose Al-Khadim Al-Mutawaadi’.”
+Samira picked up a teapot.
 
-That, Wardah knew, was a pose, the Humble Servant.
-She fell into it, kneeling with her thighs resting on her feet, hands clasped behind her back.
-Her cheeks flushed as the vulnerability of the position settled over her, but she knew better than to resist.
+"Ibriq."
 
-“Now,” Samira continued as if nothing had changed, “repeat the word. Ibreeq.”
+"Ibriq."
 
-“Ibreeq,” Wardah said again, this time more carefully.
+Samira shook her head.
 
-Samira nodded approvingly but didn’t allow her to leave the pose.
-Instead, she moved on to the next item, holding up a small dish of olives.
-“Zaytoon.”
+"Not quite. Al-Khadima al-Mutawadi'a."
 
-Wardah repeated the word correctly, and Samira moved on, her rhythm smooth and deliberate.
-Each time Wardah stumbled, she was sent into a new pose.
+Samira showed her the pose. The Humble Servant. She knelt on a cushion, sat back on her heels, and clasped her hands behind her.
 
+Samira adjusted her shoulders.
 
-When they transitioned to clothing vocabulary, the pattern continued. Samira held up a scarf. “Hijab.”
+"Back straight. Chin down. Good. Now, ibriq."
 
-Wardah hesitated, fumbling with the pronunciation. “Hajab?”
+"Ibriq."
 
-Samira’s eyes narrowed slightly. “Incorrect. Al-Hadiyya Al-Makhfiya. Now.”
+"Better."
 
-Wardah shifted into the Hidden Gift position,
-her knees pressing into the cushion as her hair cascaded forward to hide her face like a hijab.
-Samira adjusted the veil on her own head with an air of serene authority, then repeated the word.
-“Hijab.”
+Samira left her kneeling and held up a dish of olives.
 
-“Hijab,” Wardah murmured from behind the veil of her own hair, her voice barely audible.
+"Zaytun."
 
-“Good,” Samira replied, her tone lightening slightly. “Stay there.”
+"Zaytun."
 
-Wardah remained in the pose as Samira continued the lesson,
-moving fluidly through items like shoes, dresses, and gloves.
-Each misstep brought another correction, and each correction was accompanied by a new pose.
-The progression was unrelenting but methodical,
-forcing Wardah to internalize both the vocabulary and the positions until they became second nature.
+"Very good, little rose."
 
+The lesson continued. Samira named each object, listened to Wardah's answer, and corrected her mistakes. When Wardah stumbled, Samira taught her a new pose.
 
-By late afternoon, Wardah’s muscles ached from the constant shifting and holding of poses,
-and there was a dull pain where she had been pierced,
-but her responses had become more automatic.
-When Samira commanded, “Al-Taali Al-Rafi’,” Wardah rose onto her knees without hesitation,
-lifting her face toward Samira in the Elevated Grace position.
-Samira’s approving nod was her only reward before the lesson resumed.
+Wardah soon learned to expect the corrections.
 
-The language drills began to feel like a rhythm,
-the commands for poses blending seamlessly with the corrections to her speech.
-Wardah no longer hesitated when sent into a pose;
-her body responded instinctively, her mind focusing on the task at hand.
-The cycle of learning was relentless,
-but it carried her through the haze of discomfort and exhaustion, leaving no room for defiance.
+Next came clothing.
 
-As the lesson wound down, Samira allowed Wardah to kneel normally once more.
-“You are improving, Wardah.
-Soon, the poses and the words will come to you as naturally as breathing.”
+Samira held up a scarf.
 
-After the day’s relentless routine and the quiet formality of dinner,
-the walk back to their room felt almost like a reprieve.
-Samira’s steps were light and unhurried, her hand brushing Wardah’s arm in a silent gesture of reassurance.
-Inside their quarters, the air was warm and still,
-inviting them to leave behind the demands of the harem and focus on the quiet rituals of the night.
+"Hijab."
 
-Samira’s hands moved with practiced care as she knelt beside Wardah on the soft bedding.
-The evening light filtered through the delicate curtains, casting a warm glow across the room.
-Wardah lay back, her chest rising and falling slowly as Samira tended to the fresh piercings on her nipples.
-The cool touch of the disinfectant stung briefly, but Samira’s touch was steady, her fingertips skilled and gentle.
+"Hajab?" Wardah tried.
 
-“You’re healing well,” Samira murmured, her voice soft and melodic.
-She worked the healing salve onto Wardah’s skin with the precision of someone who had done this countless times before.
+"Al-Hadiyya al-Makhfiyya."
+
+Samira moved Wardah into the Hidden Gift pose, kneeling with her head bowed until her hair fell across her face.
+
+Samira touched her chin, adjusting its angle.
+
+"Good. Now listen. Hijab."
+
+"Hijab."
+
+"There. You have it."
+
+Samira moved on to shoes, dresses, gloves, and veils. Each new word brought another object, another correction, another pose.
+
+When Wardah mispronounced a word, Samira sometimes made her repeat it. At other times, she changed her position. Once, she merely frowned and continued.
+
+Wardah could not tell why that mistake had been treated differently.
+
+Her knees began to ache, and she shifted her weight.
+
+Samira noticed.
+
+"Careful, little rose. Al-Tabib said you must rest when it hurts."
+
+She brought another cushion and helped Wardah settle.
+
+"We can learn just as well like this."
+
+They continued.
+
+By late afternoon, Wardah could name most of the objects without help. She had also learned to respond to several commands.
+
+"Al-Waqfa al-Rafi'a," Samira said.
+
+Wardah straightened on her knees and raised her face. Elevated Grace. She held the position until Samira nodded.
+
+"Good."
+
+Samira returned to the vocabulary. Wardah answered, and the lesson went on.
+
+The words came more easily now. So did the movements. Sometimes she began to change position before Samira had finished speaking.
+
+At last, Samira let her sit comfortably.
+
+"You've learned a great deal today, little rose."
+
+Wardah rubbed her aching thighs.
+
+"Soon you won't need to think about the words or the poses," Samira said. "You'll know them as well as I do."
+
+She smiled.
+
+"And then we can begin the lovely things."
+
+After dinner, Samira led Wardah back to their quarters. The day's lessons had left Wardah tired, and her new piercings still ached. Samira walked beside her, occasionally touching her arm.
+
+Inside, she brought out the disinfectant, clean cloths, and Healing Factor salve.
+
+"Come, little rose. We must take care of you."
+
+Wardah lay back on the bedding. Samira knelt beside her and examined the piercings, working with the same care she had shown the night before.
+
+The disinfectant stung. Wardah flinched.
+
+"Easy," Samira whispered. "You're healing well."
+
+She applied the prescribed treatment, careful not to disturb the jewelry.
+
 “Dr. Rashid was right—your skin is responding beautifully.
 These won’t trouble you for long if we stay diligent.”
 
-Wardah bit her lip, trying to suppress the mixture of sensations that coursed through her.
+Wardah closed her eyes, trying to suppress the mixture of sensations that coursed through her.
 The pain of the piercings had faded to a dull ache,
-and now, under Samira’s touch, she felt a disconcerting warmth blooming in her chest.
-The care was clinical, yet Samira’s natural sensuality seemed to permeate every movement.
+and now, under Samira’s touch, she felt warmth blooming in her chest.
+Samira’s touch stayed brisk and businesslike, yet something warmer than duty lingered in the way her fingers moved.
 Wardah felt her body responding against her will, her nipples hardening under Samira’s attentive touch.
 
-Samira’s gaze flicked up, catching Wardah’s expression.
-A knowing smile touched her lips, but she said nothing, continuing her ministrations with an almost hypnotic calm.
+Samira caught Wardah's reaction,
+but she said nothing, continuing her ministrations with an almost hypnotic calm.
 “It’s normal to feel sensitive,” she said gently, as if reading Wardah’s mind.
 “Your body is adjusting.
 Let yourself relax.”
 
-Wardah exhaled slowly, her cheeks flushing as she allowed herself to sink into the moment.
-The day’s exhaustion weighed heavily on her,
-and despite the simmering anger she felt toward her situation, the relief of Samira’s care was undeniable.
-She closed her eyes, letting the rhythmic motion of Samira’s hands lull her into a strange sense of calm.
+Wardah closed her eyes, letting the rhythmic motion of Samira’s hands lull her into a strange sense of calm.
 
-When Samira finished with Wardah’s chest, she sat back briefly, wiping her hands clean before moving to the next task.
-“Now, your other piercings,” she said softly, her tone as soothing as ever.
+Samira finished treating Wardah's chest, cleaned her hands, and reached for a fresh cloth.
 
-Wardah tensed slightly, the idea of anyone touching her there still jarring despite the events of the past few days.
-Yet she knew the piercings needed care, and she trusted Samira’s skill.
-Nodding faintly, she adjusted herself on the bedding, parting her legs slightly to give Samira access.
-The vulnerability of the position sent a fresh wave of heat to her cheeks,
-but she kept her gaze averted, focusing instead on her breathing.
+"Now the others, little rose."
 
-Samira began with the same methodical care, her fingers deft and delicate as she cleaned each piercing.
-The cool touch of the disinfectant made Wardah flinch slightly, but Samira’s soothing voice kept her grounded.
+Wardah stiffened.
 
-“Breathe, Wardah,” she murmured. “You’re doing well. This is just another step in your healing.”
+Samira noticed and waited.
+
+"Just the treatment. We must keep everything clean."
+
+Wardah nodded and obediently spread her legs.
+
+Samira worked carefully, cleaning the remaining piercings and applying the salve as Dr. Rashid had instructed. Wardah flinched at the first touch, then concentrated on Samira's voice.
+
+“Breathe, Wardah,” Samira murmured. “You’re doing well. This is just another step in your healing.”
 
 Wardah obeyed, her breaths steadying as Samira worked.
 Yet as before, there was an undercurrent of sensuality to Samira’s touch, whether intentional or not.
@@ -2695,64 +2488,59 @@ Wardah squeezed her eyes shut, her hands gripping the bedding as she fought to c
 She hated how easily her body responded,
 how the care and gentleness of someone like Samira could undo her defenses so thoroughly.
 
-Samira, for her part, remained composed, though a small, knowing smile lingered on her lips.
+Samira smiled.
 “You’re sensitive here too,” she remarked softly, her tone more observational than teasing.
 “That’s a good sign—it means you’re healing properly.”
 
-Wardah could only nod faintly, unable to meet Samira’s gaze.
-She felt exposed in more ways than one, her mind racing with conflicting emotions.
-The anger, the helplessness, the strange comfort of Samira’s presence—it all swirled together, leaving her disoriented.
+Wardah could only nod. She could not meet Samira's eyes. Her fingers gripped the bedding as she tried to steady herself.
 
-Samira's hands moved over Wardah,
-her touch igniting sparks that seemed to bypass every layer of resistance Wardah tried to hold onto.
-The exhaustion and dull ache of the day faded under Samira’s skillful caresses,
-replaced by a growing warmth that curled low in her belly.
-Samira’s fingers danced over the tender, freshly pierced flesh of her breasts and thighs,
-blending care and sensuality in a way that left Wardah breathless.
+Samira's hands moved slowly over her, her touch igniting sparks that bypassed Wardah's resistance.
+Samira was easing the tension left by the day's lessons, and built a growing warmth that curled low in her belly.
+Her fingers danced from tired muscles to breast and tighs with intention,
+leaving Wardah breathless.
 
-When Wardah instinctively leaned into Samira’s touch,
-seeking relief from the unbearable tension building within her, Samira pressed her down firmly.
-Despite her lithe frame, Samira’s strength was undeniable,
-holding Wardah in place with a grip that was both gentle and unyielding.
+When Wardah leaned closer, Samira placed a firm hand against her shoulder.
+Despite her lithe frame, Samira’s strength held her down.
 
-"Shh, Wardah," Samira whispered, her voice a velvet murmur.
-"Not yet.
+"Shh, Wardah. Not yet."
+Her voice was soft, but the instruction was clear.
 I know it feels good, and you want it so much.
 But you can wait, can't you?
 A good girl waits.
 A good girl listens."
 
-Wardah whimpered, her body trembling as Samira’s fingers resumed their delicate, maddening movements.
+Wardah whimpered, as Samira’s fingers resumed their delicate exploration.
 Each touch edged her closer to release, yet Samira pulled back just before she could fall over the edge.
-The frustration built within her, her breath hitching with every near miss,
-every moment that Samira kept her on the precipice.
 
-“You’re doing so well, Wardah,” Samira cooed, her voice smooth and hypnotic.
-“Feel how your body responds, how good it feels to let go of everything except my touch.
+Samira took a long breath. Wardah found herself breathing with her.
+
+“You’re doing so well, Wardah,” Samira cooed.
+
+Feel how your shoulders relax. Feel how much easier it is when you stop worrying about everything at once."
+“Feel how your body responds, how good it feels to let go of everything. There is just my touch.
 You don’t need to think about anything else right now, do you?
 Just let yourself feel.”
 
-Wardah moaned softly, her mind clouded with desire.
-The tension was unbearable,
-but Samira’s voice held her captive, guiding her thoughts as surely as her hands guided her body.
+Wardah moaned softly.
+Samira’s voice held her captive, guiding her thoughts as surely as her hands guided her body.
 
 “Yes, that’s it,” Samira murmured.
 “You can feel it building, can’t you?
 So intense, so powerful.
 And yet, you know it’s not the release you truly need.
-Not yet.
-What you need is to trust me, to let me guide you, to listen to what I say.”
+You don't need to solve anything tonight. You can listen. You can rest. That's enough."
 
-Wardah nodded faintly, her voice trembling. “Yes…”
+Wardah nodded.
 
 “Yes,” Samira repeated, her tone encouraging.
 “And when you listen, it feels so good, doesn’t it?
 Obedience feels good.
 Trusting me feels good.”
 
-“Y-yes…” Wardah moaned, her voice hoarse with desperation.
+“Y-yes…” Wardah moaned.
 
-“Good girl,” Samira praised, her hands teasing Wardah’s sensitive skin.
+“Good girl,” Samira praised.
+As she spoke, she pressed two fingers lightly against the fresh piercing at Wardah’s left nipple and held them there, letting the words and the small ache arrive together.
 “You see, Wardah, your needs—this ache you feel—they’re not what’s important.
 They’re distractions, aren’t they?
 You can feel them, but they don’t control you.
@@ -2760,9 +2548,10 @@ What matters is giving, not taking.
 What matters is obedience, not desire.
 Can you feel that?”
 
-Wardah hesitated, her mind struggling to process Samira’s words through the haze of arousal.
+Wardah hesitated.
+She struggled to process Samira’s words through her arousal.
 But Samira’s touch and voice left her no room to escape,
-and she found herself nodding again, the words slipping from her lips almost involuntarily.
+and she found herself nodding again.
 “Yes… I can feel it.”
 
 “Yes, and that’s what makes you special,” Samira continued.
@@ -2771,7 +2560,7 @@ You don’t need release—it’s shallow, fleeting, isn’t it?
 But obedience, trust, and giving pleasure—those are lasting.
 Those are fulfilling.”
 
-Wardah whimpered, her body writhing under Samira’s touch. “But… I… I need…”
+Wardah whimpered. “But… I… I need…”
 
 “Shh,” Samira interrupted, her tone gentle but firm.
 “You think you need it, but you don’t.
@@ -2781,15 +2570,16 @@ More obedient.
 More giving.
 You want to earn your reward, truly and honestly, by being a good and obedient girl.”
 
-Wardah moaned softly, her desperation spilling into her voice. “Yes… I want to be good.”
+Desperation crept into Wardah's voice. “Yes… I want to be good.”
 
 “Good girls don’t take what isn’t given,” Samira whispered, her breath warm against Wardah’s ear.
 “Good girls wait.
 Good girls listen.
-And when your Sayyid decides you’ve earned it, the pleasure will be so much sweeter, so much deeper.
+And when Sayyidi chooses to reward you, the pleasure will be so much sweeter, so much deeper, because you will know you've pleased him.
 Isn’t that right?”
 
-“Yes… yes, that’s right,” Wardah murmured, her voice breaking with the effort to suppress her need.
+“Yes… yes, that’s right,” Wardah murmured
+
 
 Samira smiled, her hands stilling for a moment as she leaned close.
 “You’ve done so well tonight, Wardah.
@@ -2798,522 +2588,661 @@ You’re becoming stronger, more obedient, and that’s far more important than 
 Trust me, and trust Sayyid.
 When the time comes, it will be worth it.”
 
-Wardah’s body trembled with frustration,
-but Samira’s words wrapped around her like a net, binding her will as surely as her touch had bound her body.
-With a final, gentle caress, Samira withdrew, leaving Wardah teetering on the edge, her desire burning but unfulfilled.
+Samira settled beside her, one hand resting lightly in her hair.
 
-“Rest now,” Samira said softly, brushing Wardah’s hair from her face.
-“You’ve earned that much.
-Tomorrow is another step forward.”
+Wardah closed her eyes. She could still hear the words, each phrase following the last.
 
-Wardah drifted into sleep, her body still humming with unfulfilled desire,
-her mind swirling with confusion and exhaustion.
-The sensation of Samira’s hands lingered on her skin like a phantom touch,
-and her dreams unfolded into a vivid, surreal landscape that mirrored her inner turmoil.
+*Good girls wait. Good girls listen.*
 
-She found herself in an endless garden, the air heavy with the scent of jasmine and roses.
-The sky was a pale gold, shimmering as if caught between day and night.
-She walked barefoot on a path of polished marble, its cool surface soothing her aching feet.
-Around her, lush greenery stretched in every direction,
-interrupted only by ornate pillars and arched doorways that seemed to lead nowhere.
+The words repeated as she fell asleep.
 
-In the dream, Wardah was dressed in veils as sheer as mist, their diaphanous folds clinging to her body,
-both concealing and revealing her form.
-The fabric felt weightless, yet it bound her as tightly as the restraints she had worn earlier that day.
-Her nipples and thighs still throbbed faintly, a reminder of the piercings that had been forced upon her,
-their weight grounding her in the dream as much as they did in reality.
+She dreamed of an endless garden. Jasmine and roses scented the warm air. Above her, the sky glowed pale gold. She walked barefoot along a marble path, cool beneath her feet. Trees and flowering shrubs surrounded her. Between them stood carved pillars and arches that led nowhere.
 
-Ahead of her, Samira appeared, moving with the same fluid grace Wardah had come to associate with her.
-She wore her golden shields, the sunlight catching on the metal and casting fleeting patterns on the marble.
-Her face was calm, her eyes warm yet unreadable, as she beckoned Wardah forward with a slight tilt of her head.
+She wore thin veils that clung to her skin. The fabric weighed almost nothing, yet she could not remove it. Her new piercings ached beneath it.
 
-Wardah hesitated, her feet rooted to the ground as an invisible weight pressed on her chest.
-She wanted to run to Samira, to feel the comfort and control in her touch again,
-but a flicker of rage burned in the pit of her stomach.
-Why was she doing this?
-Why was I letting her?
-The questions echoed in her mind, but her legs moved of their own accord, carrying her closer to Samira, step by step.
+Ahead stood Samira, dressed in her golden shields. Sunlight flashed across the metal as she beckoned Wardah closer.
 
-When Wardah reached her, Samira extended a hand,
-her fingers brushing Wardah’s cheek with a touch so soft it sent shivers down her spine.
-“You’ve come so far already,” Samira said, her voice like a melody woven into the air.
+Wardah hesitated.
+
+She wanted Samira's warmth, her gentle hands, her familiar voice. Yet something inside her recoiled.
+
+*Why am I following her? Why am I letting her do this?*
+
+The questions troubled her. They sounded like thoughts belonging to someone else.
+
+Her feet carried her forward.
+
+Samira touched her cheek.
+
+“You’ve come so far already,” Samira said.
 “You’re learning.
 You’re growing.
 You can feel it, can’t you?”
 
-“I… I don’t know,” Wardah whispered, her voice trembling. “I don’t know what I feel anymore.”
 
-Samira smiled, her eyes glinting with something between kindness and authority.
-“That’s because you’re still holding on.
-To your anger.
-To your pride.
-To the illusion that you’re in control.
-Let them go, Wardah.
-You’ll feel so much better when you do.”
+"I don't know," Wardah whispered. "I don't know what I feel anymore."
 
-Around them, the garden shifted.
-The lush greenery gave way to sandstone walls and intricate carvings,
-the air growing warmer as the marble path transformed into a stretch of sand.
-The pillars grew taller, their shadows lengthening until they resembled the post where Wardah had been punished.
-Chains hung from the tallest pillar, swaying gently in an unseen breeze.
+"You're still holding on. To your anger. Your pride. Your need to control everything."
 
-Samira stepped closer, her fingers tracing Wardah’s jawline, her touch electric.
-“You think you’re fighting against us, but you’re really fighting yourself.
-You’re afraid of how good it feels to obey, to let go of what you think you need.
-But obedience isn’t weakness, Wardah.
-It’s freedom.
-It’s peace.”
+Samira stroked her cheek.
 
-Wardah’s knees buckled, and she found herself kneeling before Samira,
-her hands resting on her thighs as the weight of the words sank in.
-The chains from the pillar began to lower, their metallic clinks echoing in the dreamscape.
-She looked up at Samira, her vision blurring with unshed tears.
+"Let them go. You'll be happier."
 
-“But what about me?” Wardah asked, her voice breaking. “What about what I want?”
+The garden changed.
 
-Samira knelt in front of her, cupping her face with both hands.
-“What you want doesn’t disappear, Wardah.
-It transforms.
-When you give yourself completely, your desires align with his.
-That’s when you’ll truly find satisfaction.
-Not in chasing fleeting pleasure, but in becoming the woman you’re meant to be.”
+Sand spread across the marble path. Sandstone walls rose where the trees had stood. The air grew hot. Wardah recognized the pillar before she saw the chains hanging from its top.
 
-The chains wrapped around Wardah’s wrists and ankles, their weight paradoxically grounding and freeing her.
+She stopped.
+
+Samira stood beside her.
+
+Samira stepped closer, tracing Wardah’s jawline, then drifting down to rest against the piercing at her nipple—the same place, the same faint pressure as the night before, until the two sensations blurred into one.
+"You're fighting yourself, Wardah. You know how good it feels to rest, to trust, to obey. Why make everything so difficult?"
+
+Wardah sank to her knees. The sand felt warm beneath them.
+
+The chains began to descend.
+
+"But what about me?" she asked. "What about what I want?"
+
+Samira knelt before her and took her face between her hands.
+
+"What you want will change. You will learn to want what pleases Sayyidi. And when you do, you will be happy."
+
+The chains settled around Wardah's wrists and ankles.
+She expected pain, but the metal felt cool and light.
+She looked down at the familiar restraints.
 The piercings in her body no longer felt invasive; instead, they pulsed with a strange, almost comforting warmth.
-She closed her eyes, Samira’s voice still echoing in her mind as the world dissolved into golden light.
+For once, she did not struggle.
 
-When Wardah awoke, her body felt heavy with exhaustion, yet her mind was alight with conflicting emotions.
-She wanted freedom, but the memory of Samira’s words lingered,
-intertwining with the pleasure and pain she had experienced.
-She felt lost, yet tethered, her desires reshaping themselves into something she didn’t yet fully understand.
-All she knew was that the path before her was no longer her own—and that terrified and thrilled her in equal measure.
+"Good girl," Samira whispered.
 
+Wardah closed her eyes.
+
+The garden faded. Samira's voice remained.
+
+*Good girls wait. Good girls listen.*
+
+When Wardah woke, she lay beside Samira in the dim room. Her body ached, but the dream remained clear.
+
+She touched the skin beside one of her new piercings, careful of its tenderness.
+
+She remembered the garden, the chains, and Samira's promise.
+Samira stirred beside her.
+Wardah moved closer.
+
+She wanted to forget the dream, but the words remained.
+*Good girls wait. Good girls listen.*
 
 ## Chapter 15: A Secret Meeting
 
-The faint light of dawn crept through the narrow windows, painting the walls with soft hues of pink and gold.
-Wardah stirred as Samira gently shook her shoulder, her voice a soft murmur.
-“Time to wake, Wardah.
-We have much to do before the day begins.”
+Dawn cast pink and gold light through the narrow windows.
 
-Wardah blinked groggily, her body still aching from the training and the piercing care the night before.
-Samira’s presence was soothing yet insistent, and Wardah found herself moving before her mind fully caught up.
-Samira tended to her cleaning and applying the healing salve to her piercings,
-her touch as precise and gentle as always.
+Samira gently shook Wardah's shoulder.
 
-They moved through their morning routine with an almost mechanical rhythm.
-Exercise was minimal for Wardah today, her body still tender, but Samira encouraged her to stretch and move carefully.
-The motions helped ease some of the stiffness, and after a brief workout, they both cleaned themselves thoroughly,
-scrubbing away the remnants of the previous day’s efforts.
-They dressed quickly, made themselves up and donned their veils.
+"Time to wake, little rose. We have much to do."
 
-When their preparations were complete, Samira glanced at Wardah.
-“You have a few moments before we’re needed.
-Use the time wisely.”
+Wardah opened her eyes. Her muscles ached from yesterday's training, and her piercings were still tender. She sat up while Samira prepared the disinfectant and healing salve.
 
-Wardah nodded, grateful for the unexpected reprieve.
-As Samira busied herself with final touches, Wardah stepped out into the harem garden,
-craving fresh air and a moment of solitude.
+Samira cleaned the piercings and applied the salve with her usual care. Wardah held still, knowing what to expect.
 
-The garden was quiet, bathed in the soft glow of the rising sun.
-The air was cool and fragrant, the scent of blooming jasmine and roses mingling with the earthiness of the morning dew.
-Wardah walked slowly along the stone path, her bare feet brushing against the cool surface.
-The tranquility was a stark contrast to the controlled chaos of her new life,
-and for a brief moment, she allowed herself to breathe deeply, savoring the stillness.
+They began their morning exercises. Wardah was excused from anything strenuous, but Samira guided her through a few gentle stretches to ease her stiffness.
 
-“Wardah,” a voice called softly from behind a cluster of flowering shrubs.
-She turned to see Yasmine stepping out from the shadows, her dark blue eyes wary but kind.
-She wore a simple, flowing robe, her hair partially hidden by a light scarf.
-Her movements were cautious, and she glanced around to ensure they were alone before approaching.
+Afterward, they washed, dressed, applied their makeup, and arranged their veils.
 
-“Yasmine,” Wardah greeted, her voice low but warm.
-She hadn’t had a chance to speak to her fellow harem girl in depth before,
-and the opportunity felt both welcome and unexpected.
+Samira inspected Wardah's appearance.
 
-Yasmine gestured toward a shaded bench beneath a flowering tree. “Come. Let’s sit for a moment.”
+"Good. We have a few moments before breakfast. Use them well."
 
-Wardah hesitated briefly, then followed, settling beside Yasmine.
-The older woman’s presence was calm, though her posture betrayed a hint of tension.
+Wardah nodded.
 
-“How are you feeling?”
-Yasmine asked, her gaze drifting briefly to Wardah’s chest before returning to her face.
-“The piercings—do they hurt?”
+While Samira attended to a few final details, Wardah slipped into the harem garden.
 
-Wardah glanced down, the memory of the procedure still fresh.
-“They ache,” she admitted, her voice tinged with weariness.
-“Samira helps, but… it’s strange.
-Knowing they’ll always be there.”
+The morning air was cool. Jasmine and roses grew beside the stone paths, and the earth was still damp. Wardah walked barefoot, enjoying the chill of the stones beneath her feet.
 
-Yasmine nodded, her expression darkening.
-“They’re a mark,” she said quietly.
-“A claim.
-One you didn’t ask for.”
-She looked away briefly, her jaw tightening.
-“They haven’t done that to me, but… I have my own marks.
-Invisible ones.”
+For a few minutes, no one told her what to do.
 
-Yasmine adjusted her robe, smoothing the fabric as if the act could settle her unease.
-She glanced toward the garden's entrance, her voice lowering to a cautious murmur.
+She took a deep breath.
 
-Yasmine's lips pressed into a thin line.
-"When they brought me here, they made sure I’d never forget either."
-She leaned closer, her voice barely a whisper.
-"They don’t just take control.
-They break you in ways you didn’t think possible."
+"Wardah."
 
-Wardah looked at her sharply, surprise flickering in her eyes. "You mean... they—"
+The voice came from behind a flowering shrub.
 
-"They left me out here," Yasmine interrupted, nodding toward the tall pillar in the corner of the garden.
-"Tied to that post for days.
-No food, barely any water.
-Flies crawling on me while I hung there.
-They didn’t even care if I lived or died."
-Her hand brushed her wrist unconsciously, as though feeling phantom shackles.
-"But I lived.
-And I learned."
+Yasmine stepped into view. She wore a loose robe and a light scarf over her dark hair. Her blue eyes moved briefly toward the entrance before returning to Wardah.
 
-Wardah's breath caught. "That’s horrible. I... I had no idea."
+"Yasmine," Wardah said.
 
-Yasmine’s gaze sharpened.
-"You’ve seen what they’re capable of.
-Don’t fool yourself into thinking kindness means safety.
-They’ll use anything—pain, pleasure, even people you think you can trust—to keep you in line."
+They had barely spoken since their introduction at breakfast.
 
-The words hung in the air between them, heavy and unspoken.
-Yasmine looked around again,
-her eyes scanning for eavesdroppers, before continuing, her tone softer but tinged with urgency.
+Yasmine glanced around once more, then pointed to a shaded bench beneath a flowering tree.
 
-"I see something in you, Wardah.
-You’re not like the others.
-Samira... she’s been shaped by this place.
-But you?"
-Yasmine tilted her head.
-"You’re still fighting.
-Even if you don’t show it, I can tell."
+"Come. Let's sit for a moment."
 
-Wardah’s hands clenched in her lap.
-"I don’t know what I’m fighting for anymore.
-Every time I resist, they... they take more."
+Wardah hesitated. Samira had told her to use the time wisely, though she had not said how.
 
-Yasmine touched Wardah’s arm briefly, a gesture that carried both comfort and conspiracy.
-"That’s what they want you to believe.
-That you’re alone.
-But you’re not."
+She followed Yasmine to the bench.
 
-Wardah blinked, her confusion plain. "What do you mean?"
+Yasmine sat beside her, her back straight and her hands folded in her lap. She looked toward the garden entrance again.
 
-Yasmine hesitated, choosing her words carefully.
-"There are ways... to survive this.
-Ways to keep a part of yourself hidden, even when they think they own you."
-She leaned closer, her voice dropping to a whisper.
-"And maybe, someday, ways to leave."
+Wardah waited for her to speak.
 
-Wardah’s heart skipped a beat, but her face betrayed no more than a flicker of emotion. "Leave?" she echoed softly.
+"How are you feeling?" Yasmine asked.
 
-Yasmine’s eyes darted to the entrance again before returning to Wardah.
-"Not today.
-Maybe not for a long time.
-But if we’re careful... if we’re smart... there might be a way."
-She straightened, her tone sharpening.
-"But it only works if we trust each other.
-And that’s not something I give lightly."
+Her eyes briefly settled on Wardah's chest.
 
-Wardah swallowed hard, her thoughts racing.
-She searched Yasmine’s face, trying to gauge the truth behind her words.
+"The piercings. Do they hurt?"
+
+"They ache," Wardah admitted. "Samira helps, but it's strange knowing they'll always be there."
+
+Yasmine nodded.
+
+"They're a mark. A claim you never agreed to."
+
+She looked away.
+
+"They haven't done that to me. But I have marks of my own. Ones you can't see."
+
+She smoothed her robe, then lowered her voice.
+
+"When they brought me here, they made sure I'd never forget who held the power."
+
+Wardah turned toward her.
+
+"What do you mean?"
+
+Yasmine glanced at the garden entrance.
+
+"They left me out here."
+
+She pointed to the tall sandstone pillar.
+
+"Tied to that post for days. No food. Barely any water. Flies crawling over me. I thought they'd leave me there until I died."
+
+Her hand went to her wrist.
+
+"But I survived. And I learned."
+
+Wardah stared at the pillar. She knew how it felt to be bound there. But days?
+
+"That's horrible. I didn't know."
+
+"You've seen what they can do," Yasmine said. "Don't mistake kindness for safety."
+
+Wardah looked at her.
+
+"They'll use whatever works. Pain. Pleasure. Even someone you trust."
+
+Yasmine leaned closer.
+
+"Listen carefully, Wardah."
+"I see something in you, Wardah. You're not like the others."
+
+Yasmine glanced toward the garden entrance.
+
+"Samira was raised to believe in this place. But you still fight it. I can tell, even when you try to hide it."
+
+Wardah clenched her hands in her lap.
+
+"I don't know what I'm fighting for anymore. Every time I resist, they take something else."
+
+Yasmine touched her arm.
+
+"That's what they want you to believe. That you're alone. But you're not."
+
+Wardah looked at her.
+
+"What do you mean?"
+
+"There are ways to survive here. Ways to keep something of yourself, even when they think they own everything."
+
+Yasmine leaned closer.
+
+"And perhaps, one day, a way out."
+
+Wardah stared at her.
+
+"Out?"
+
+"Not today. Perhaps not for years. But there may be a chance, if we're careful."
+
+Yasmine looked toward the entrance again.
+
+"We would have to trust each other. I don't give my trust easily."
+
+Wardah studied her face.
+
 "Why are you telling me this?"
 
-"Because I’ve been alone here long enough."
-Yasmine’s voice was steady, but there was a crack in her composure, a flash of vulnerability.
-"And because I think you want the same thing I do.
-Freedom."
+"Because I've been alone long enough. And because I thought you wanted what I want."
 
-The word lingered, almost foreign in the confines of the garden.
-Wardah lowered her gaze, her thoughts a swirl of fear, hope, and uncertainty.
-"I don’t know if I can trust anyone here," she admitted finally.
+"What?"
 
-"Good," Yasmine said bluntly. "That’ll keep you alive. But think about it. When you’re ready to talk, I’ll listen."
+"Freedom."
 
-Before Wardah could respond, Yasmine stood, her movements deliberate but calm.
-She adjusted her scarf and glanced toward the garden’s entrance.
-"We should go.
-Samira will come looking if we stay too long."
-She smiled back at Wardah, then bowed low and whispered:
-“Be careful who you trust.
-“And be careful who hears you.
-But if you need me, I’ll be here.”
+Wardah looked down at her hands.
 
-Yasmine left, but Angelique stayed behind in thought.
-She glanced toward the corner where the pillar stood stark against the morning light.
-The image of Yasmine hanging there burned in her mind.
-She took a deep breath, and tried to sort her conflicting feelings and her conflicted identities.
+The word troubled her. She knew it ought to mean something important, but she could not summon the feeling she expected.
+
+"I don't know if I can trust anyone here," she said.
+
+"Good. Don't trust anyone too quickly. Not even me."
+
+Wardah looked up.
+
+"But think about what I've said. When you're ready to talk, I'll listen."
+
+Yasmine rose and adjusted her scarf.
+
+"We should go. Samira will come looking for you."
+
+She took a step away, then bent close to Wardah's ear.
+
+"Be careful what you say, and who hears you. If you need me, I'll be here."
+
+Yasmine walked toward the harem.
+
+Wardah remained on the bench.
+
+She looked across the garden at the sandstone pillar. She remembered the ropes against her wrists, Rafiq's whip, and the pain that had followed each stroke.
+
+Yasmine had spent days there.
+
+Wardah stared at the pillar.
+
+Then she thought of the word Yasmine had spoken.
+
+*Freedom.*
+
+Something stirred inside her.
+
+The Other Woman.
+
+Wardah frowned. She had almost forgotten her.
+
+And now, thanks to Yasmine, she was awake again.
 
 ## Chapter 16: Another Day
 
-The soft crunch of approaching footsteps broke the silence of the garden, pulling Wardah from her thoughts.
-She turned, her gaze landing on Samira’s radiant figure cutting through the morning light.
-The sheer joy on Samira’s face seemed almost surreal in this controlled world.
+Footsteps sounded on the garden path.
 
-“Wardah!
-There you are!”
-Samira called.
-“Breakfast is ready, and you don’t want to miss it.
-Come, come!”
+Wardah turned. Samira approached through the morning sunlight, smiling.
 
-Wardah nodded, forcing a smile that didn’t quite reach her eyes.
-Samira’s energy bubbled over like a fountain, relentless yet oddly comforting,
-and Wardah found herself drawn into its current.
-She fell into step beside Samira.
+"Wardah! There you are! Breakfast is ready. Come, little rose. You don't want to miss it!"
 
-The dining hall hummed softly with the quiet energy of the women as they knelt around the low table.
-Breakfast was laid out beautifully:
-golden msemen stacked high, bowls of olives and fruit gleaming under the soft morning light,
-and the ever-present pot of steaming mint tea.
-Wardah sat between Samira and Layla, careful in her movements, her posture straight and graceful.
-The others ate with similar poise,
-their veils shifting lightly as they reached for food or poured tea.
+Wardah smiled back and joined her.
 
-Yasmine moved through the room with a servant’s grace,
-her robe trailing softly behind her as she bent to serve each woman.
-Her hands were steady, her expression composed, though her eyes avoided Wardah’s.
-When Yasmine reached Wardah and Samira, she poured their tea silently, her hands never faltering.
-Wardah’s gaze lingered on her briefly, memories of their morning conversation flashing through her mind.
-Yasmine’s words clung to her, even as she lowered her eyes to avoid drawing attention.
+Samira took her hand and led her toward the dining hall. Her cheerfulness was a relief after Yasmine's troubling words.
 
-When breakfast wound down, Al-Kabira rose from her seat at the head of the table.
-The women immediately stilled, their focus sharpening as they awaited her instructions.
-With a clap of her hands, she began assigning the day’s tasks.
+The women sat around the low breakfast table, talking quietly. Plates of golden msemen stood beside bowls of olives, honey, and fresh fruit. Mint tea steamed in a silver pot.
 
-“Nadira, you will oversee cleaning in the main hall and outer gardens.
-Layla and Yasmine, you will attend endurance and posture training.
-Wardah, Samira will continue your lessons in language and etiquette this morning,
-followed by light duties in Sayyid’s quarters.”
+Wardah knelt between Samira and Layla, careful of her new piercings. She straightened her back and arranged her hands as Samira had taught her.
 
-Wardah nodded, a quiet “Yes, Al-Kabira” slipping from her lips as she curtsied from her kneeling position.
-The women dispersed with silent grace, leaving the room as efficiently as they had gathered.
+Around the table, the other women sat with the same practiced grace, adjusting their veils as they reached for food.
 
+Yasmine served the tea.
 
-Samira led Wardah to their practice room, their bare feet silent on the marble floor.
-Inside, the space was bright and warm, its polished surfaces reflecting the sunlight streaming in through tall windows.
-A small table held props for their lesson: a tea set, a tray, and a short crop.
-Wardah’s eyes lingered on the crop, her stomach tightening slightly, but she said nothing.
+She moved from woman to woman, filling their glasses without spilling a drop. When she reached Wardah and Samira, she kept her eyes on the glasses.
 
-“Today, we refine what you’ve learned,” Samira said, her tone calm but purposeful.
-“Language, gestures, and poise.
-We’ll also use this,” she added, picking up the crop and twirling it lightly between her fingers.
-“It is not for punishment, but for guidance.”
+Wardah watched her.
 
-Samira stepped closer,
-brushing the tip of the crop against Wardah’s wrist to indicate she should move into the Kneeling Servant pose.
-“Begin,” she instructed, her voice steady.
+Only a few minutes earlier, Yasmine had spoken of freedom and escape. Now she served tea as though nothing had happened.
 
-Wardah complied,
-her movements fluid as she settled onto her knees, her back straight, hands resting lightly on her thighs.
-Samira moved around her, the crop’s presence constant but not threatening.
-She used it to adjust Wardah’s posture,
-tapping her chin lightly when her gaze faltered or tracing along her arm to correct her positioning.
-Wardah focused intently, her body responding to the silent language of Samira’s guidance.
+Wardah lowered her eyes and accepted her glass.
 
-“Good,” Samira said softly as Wardah repeated a phrase in Arabic.
-“Now, serve me as if I am Sayyid.”
+When breakfast ended, Fatima rose from her place at the head of the table.
 
-Wardah rose into the Elevated Grace pose, one position flowing gracefully into the next.
-She picked up the teapot, her grip steady, and poured the tea with the quiet elegance Samira had drilled into her.
-When Samira tapped the back of her ankle, she shifted into Kneeling Presentation,
-holding the cup out as if offering it to Sayyid himself.
+The women fell silent.
 
-The morning passed in this rhythm: poses, phrases, corrections.
-Samira’s voice remained calm, her praise occasional but genuine.
-The crop became a silent instructor, its presence blending into the routine.
-By the time the lesson ended, Wardah’s body ached from the repeated poses,
-but there was a small flicker of satisfaction at the steady improvement she felt in her movements.
+"Nadira, you will oversee cleaning in the main hall and outer gardens. Layla and Yasmine, endurance and posture training."
 
-Then it was time to work in Sayyid's quarters–alone, while Samira was busy elsewhere.
-Wardah hesitated at the threshold.
-Her last visit to this room was when she had been pierced,
-with Samira’s whispered support, and the strange emotions they had stirred.
-Taking a deep breath, she stepped inside, her bare feet making no sound on the cool floor.
+She turned to Samira.
 
-The room was opulent and mostly orderly.
-She set to work immediately,
-dusting the surfaces
-and straightening the cushions, moving with the grace Samira had instilled in her.
-In her mind she was performing poses, her body flowing from one position to the next, blending them smoothly.
+"Continue Wardah's lessons in language and etiquette this morning. Afterward, take her to Sayyid's quarters for light duties. Nothing that might disturb her healing."
 
-The door opened suddenly, and Wardah froze, her heart leaping.
-Sayyid entered, his presence filling the room.
-She sank immediately into the Humble Servant pose, her head bowed, her hands resting lightly on her thighs.
+"Yes, Al-Kabira," Samira replied.
 
-“Continue,” he said, his voice calm but firm.
+Wardah bowed her head.
 
-Wardah obeyed, rising gracefully to her feet and resuming her work.
-Her movements felt heavier now, her attention split between the task at hand and the man at the desk.
-He sifted through papers, his expression unreadable, and she couldn’t help but steal glances at him as she worked.
+"Yes, Al-Kabira."
 
-A faint warmth stirred within her, a strange echo of Samira’s voice urging her to impress him, to seek his approval.
-Her posture straightened unconsciously, her gestures becoming more refined,
-each action imbued with a quiet desire to please.
+Fatima dismissed them.
 
-When Sayyid turned and gestured for her to approach, Wardah moved without hesitation.
-She stepped to him and curtsied deeply, her gaze lowered.
-He instructed her to prepare tea with honey.
-She nodded, her voice soft.
-“At once, Sayyid.”
+The women rose and went to their duties.
 
-Wardah brewed the tea, keeping her hands steady.
-She poured it carefully, swirling the golden liquid in the cup,
-and knelt before him in Kneeling Presentation, offering the tray with both hands.
+Samira led Wardah to the practice room. Sunlight fell through the tall windows onto the marble floor.
 
-Sayyid took the cup, his gaze resting on her for a moment.
-“Well done,” he said, his voice carrying quiet approval.
-“You’ve improved.
-Your efforts are noticed.”
-His hand reached out, cupping her jaw, his thumb caressing her cheek.
+A tea set, a serving tray, and a short crop lay on a table.
 
-The words struck Wardah like a spark, igniting a strange warmth that pooled low in her body.
-She suppressed a shiver, her breath catching as she murmured, “Thank you, Sayyid.”
+Wardah looked at the crop. She remembered Rafiq's whip but said nothing.
 
-He gestured for her to continue her work, and as she resumed her duties, he moved toward the door.
-At the threshold, he paused, glancing back.
-“You are progressing well, Wardah.
-Continue to bloom into the beautiful rose you are meant to be.”
+"Today we'll improve what you've learned," Samira said. "Language, gestures, and poise."
 
-When he left, the room felt larger, emptier.
-Wardah’s movements slowed as his words replayed in her mind, the conflict within her deepening.
-The pride she felt at his praise clashed with the quiet rebellion Yasmine’s warnings had stirred.
-The Other Woman within her whispered doubts, but Wardah’s heart beat in quiet satisfaction,
-the warmth of his approval lingering like a second skin.
+Samira picked up the crop.
 
-In the afternoon, sunlight poured through the arched windows of the lower rooms,
-casting long shadows over the tiled floor as Samira and Wardah worked side by side.
-They worked silently,
-the soft rustle of their veils and the occasional clink of a cleaning tool the only sounds breaking the stillness.
-Samira held a small dusting cloth and moved from surface to surface,
-while Wardah polished the carved wooden furniture with a polish and a clean cloth.
+"We'll use this, too. Not for punishment, little rose. For guidance."
 
-Samira’s voice flowed gently as she pointed to objects around them,
-guiding Wardah through the Arabic vocabulary they’d been practicing all morning.
+She touched Wardah's wrist with its tip.
 
-“This,” Samira said, tapping the edge of a brass vase with her knuckles, “is mirwaz.”
+"Al-Khadima al-Jalisa."
 
-“Mirwaz,” Wardah repeated carefully, her pronunciation more fluid now.
+Wardah knelt.
 
-Samira nodded in approval, brushing a stray curl from her face.
-“Good.
-And this?”
-She gestured toward the chandelier above them.
+"Good."
 
-Wardah hesitated for a moment before answering, “Nathra?”
+Samira walked around her, checking her posture. She tapped Wardah's chin when she lowered it, then brought the crop lightly against her arm to correct its position.
 
-“Nawra,” Samira corrected, her tone soft.
-She touched Wardah’s shoulder lightly.
-“You’re learning, and you’ll get there.
-You’ve made so much progress already.”
+Wardah flinched.
 
-Wardah smiled faintly, returning to her work.
-The repetitive motions of cleaning offered a strange comfort, giving her space to process the events of the day.
-Yet her thoughts kept drifting back to the encounter upstairs,
-to the way Sayyid had looked at her, the way his words had made her feel.
-Her grip tightened on the cloth in her hand, the conflicting emotions roiling beneath her composure.
+"Keep still, little rose."
 
-“Wardah,” Samira’s voice broke through her thoughts, warm and calm. “Something’s on your mind. Tell me.”
+Wardah obeyed.
 
-Wardah hesitated, glancing down at the polished wood beneath her fingers. “It’s nothing,” she murmured.
+"There. Much better.
+Now repeat after me. Tafaddal, ya Sayyidi."
 
-Samira turned to her, arching an elegant brow.
-“Nothing?
-You’ve been quiet ever since we started.
-I don’t think it’s nothing.”
+"Tafaddal, ya Sayyidi."
 
-Wardah sighed softly, setting the cloth down. “I saw Sayyid earlier,” she admitted. “I was sent to clean his quarters.”
+"Very good. And what does it mean?"
 
-Samira’s expression remained calm, though her dark eyes sparkled with curiosity. “And how was that?”
+"Please, my lord. When offering him something."
 
-Wardah hesitated again, her voice lowering.
-“I… he watched me as I worked.
-Then he told me to serve him tea.
-And when I did, he… praised me.
-He said he was pleased with my progress.”
+Samira smiled.
 
-Samira’s lips curved into a knowing smile.
-“That’s wonderful, Wardah.
-His praise is not easily earned.
-You should feel proud.”
+"Good. Now serve me as though I were Sayyid."
 
-Wardah shifted uncomfortably, her fingers twisting in the hem of her sleeve.
-“I do,” she admitted reluctantly.
-“But that’s not all I felt.”
+Wardah rose into Elevated Grace, then took the teapot. She poured a glass of tea, careful not to spill any.
 
-Samira set down the duster, stepping closer to Wardah.
-“Tell me,” she said gently, her voice free of judgment.
-“What did you feel?”
+Samira tapped the back of her ankle.
 
-Wardah swallowed hard, her cheeks flushing.
-“I… I felt proud.
-But also… excited.
-Aroused,” she confessed, the word barely a whisper.
-“I don’t understand why.”
+Wardah knelt and presented the glass with both hands.
 
-Samira tilted her head, her expression softening.
-“Oh, Wardah,” she murmured, reaching out to touch her forehead lightly with two fingers.
-“You felt it here.”
-She moved her hand to rest over Wardah’s heart.
-“And here.”
-Finally, her fingers trailed lower, brushing against Wardah’s abdomen, just above the curve of her pelvis.
-“And here.”
+"Tafaddal, ya Sayyidi."
 
-Wardah’s breath hitched, her body tensing under Samira’s touch.
+Samira accepted it.
 
-“This is normal,” Samira continued, her voice soothing.
-“He is the center of your world now.
-Feeling as you do means you’ve begun to understand—truly understand—the rules of your life here.
-Not just in your mind, but in your heart and your body.
-It means you’re learning to do the right thing automatically.”
+"Ahsanti, ya Wardah. Well done."
 
-Wardah stared at Samira, her thoughts a swirl of confusion and discomfort.
-“The right thing?” she echoed, unsure of her own voice.
+They practiced throughout the morning. Samira named a pose or gave a command, and Wardah obeyed. Sometimes the crop indicated where she should move. Sometimes Samira corrected her with a word.
 
-Samira smiled, her tone gentle but firm. “What is the right thing, Wardah?”
+"Chin higher."
 
-The response came without hesitation, slipping from Wardah’s lips before she even realized she was speaking.
-“To do as told, when I am told, every time, the first time, with a smile on my lips.”
+"Hands together."
 
-Samira’s smile widened, and she nodded in approval.
-“Exactly.
-This is progress, Wardah—important progress.
-You should be proud.”
+"Again, little rose."
 
-Wardah’s chest swelled.
-She was proud, she realized.
-Proud of her progress, of her ability to impress Sayyid, of the praise she had earned.
-And yet, beneath the satisfaction, she felt the faint tug of something else—a dissonance,
-a shadow of the Other Woman within her.
-That part of her recoiled at the thought of pride in submission,
-whispering words of resistance she couldn’t quite ignore.
+When Wardah performed a movement correctly, Samira praised her and moved to the next.
 
+Soon Wardah understood most of the crop's signals. A tap at her ankle brought her to her knees. A touch beneath her chin raised her face. A sharper tap against her arm reminded her to keep it in place.
 
-The evening fell softly over the harem quarters, the day’s labors leaving Wardah heavy-limbed and quiet.
-Her body hummed with fatigue, her chest and thighs aching faintly where the new piercings pulled against tender skin.
-She sat cross-legged on the plush rug in Samira’s quarters,
-her hands resting lightly on her knees, her breath slow but uneven.
-Samira knelt behind her, her hands poised with the tools of care—a bowl of warm,
-fragrant water, soft cloths, and a small jar of healing salve.
+Samira praised her whenever she responded correctly.
 
-“You worked hard today,” Samira murmured, her voice low and melodic as she dampened a cloth in the bowl.
-The warm water seeped between her fingers as she brought it to Wardah’s chest, brushing lightly over her skin.
+By the end of the lesson, Wardah no longer flinched at every touch of the crop.
+
+Samira noticed.
+
+"Very good, little rose."
+
+"Shukran, ya Samira."
+
+Wardah looked at the tray. She had served the tea without spilling a drop and remembered every phrase.
+
+She was pleased with herself.
+
+The feeling surprised her.
+
+Then came her duties in Sayyid's quarters. Samira was needed elsewhere, so Wardah went alone.
+
+She hesitated at the door. The last time she had entered this room, Samira had accompanied her to Dr. Rashid's examination chamber.
+
+Wardah took a breath and went inside.
+
+The bedroom was luxurious and mostly tidy. She began dusting the furniture and straightening the cushions. As she worked, she remembered Samira's lessons. Each movement followed the next, as though she were moving through the poses she had practiced that morning.
+
+The door opened.
+
+Wardah turned.
+
+Karim entered.
+
+She dropped at once into the Humble Servant pose, kneeling with her head bowed and her hands resting on her thighs.
+
+"Continue," he said.
+
+Wardah rose and returned to her work.
+
+Karim sat at his desk and began reading through some papers. Wardah glanced at him as she moved about the room, careful to keep her work quiet.
+
+She remembered Samira's praise and her lessons about pleasing Sayyid. Without thinking, she straightened her back and took greater care with every movement.
+
+Karim looked up and beckoned.
+
+Wardah went to him and curtsied, lowering her eyes.
+
+"Prepare me some tea. With honey."
+
+"At once, Sayyid."
+
+She prepared the tea and added the honey. Then she knelt before him in Kneeling Presentation, holding the tray with both hands.
+
+"Tafaddal, ya Sayyidi."
+
+Karim took the cup.
+
+"Well done, Wardah. You've improved."
+
+He studied her for a moment.
+
+"Your efforts have not gone unnoticed."
+
+He raised her chin with one hand and stroked her cheek with his thumb.
+
+Wardah held still.
+
+"Shukran, ya Sayyidi," she whispered.
+
+Karim released her and returned his attention to his papers.
+
+Wardah resumed her work.
+
+A little later, he rose and walked toward the door. Before leaving, he turned.
+
+"You're progressing well, Wardah. Keep learning. I expect to see my little rose in full bloom."
+
+"Yes, Sayyid."
+
+He left.
+
+Wardah continued dusting the furniture. She had served his tea correctly, remembered her pose, and earned his praise.
+
+She was pleased.
+
+Then she remembered Yasmine's warning.
+
+*Don't mistake kindness for safety.*
+
+Wardah frowned.
+
+The Other Woman was troubling her again.
+
+She looked toward the door through which Karim had gone. He had spoken kindly, praised her work, and touched her with surprising gentleness.
+
+Why must The Other Woman always spoil such moments?
+
+Wardah returned to her duties.
+
+She wanted to earn his praise again.
+
+Afternoon sunlight fell through the arched windows as Samira and Wardah cleaned the lower rooms.
+
+Samira dusted the shelves while Wardah polished the carved wooden furniture. As they worked, Samira continued her Arabic lessons.
+
+She tapped a brass vase.
+
+"Zahriyya."
+
+"Zahriyya," Wardah repeated.
+
+"Good. And that?"
+
+Samira pointed to the chandelier.
+
+"Thurayya?" Wardah ventured.
+
+"Thurayya," Samira repeated, stressing the first syllable. "Very good, little rose. You're learning quickly."
+
+Wardah smiled and returned to her polishing.
+
+The work left her free to think. Her thoughts kept returning to Karim, to the tea she had served him and the praise he had given her.
+
+She smiled to herself.
+
+"Wardah?"
+
+She looked up.
+
+"Something is on your mind," Samira said. "Tell me."
+
+"It's nothing."
+
+"Nothing?" Samira raised an eyebrow. "You've been smiling at that table for five minutes."
+
+Wardah looked down.
+
+"I saw Sayyid earlier. When I was cleaning his quarters."
+
+Samira set down her cloth.
+
+"And?"
+
+"He watched me work. Then he asked for tea. I remembered everything you taught me, and he said I'd improved."
+
+Samira beamed.
+
+"How wonderful! You pleased him!"
+
+Wardah nodded.
+
+"He even touched my cheek."
+
+"Oh, little rose! You must be happy."
+
+"I am."
+
+Wardah put down her cloth.
+
+"But there's something else."
+
+Samira moved closer.
+
+"Tell me."
+
+Wardah hesitated.
+
+"When he praised me, I felt proud. And excited."
+
+She lowered her voice.
+
+"Aroused."
+
+Samira smiled.
+
+"Of course you did, little rose."
+
+Wardah looked at her.
+
+"Of course?"
+
+Samira touched two fingers to Wardah's forehead.
+
+"You knew he'd praised you."
+
+She rested her hand over Wardah's heart.
+
+"And you were happy."
+
+Then she placed her hand lightly against Wardah's abdomen.
+
+"And you felt it here, too."
+
+Wardah blushed.
+
+"I don't understand."
+
+"You're learning," Samira said. "Not just the words and the poses. You're learning to please Sayyidi. And now you know how lovely it feels when he's pleased with you."
+
+Wardah considered this.
+
+"Is that what it means?"
+
+"Yes, little rose. You're beginning to understand with your whole heart. Soon you won't have to think about what to do. You'll simply know."
+
+Wardah looked down at her hands.
+
+"The right thing?"
+
+Samira nodded.
+
+"What is the right thing, Wardah?"
+
+“To do as told, when I am told, every time, the first time, with a smile on my face.”
+
+The words came without hesitation.
+
+Samira smiled.
+
+"Ahsanti, ya Wardah. Exactly."
+
+She kissed Wardah's forehead.
+
+"You see how much you've learned? You should be proud."
+
+Wardah was proud.
+
+She had remembered the poses, served Karim correctly, and earned his praise. Even now, remembering his touch made her smile.
+
+Then another thought came.
+
+*You're proud of obeying him?*
+
+Wardah's smile faded.
+
+The Other Woman.
+
+She had been quiet all afternoon. Why did she have to interfere now?
+
+Samira noticed her expression.
+
+"What's wrong, little rose?"
+
+Wardah shook her head.
+
+"Nothing."
+
+But she could still hear The Other Woman.
+
+And she wished she would be quiet.
+
+Evening settled over the harem. Wardah was tired from the day's work, and her new piercings still ached.
+
+She sat on a rug in Samira's quarters, her hands resting on her knees. Behind her, Samira prepared a bowl of warm water, clean cloths, and Healing Factor salve.
+
+"You worked hard today, little rose," Samira said. "Now let me take care of you."
+
+Wardah sat still while Samira cleaned the piercings. The warm cloth soothed her tender skin, though she flinched whenever it touched a sore place.
 “You’ve earned some relief.”
 
 Wardah shivered as the cloth touched her,
-the warmth easing the ache but sending a jolt of awareness through her sensitive nipples.
-She bit her lip, her cheeks flushing as Samira began to clean the piercings with slow, careful movements.
+the warmth easing the ache but sending a jolt of awareness through her  nipples.
+She bit her lip, flushing as Samira began to clean the piercings with slow, careful movements.
 Each touch felt deliberate, the cloth’s soft texture dragging over her skin in a way that was almost too much to bear.
 
-“You’re healing beautifully,” Samira said, her tone soothing yet laced with something deeper.
+“You’re healing beautifully,” Samira said.
 Her fingers followed the cloth, brushing against the curves of Wardah’s breasts as she worked.
 “Your body is strong, resilient.
 It’s adapting well to its new purpose.”
 
-A soft gasp escaped Wardah as Samira pressed slightly against her nipple, the motion more stimulating than painful.
-Her breathing quickened despite herself, and she looked away, trying to ignore the growing heat in her belly.
+Wardah gasped as Samira pressed slightly against her nipple, the motion more stimulating than painful.
+Her breathing quickened, and she looked away, trying to ignore the growing heat in her belly.
 
 Samira’s lips curved into a knowing smile.
 “Relax, Wardah.
@@ -3322,9 +3251,9 @@ You’ve earned it.”
 Her voice dropped lower, a gentle hum that seemed to vibrate in the space between them.
 “Your body knows what it needs, doesn’t it?”
 
-Wardah whimpered softly, unable to suppress the sound. “It… it aches,” she admitted, her voice trembling.
+Wardah whimpered softly, unable to suppress the sound. “It… it aches,” she admitted.
 
-“And I’ll take care of that,” Samira replied smoothly, setting the cloth aside.
+“And I’ll take care of that,” Samira replied, setting the cloth aside.
 Her hands moved over Wardah’s shoulders, kneading the tight muscles with firm, rhythmic pressure.
 Wardah let out a low moan, her body softening under Samira’s expert touch.
 The tension of the day began to melt away, replaced by a different kind of heat that radiated from her core.
@@ -3334,16 +3263,16 @@ Samira’s hands trailed lower, her palms gliding down Wardah’s sides to rest 
 “Strong, obedient, graceful.
 You should be proud of yourself.”
 
-Wardah’s eyes fluttered closed, her breath hitching as Samira’s fingers slipped beneath the thin fabric of her veils.
+Wardah’s eyes fluttered closed as Samira’s fingers slipped beneath the thin fabric of her veils.
 “I… I tried,” she said faintly, her thoughts already drifting in the haze of sensation.
 
 “And you succeeded,” Samira purred, her hands moving with unhurried precision.
 She shifted, guiding Wardah to lie back on the cushions.
-“Relax, my rose,” Samira whispered, commanding gently. "Let go."
+"Relax, my rose," Samira whispered, commanding gently. "Let go."
 
 Wardah exhaled slowly, her body softening under Samira’s care.
 She closed her eyes, letting the sensations wash over her as Samira’s hands moved lower,
-parting the fabric of her skirts to reveal the fresh piercings that adorned her labia.
+parting the veils to reveal the fresh piercings that adorned her labia.
 The air was cool against her skin, a sharp contrast to the heat building inside her.
 
 “You’re perfect,” Samira continued, dipping the cloth into the bowl of warm water.
@@ -3351,8 +3280,8 @@ The air was cool against her skin, a sharp contrast to the heat building inside 
 To give.
 That is your purpose, isn’t it?”
 
-“Yes,” Wardah whispered, the word slipping from her lips unbidden.
-Her cheeks flushed, her heart racing as Samira began to clean the piercings with delicate precision.
+“Yes,” Wardah whispered.
+Her cheeks flushed  as Samira began to clean the piercings.
 Each touch was a spark, igniting a slow, steady burn that spread through her body.
 
 “And what does it mean to give?”
@@ -3362,7 +3291,7 @@ Her fingers brushed against the edges of the piercings, sending a shiver through
 
 “To… to serve,” Wardah murmured, her voice trembling. “To please.”
 “Yes,” Wardah breathed, the word slipping from her lips before she could stop it.
-She slowly slid back into the trance like yesterday night.
+She slowly slid back into the trance like last night.
 
 “Good girl,” Samira purred,
 her fingers brushing higher, teasing but never granting the release Wardah’s body begged for.
@@ -3375,7 +3304,7 @@ Say it.”
 
 “To… to please,” Wardah whispered, her voice breaking. “To serve.”
 
-“That’s right,” Samira said, her tone soothing and firm.
+“That’s right,” Samira said, soothing and firm.
 “To please your owner.
 To serve him in every way he desires.
 That is who you are.”
@@ -3385,13 +3314,13 @@ The arousal pooling in her belly was undeniable, overwhelming,
 yet Samira kept her carefully on the edge, never allowing her to tip over into release.
 
 “And how do you please him?”
-Samira continued, her voice weaving through Wardah’s thoughts like a thread.
+Samira continued, her voice weaving through Wardah’s thoughts, tugging gently at each one.
 “What do you do?”
 
 “I… I do as told,” Wardah gasped, the mantra tumbling from her lips without hesitation.
-“When I am told… every time… the first time… with a smile on my lips.”
+“When I am told… every time… the first time… with a smile on my face.”
 
-“Good girl,” Samira praised, her voice a gentle caress.
+“There it is,” Samira praised, her voice a gentle caress.
 “You’ve learned so well.
 And soon, it will be effortless.
 Natural.
@@ -3409,6 +3338,7 @@ And you will find joy in giving him everything.”
 “Yes,” Wardah whispered, her voice barely audible. “Yes…”
 
 Samira’s touch stilled suddenly, leaving Wardah breathless and aching.
+She let the silence stretch, timing her next words to the exact moment Wardah’s breath caught—a rhythm Wardah’s body had already learned to anticipate.
 She leaned closer, her lips brushing against Wardah’s ear as she whispered, “Obedience is pleasure.
 Say it again.”
 
@@ -3422,7 +3352,7 @@ Say it.”
 “All of me belongs to him,” Wardah repeated, her breath hitching as Samira’s touch grew lighter, more teasing.
 “My mind… my body… my spirit.”
 
-“Good girl,” Samira purred, her fingers lingering just long enough to make Wardah ache for more.
+“Good girl,” Samira purred, satisfaction warming her voice, her fingers lingering just long enough to make Wardah ache for more.
 “You’re learning so well.
 And you’ll continue to learn, won’t you?
 To grow.
@@ -3437,7 +3367,7 @@ Isn’t that right?”
 
 “Yes…” Wardah whispered, the word barely audible as heat pooled in her belly.
 
-“Your body is his,” Samira continued, her voice like silk.
+“Your body is his,” Samira continued, her voice smooth and unhurried.
 “Every part of it.
 Every entrance.
 Your lips, your hands, your breasts.
@@ -3445,7 +3375,7 @@ Your thighs, your sex…” Her fingers brushed against Wardah’s inner thigh, 
 “…and even here.”
 Her hand moved lower, her touch light yet intentional, grazing the sensitive entrance of Wardah’s back.
 
-Wardah’s eyes moved, her breath catching for a moment.
+Wardah’s eyes flickered rapidly beneath closed lids, her breath catching for a moment.
 
 “Hush,” Samira whispered, her tone both soothing and firm.
 “This is who you are, Wardah.
@@ -3454,7 +3384,7 @@ To give yourself completely.
 To serve completely.
 Say it.”
 
-“To… to give myself completely,” Wardah stammered, her voice trembling with a mixture of apprehension and arousal.
+“To… to give myself completely,” Wardah stammered, her breath hitching around the words.
 “To serve completely.”
 
 “That’s right,” Samira said, her fingers resuming their gentle exploration.
@@ -3463,7 +3393,7 @@ You must train yourself.
 Train to accept him in every way.
 In every entrance.”
 
-Wardah whimpered softly, her body trembling as Samira’s words wrapped around her like a net. “How… how do I do that?”
+Wardah whimpered softly, her body trembling as Samira’s words closed around her, inescapable. “How… how do I do that?”
 
 Samira’s smile was a slow, sensual curve.
 “You’ll ask me, of course.
@@ -3482,7 +3412,7 @@ And you’ll love it, won’t you?”
 
 “Yes,” Wardah whispered, her voice barely audible. “I’ll love it.”
 
-“Good girl,” Samira said,
+“Just like that,” Samira said,
 her fingers brushing against Wardah’s most sensitive areas, edging her closer and closer without ever granting release.
 “But remember, Wardah—only he can give you release.
 Only he can decide when you’ve earned it.”
@@ -3520,9 +3450,9 @@ Samira leaned closer, her lips brushing against Wardah’s ear as she murmured, 
 
 “Obedience is pleasure,” Wardah whispered, her voice soft but resolute.
 
-“Again,” Samira commanded, her voice a velvet lash.
+“You’ll remember that, won’t you,” Samira murmured, not quite a question, “long after I’ve stopped saying it.”
 
-“Obedience is pleasure,” Wardah repeated, her breath hitching.
+Wardah shivered, the words settling into her like something already true.
 
 Samira smiled, her touch retreating as she sat back, leaving Wardah aching and on the verge of tears.
 “Good girl.
@@ -3531,30 +3461,57 @@ Rest now, my rose.
 You’ve taken another step toward perfection.”
 
 Wardah whimpered softly, her body still throbbing with need, but she obeyed,
-sinking into the cushions as exhaustion and arousal waged war within her.
+sinking into the cushions, her limbs heavy, her skin still humming with unspent heat.
 Samira’s words lingered in her mind, the mantra echoing in the quiet as her body remained on edge,
 yearning for a release that only Sayyid could grant.
 
 ## Chapter 17: Obedience is Pleasure
 
-The days slipped into one another, weaving a rhythm that left little space for thought.
-Every hour was filled with practice, ritual, and the steady, inexorable shaping of Wardah’s body and mind.
-Samira was always there—patient, exacting, her voice a low music of instruction and praise.
-Every word, every gesture carried intention, designed to draw Wardah deeper into her transformation,
-molding her into the perfect rose of the harem.
+Wardah knelt on the cool tiles before sunrise. Samira stood behind her, one hand resting between her shoulder blades.
 
-Wardah moved through her mornings with growing elegance, her steps flowing like water, her poses precise.
-At first, each mistake brought her a flush of shame as Samira’s crop found her skin in a swift, stinging kiss.
-The little bite corrected without bruising, yet burned long enough to remind her.
-Soon, however, Wardah felt her body anticipate the touch, her muscles tightening before the crop even landed.
-It became part of the rhythm, part of the learning.
-And always, after the sting, Samira’s voice—warm, soft, indulgent—poured over her like balm.
+"Straighten your back, little rose."
 
-“Good, Wardah. See how much smoother you move now? This is progress. This is you becoming stronger, more graceful.”
+Wardah obeyed.
 
-The praise was intoxicating.
-Pride bloomed where shame had been, and each nod of approval, each gentle smile, filled her like sunlight.
-She found herself pushing harder, chasing the glimmer of satisfaction in Samira’s eyes, hungry to be called good.
+"Chin down. Hands behind you."
+
+She adjusted her posture before Samira finished speaking.
+
+"Good girl."
+
+The words pleased her. They always did.
+
+The days followed a strict routine. Lessons began after breakfast and continued until the midday meal. Afternoons brought household duties, exercises, and further instruction. In the evenings, Samira tended Wardah's healing piercings. At night, she taught her to relax, listen, and repeat the words that had become so familiar.
+
+*Obedience is pleasure.*
+
+Wardah whispered them as she knelt. She heard them when she served tea. Sometimes they came to her before she knew she was thinking.
+
+Samira had introduced a crop to correct her posture. A tap against the ankle meant kneel. A touch beneath the chin meant look up. A firmer stroke told her to hold still.
+
+At first, Wardah had flinched. She remembered Rafiq's whip and the sandstone pillar.
+
+Now she recognized each signal.
+
+Samira touched her ankle. Wardah knelt.
+
+A touch beneath her chin. She raised her face.
+
+"Very good. Again."
+
+They repeated the exercise until Wardah responded without hesitation.
+
+"See how much you've learned?" Samira asked. "You no longer need me to explain. Your body knows."
+
+Wardah smiled.
+
+She wanted to hear those words again.
+
+And again.
+
+She practiced until her knees ached. She held each pose longer than the day before. When Samira corrected her, she tried harder.
+
+Praise followed success. Wardah began looking forward to the moment when Samira would set the crop aside, smile, and tell her she had done well.
 
 By the time Samira presented the anal plug, Wardah no longer thought of protest.
 She hesitated, yes, her breath catching as she looked at it gleaming in Samira’s palm,
@@ -3566,17 +3523,16 @@ You want to please him in every way, don’t you?”
 
 Wardah’s stomach tightened, but the answer rose before she could stop it.
 “Yes,” she whispered.
-The nightly trances had done their work.
-She felt the compulsion to obey, to submit, to learn.
+Her mouth had answered before her mind caught up, obedience arriving faster than thought.
 The mantra throbbed in her mind like a heartbeat: *Obedience is pleasure.*
 
 Samira’s hands were steady, clinical, yet her touch held an intimacy that made Wardah tremble.
 The plug was small, cool, and unyielding in the light.
 When it pressed into her, sliding into place, a soft gasp escaped her lips.
 Her face burned.
-The sensation was strange—uncomfortable, but threaded with something more dangerous, something like desire.
+The sensation was strange, uncomfortable, but threaded with desire.
 
-“There,” Samira murmured, her voice smooth as silk.
+“There,” Samira soothed.
 “It feels unfamiliar now, but soon it will feel natural. You’ll see.”
 
 Wardah nodded faintly, her body taut as she adjusted to the fullness.
@@ -3584,18 +3540,24 @@ Through the day, Samira guided her with endless patience,
 moving her through poses that made her aware of the presence inside her,
 encouraging her to hold the discomfort as though it were grace itself.
 By evening, the ache remained, but so did a quiet pride.
-Each step taken without faltering felt like a triumph,
-a victory not only over her body, but over the girl she had once been.
+Each step taken without faltering felt like a small victory,
+a win not only over her body, but over the girl she had once been.
 
-The oral training marked another threshold, one that tested Wardah’s resolve in ways she had never imagined.
-Samira introduced a suction-cup dildo during their evening session, presenting it with calm, unhurried authority.
+The oral training marked another threshold.
+It tested Wardah’s resolve in ways she had never imagined.
+Samira introduced the suction-cup dildo during their evening session.
 
 “This is for your Sayyid,” she said, her hand resting lightly on Wardah’s shoulder.
 “He deserves the best, doesn’t he?
 And you want to give him the best, don’t you?”
 
 Wardah hesitated, the whispers of the Other Woman rising in the back of her mind.
-But the nightly trances had left their imprint too deeply.
+The Other Woman would have refused. She would have said no.
+“I don’t—” she started, drawing back half a step before she could think better of it.
+
+Samira didn’t argue.
+Her hand found the back of Wardah’s neck, fingers threading into her hair, and she murmured, close to her ear, “Obedience is pleasure,” the words landing like a key turning in a lock Wardah no longer controlled.
+The refusal dissolved somewhere between one breath and the next.
 The words slipped from her lips as if they had always been waiting there.
 
 “Yes.
@@ -3606,8 +3568,8 @@ Samira’s smile deepened, her dark eyes gleaming with approval.
 Then let me show you.”
 
 The training was intimate, unrelenting.
-Samira guided her hands, her mouth,
-her rhythm—every movement corrected with the same calm precision that shaped all her lessons.
+Samira guided her hands and mouth.
+She corrected the rhythm with the same precision that shaped all her lessons.
 Wardah’s cheeks burned with shame as she practiced, yet Samira’s soft praises compelled her forward.
 
 “You’re doing so well, Wardah.
@@ -3615,7 +3577,7 @@ Look how beautiful you are when you surrender to this, when you let go of hesita
 
 At night, the trances sealed the lessons.
 In the hush of their shared chamber, Samira’s voice carried her deeper, folding her mind into obedience.
-The hypnotic suggestions wrapped around Wardah like silk, weightless yet unbreakable.
+The hypnotic suggestions settled over Wardah, weightless yet unbreakable.
 Samira’s words painted perfection: a life without shame, without boundaries, devoted entirely to pleasing her master.
 
 “Your body is a gift,” Samira whispered in one trance, her lips close to Wardah’s ear.
@@ -3626,24 +3588,21 @@ And it pleases you to please him.”
 
 The mantra became her anchor, the steady drumbeat of her days.
 *Obedience is pleasure.*
-She repeated it silently as she practiced, as she knelt, as she stretched herself further—body and mind alike.
-She pushed the whispers of the Other Woman aside, burying them beneath layers of training and trance.
-But they lingered still, shadows that refused to vanish completely.
+She repeated it silently as she practiced, as she knelt, as she stretched herself further, body and mind alike.
+She pushed the whispers of the Other Woman aside, burying them beneath layers of training and trance, a name she no longer let herself think, a girl in Ibiza who would have laughed this off as some stranger’s fever dream.
+But the girl lingered still, a shadow that refused to vanish completely.
 
-Each day, Samira raised the stakes, blending discipline with praise, humiliation with tenderness,
-always shaping the illusion that Wardah’s progress was not imposed upon her but achieved, earned—her own triumph.
+Each day, Samira raised the stakes, blending discipline with praise, humiliation with purpose,
+always shaping the illusion that Wardah’s progress was not imposed upon her but achieved, earned, her own triumph.
 
-Each day, Samira escalated the challenges, blending discipline with praise, humiliation with purpose,
-and always ensuring that Wardah’s progress felt like her own triumph.
+Samira began to introduce the poses she had held back until now.
+They were bold, they would have driven Angelique to open rebellion.
 
-Samira began to introduce the poses she had held back until now—those so bold,
-so absolute, they would once have driven Angelique to open rebellion.
-
-The first was the Offering of Breasts.
-Wardah sank gracefully to her knees, arching her back, spreading the knees,
+Once Wardah could hold the plug through a full day without flinching, Samira introduced the Offering of Breasts.
+Wardah sank gracefully to her knees, arching her back, spreading her knees,
 her hands clasped behind her head as she thrust her chest forward.
 The position left her utterly exposed, vulnerable to every gaze.
-The first times she attempted it, heat rose fiercely to her cheeks, her whole body burning with humiliation.
+The first times she attempted it, she went red with shame.
 But Samira’s steady voice never wavered, shaping the pose into something else—no longer shame, but gift.
 Not degradation, but display.
 A gesture of beauty and grace offered to please her master.
@@ -3654,27 +3613,26 @@ He will be so pleased.”
 
 Wardah swallowed her discomfort, clinging instead to the glow of Samira’s approval.
 Pride soon began to replace shame.
-Each time she held the pose a little longer, trembling but steady, breath measured, movements precise.
+Each time she held the pose a little longer, trembling but steady.
 
-Next came the Crawl of Pleasure,
-a task that tested not only her endurance but her willingness to embody the role Samira described.
+When that pose no longer cost her a blush, Samira moved her to the Crawl of Pleasure,
+a task that tested endurance and the willingness to embody the role Samira described.
 On hands and knees, Wardah moved across the room with studied grace,
 her hips swaying in a rhythm that made the crawl feel almost like a dance.
 Samira walked beside her, the soft crop in hand, tapping lightly against Wardah’s thighs whenever her movement faltered.
 
 “Good, Wardah. Slow, controlled. Let your body speak for you. This is how you show him your devotion.”
 
-The crawl was humiliating—the low posture stripping her of dignity, reducing her to less than human.
+The crawl was humiliating, the low posture stripping her of dignity, her knees scraping, her breath coming in short, humiliated pulls.
 And yet, beneath Samira’s words, it transformed.
 It became a performance, a prayer in motion.
 A servant’s worship of her master.
-Wasn’t that its meaning all along?
 
-Another day brought the Humbled Dog pose, even more demanding.
+From there, Samira pushed further still, into the Humbled Dog pose.
 Wardah knelt with her chest pressed low against the ground,
 arms stretched forward, hips raised high, her legs spread wide.
 The vulnerability was absolute, leaving her open in every sense.
-Yet Samira’s voice framed it differently—not as degradation, but as offering.
+Yet Samira’s voice framed it differently, not as degradation, but as offering.
 A posture of pure submission, displayed with dignity.
 
 “Your Sayyid will see your dedication in this pose,”
@@ -3683,45 +3641,54 @@ Samira explained softly, yet with an authority that left no room for doubt.
 You are his, Wardah.
 Entirely.
 To be used as he pleases.
-You want that, you can feel it, can’t you?
+You want that. You can feel it, can’t you?”
 
-*Obedience is pleasure.*”
+Samira’s voice dropped, quieter now, almost a murmur meant only for the two of them.
+“*Obedience is pleasure.*”
 
 Samira used this pose as the foundation for Wardah’s anal training, introducing larger plugs with each session.
-The process was slow, deliberate—her touch firm, yet always careful as she prepared Wardah.
-She guided her gently, applying oil with practiced ease before easing the plug into place.
+The process was slow, her touch firm, yet always careful as she prepared Wardah.
+She guided her gently, applying oil generously before easing the plug into place.
+
+The first time the new size pressed against her, Wardah’s whole body clenched, an instinctive “no” rising in her before she could stop it.
+Samira didn’t pause.
+The crop tapped once, sharp, against the inside of her thigh, not punishment, just a redirection, and she murmured, “Relax. Obedience is pleasure,” until the tension bled out of Wardah’s spine and the plug slid home.
 
 “Breathe, Wardah,” Samira whispered, her hands steady on the younger woman’s hips.
 “You’re doing so well.
-Feel how your body yields, how it adapts?
+Feel how your body yields?
 This is strength.
 This is progress.”
 
-The larger plugs stretched her in ways that felt both alien and unbearable at first, testing the edges of her endurance.
-Yet Samira’s voice—soothing, tender, unwavering—carried her through.
+The larger plugs stretched her in ways that felt both alien and unbearable at first.
+Yet Samira’s steady voice carried her through.
 Every victory, every threshold crossed, was marked by praise that warmed her like sunlight.
 
 “Not many girls can do this, Wardah,” Samira said with quiet pride.
 “You’re extraordinary.
 You’re becoming everything he desires.”
 
-The oral training, too, intensified.
-Samira fixed the training dildo against the wall, positioning Wardah before it with calm precision.
+The oral training escalated next.
+Where the suction-cup toy had taught her rhythm, Samira now fixed a longer training dildo against the wall.
+This one that demanded depth instead of technique.
 The first attempts were clumsy, her body rebelling against the intrusion, her throat tightening around the silicone.
-She gagged, fought, faltered.
-But Samira was patient, her hand firm in Wardah’s hair, her voice a silken thread guiding her onward.
+She gagged. Fought. Tried to pull back.
+
+Samira’s hand closed in her hair before she could retreat, fingers curling tight, holding her in place.
+“Stay,” Samira said, low and certain, the word landing with the weight of the trance behind it. “Obedience is pleasure.”
+The fight went out of Wardah’s shoulders like something unstrung.
 
 “Relax your throat, Wardah. Breathe slowly, through your nose. Let it in. You can do this.”
 
-The grip in her hair tightened as the training progressed—firm, controlled, directing her rhythm with perfect authority.
+The grip in her hair tightened as the training progressed, firm, directing her rhythm with perfect authority.
 When at last Wardah managed to take the trainer fully,
-her throat constricting around its base, Samira’s delight spilled over her like champagne.
+her throat constricting around its base, Samira went still with open delight.
 
-“Magnifique, Wardah. Look at you… so strong, so graceful. Few can endure this, but you can. You’re extraordinary.”
+“Look at you,” Samira breathed. “So strong, so graceful. Few can endure this, but you can. You’re extraordinary.”
 
 She did not release her at once, holding her in place a moment longer,
 letting Wardah feel the weight of her achievement.
-The sensation was overwhelming—a storm of pain and pride, discomfort and arousal mingled into one dizzying whole.
+Her throat ached. Her thighs trembled. Tears blurred the room to gold.
 When Samira finally let her withdraw, Wardah gasped for air,
 her body trembling, her cheeks wet, her heart swelling with triumph.
 
@@ -3731,31 +3698,30 @@ pressing the lightest kiss to her tear-streaked skin.
 
 And so the days fell into their rhythm.
 Each lesson harder than the last, each trance deepening the work of the day.
-The poses, the discipline, the intimacy of training—all of it blurred into one seamless thread of transformation.
-Wardah pushed past limits she had never imagined, her body and her mind bending, reshaped under Samira’s guiding hands.
-
+The poses, the discipline, the intimacy of training, all of it folded into the same quiet current.
+Wardah pushed past limits she had never imagined, her body and her mind bending, reshaped under Samira’s guiding hands, and somewhere beneath the surface, a girl from Ibiza kept sinking without a sound.
 
 ## Chapter 18: Escape Attempt
 
 One morning, during breakfast, Yasmine caught Wardah’s gaze and traced a series of small,
 deliberate gestures, hidden from the others.
-The signs were subtle, yet unmistakable—she wanted to meet her.
+She wanted to meet her.
 
 A flicker of confusion crossed Wardah’s face, but deep inside, something stirred.
 The Other Woman within her—the shadow of who she had once been—resisted,
 pressing against the quiet submission that now bound her.
 
-Later, as they cleaned the kitchen together in the hushed aftermath of the meal,
+Later, as they cleaned the kitchen,
 Yasmine leaned in close, her voice no more than a breath.
 “Tonight,” she murmured, urgent yet controlled.
 “We meet in the garden.
 At three.”
 
-The words struck Wardah like a knife, tightening around her chest until it hurt to breathe.
+Wardah’s ribs tightened until it hurt to breathe.
 Yasmine’s expression remained unreadable, but the message was clear.
 This was their chance—the escape was happening.
 
-Wardah’s breath caught as Yasmine explained in swift fragments,
+Yasmine explained in swift fragments,
 between the clatter of dishes and the shifting steps of the other girls.
 She was to find the sturdiest dress she could—something plain, something strong—and, above all, shoes.
 
@@ -3771,27 +3737,26 @@ She would need to walk—perhaps even run—through an unknown world, one she ha
 
 Angelique.
 
-The name floated into her thoughts like a ghost, distant, unreal, as though it belonged to another life.
-As she nodded her agreement, unease coiled in her stomach like a serpent.
+The name surfaced in her thoughts, distant, unreal, as though it belonged to another life.
+As she nodded her agreement, unease coiled tight and cold in her stomach.
 Wardah—no, Angelique—was about to step beyond the only life she had been reshaped to accept.
 Would she still recognize herself when she did?
 
-The day passed in a blur, the weight of Yasmine’s plan pressing down on her mind like a hand around her throat.
-Time dragged unbearably, and yet it seemed to slip through her fingers like water.
+All day Wardah could think of nothing but Yasmine’s plan.
+Time dragged unbearably, and yet the hours kept slipping away before she could hold onto them.
 The thought of escape, of abandoning everything, of stepping beyond the walls that had defined her,
 filled her with a terror she could hardly contain.
 
 The Other Woman’s whispers grew louder, sharper, clawing at her from within.
 
-And yet, another fire burned—betrayal.
-It seeped into her veins like poison, thick and insistent.
+And yet, another fire burned—betrayal, thick and insistent, spreading until it reached every part of her.
 The thought of leaving Sayyid felt as unnatural as tearing out her own heart.
 He had shaped her.
 Owned her.
 
 To turn away from him was unthinkable.
 
-And yet, the Other Woman screamed otherwise.
+And yet, the Other Woman fought her, silent and stubborn.
 
 Wardah stumbled through her lesson, her tongue faltering over words that, only yesterday, had flowed with ease.
 Samira noticed.
@@ -3809,7 +3774,7 @@ Her heart pounded, her lips trembled—and again the wrong words spilled out.
 
 *I don’t belong here.*
 
-The thought crashed through her like lightning.
+The thought crashed through her, sudden and blinding.
 Her hands clenched in her lap, barely hearing Samira’s correction.
 The Other Woman was stirring—louder now, stronger—pressing at the edges of her thoughts, desperate to claw her way free.
 
@@ -3850,7 +3815,7 @@ Her body answered to Samira’s touch, the gentle strokes soothing her,
 coaxing her deeper into the rhythm of their nights together.
 The mantras rose automatically, unbidden, flowing from her lips like a tide she no longer resisted.
 
-“To do as told, when I am told, every time, the first time, with a smile.”
+“To do as told, when I am told, every time, the first time, with a smile on my face.”
 
 Her voice was soft, blurred, unfocused.
 Already she felt herself slipping, the familiar pull of trance drawing her down, as it always did.
@@ -3860,11 +3825,11 @@ Samira hummed approvingly, her fingers gliding lower—across Wardah’s stomach
 then her hips—each movement slow, deliberate, as though each caress carried her deeper still.
 
 “And the Other Woman?”
-Samira asked suddenly, her voice velvet-smooth, her words brushing against Wardah’s mind like silk.
+Samira asked suddenly, her voice low and unhurried, each word settling into Wardah’s mind before she could stop it.
 
 Wardah tensed, a jagged flicker breaking through the trance.
 *The Other Woman.*
-The name rang in her skull like a tolling bell, rebellion whispering, rising.
+The name rang through her skull, rebellion whispering, rising.
 
 Samira’s fingers did not falter.
 They traced slow, soothing circles over Wardah’s thighs, a caress designed to lull, to quiet.
@@ -3895,7 +3860,7 @@ Wardah gasped, trembling from head to toe. Her hands clutched the sheets, her br
 Samira’s fingers tightened—not harshly, only enough to remind.
 
 “No?”
-Her voice was velvet, warm and low, curling around Wardah like a ribbon.
+Her voice stayed warm and low, coiling tighter with each question.
 “What does she say no to, Wardah?”
 
 Wardah’s body burned, caught between panic and pleasure, her mind unraveling at the edges.
@@ -3906,7 +3871,7 @@ The trance held her fast, yet The Other Woman fought.
 
 “Shouldn’t what?” Samira pressed, her fingers tracing small, deliberate circles across Wardah’s skin.
 
-Wardah whimpered, her body betraying her, heat pooling between her thighs while her mind split at the seams.
+Wardah whimpered, heat pooling between her thighs while her mind split at the seams, her hips answering before she willed them to.
 
 “She says I shouldn’t want this,” she sobbed, the words torn from her as if by force.
 “She says I should leave.”
@@ -3930,12 +3895,12 @@ Samira’s fingers did not move, did not force. They simply remained—warm, ste
 “Yes,” Samira corrected, her voice unshakable. “And it frightens you.”
 
 Wardah’s whole body clenched, the words slicing deeper than any crop could ever cut.
-Inside her, The Other Woman screamed.
+Inside her, The Other Woman recoiled.
 But Wardah… Wardah moaned.
 
 “Good,” Samira cooed, pressing a kiss to her temple. “Now, let me show you why she is wrong.”
 
-Wardah shook, her resolve slipping away, her body betraying her,
+Wardah shook, her resolve slipping away, her hips shifting closer despite herself,
 the whispers of The Other Woman fading into nothingness.
 
 “Obedience is pleasure,” Samira whispered, her hands moving again, ever so slightly. “Say it.”
@@ -3944,7 +3909,7 @@ Wardah gasped. “O-Obedience is pleasure.”
 
 Samira smiled, pressing another kiss—this time to the curve of Wardah’s throat.
 
-“Yes,” she purred. “And pleasure is only for Sayyid.”
+“Yes,” Samira said, satisfaction warm in her voice. “And pleasure is only for Sayyid.”
 
 Wardah whimpered, the denial already carving itself into her bones.
 
@@ -4039,12 +4004,11 @@ Yasmine knelt beside her, gripping the stone as she looked out over the other si
 Angelique followed Yasmine’s gaze—
 and for the first time, she saw what lay beyond the harem walls.
 
-The Moroccan coastline stretched vast and desolate before them,
-a barren sweep of golden dunes meeting the dark, restless waves of the Atlantic.
+Golden dunes stretched along the dark Atlantic, barren in both directions.
 The moon rode high, casting silver light across the water,
 its reflection breaking into long, trembling trails that shimmered over the surf.
-The wind whistled across the emptiness, carrying the salt of the sea and the sharp scent of sand,
-mingled with the hollow crash of waves against distant rocks.
+Wind carried salt and the dry scent of sand.
+Waves crashed against distant rocks.
 
 There was nothing.
 No houses, no road, no firelight in the distance.
@@ -4054,8 +4018,8 @@ Only the palace behind them, the ocean ahead,
 a lonely pier, and the desert unrolling endlessly in both directions.
 
 Angelique’s chest tightened.
-The Other Woman within her should have been exhilarated, wild with hope.
-But instead she felt something hollow, something frighteningly empty.
+The Other Woman within her should have been wild with hope.
+Instead, the emptiness frightened her.
 She had spent so long fearing the cage that she had never stopped to ask herself what existed beyond it.
 
 And what if the cage had shaped her so deeply…
@@ -4076,7 +4040,7 @@ It was wrong.
 And then she saw her.
 
 A figure in white, gliding through the shadows of the garden below.
-Her veils shifted like mist, catching the moonlight as she passed between the rose bushes and fountains.
+Her veils shifted with each step, catching the moonlight as she passed between the rose bushes and fountains.
 Samira.
 
 A jolt shot through Angelique’s spine.
@@ -4138,8 +4102,8 @@ She raised her hand and beckoned.
 
 “Come down, Wardah.”
 
-The voice wove through Angelique’s mind, slipping into the cracks like silk, wrapping around her like chains.
-The weight of the words settled deep inside her bones.
+The command settled into Angelique’s mind, filling every crack, heavier than any chain.
+The weight of it sank deep into her bones.
 
 Come down.
 
@@ -4147,7 +4111,7 @@ Not a question.
 Not a request.
 A command.
 
-A command she had never disobeyed, because Obedience was Pleasure.
+A command she had never disobeyed, because obedience is pleasure.
 
 Her breath turned shallow, her body trembling.
 
@@ -4162,7 +4126,7 @@ Angelique’s lips parted, but no sound came.
 
 Inside, something cracked.
 
-The Other Woman screamed.
+The Other Woman clawed at the inside of her ribs.
 
 But Wardah—Wardah—was already moving.
 
@@ -4170,7 +4134,7 @@ Moonlight still clung to the edges of the sky, but the night was no longer silen
 The wind carried the salt of the Atlantic, the faint hush of waves breaking against the distant cliffs.
 The pillar beneath Wardah’s hands was rough, biting into her palms as she ripped the coiled chain from Yasmine’s grasp.
 
-Yasmine gasped. "What the fuck are you doing?!"
+Yasmine gasped. "Get back here, now!"
 
 The chain slithered down the pillar like a serpent, falling in metallic coils to the garden floor below.
 Wardah gripped it tight, swung one leg over the edge, and began her descent.
@@ -4203,7 +4167,7 @@ Lanterns flared.
 Floodlights sliced through the night, drowning the garden, the pillar, the walls in merciless white.
 The shadows fled, revealing everything—exposing the truth.
 
-Yasmine’s body hung from the wall like a broken thing, dangling between hope and despair.
+Yasmine’s body hung from the wall, limbs slack, dangling between hope and despair.
 
 Wardah landed with a grunt, barely steadying herself before she turned—and ran.
 Not away.
@@ -4248,7 +4212,7 @@ Beyond them, chaos erupted.
 Dogs barked, deep and savage, their growls echoing off the stone.
 Footsteps thundered along the walls.
 Rafiq appeared above them—swift, silent,
-his white robes billowing like wings as he leapt onto the barrier, closing the distance in seconds.
+his white robes billowing behind him as he leapt onto the barrier, closing the distance in seconds.
 
 Yasmine shrieked as hands clamped around her wrists.
 
@@ -4300,21 +4264,13 @@ But tonight—” Her breath caught, a shudder of relief breaking through her so
 “Tonight, she died.”
 
 Samira’s hand drifted lower, pressing firmly, grounding her.
-“Mmm. Yes,” she purred, velvet and sure.
+“Mmm. Yes,” she said, sure of herself.
 “She was never needed.
 She was never real.”
 
 Wardah nodded against her, clinging to the truth of it.
 She was Wardah.
-The Other Woman had drowned at sea, long ago.
-She had never truly existed—only a ghost.
-Wardah could not even recall her name anymore,
-the name of that woman who once clung like a shadow, whispering rebellion, urging her toward pain.
-
-That woman was gone.
-
-She had fallen when Wardah’s knees struck the garden floor.
-She had vanished the moment Samira’s arms had closed around her.
+Angelique had fallen the moment her knees struck the garden floor, and Samira’s arms had closed around what remained.
 
 “She’s gone,” Wardah whispered, her voice small, breathless. “Only I remain.”
 
@@ -4331,12 +4287,12 @@ unraveling beneath Samira’s touch, her words, the slow rhythm of her breath.
 Samira drew her closer, coaxing her to curl against her stomach.
 Her hand cradled the back of Wardah’s head as though she were something precious, fragile, made to be treasured.
 
-“Rest, my beautiful girl,” she murmured, her voice a caress, her strokes steady and soothing.
+“Rest, my beautiful girl,” she murmured, her strokes steady and soothing.
 
 Wardah’s breathing slowed, her body surrendering,
 sinking into the cushions as the heavy weight of the night pulled her under.
 
-She drifted, wrapped in Samira’s warmth—silk against her skin, perfume in the air, reassurances whispered like vows.
+She drifted, wrapped in Samira’s warmth—silk against her skin, perfume in the air, reassurances whispered soft and sure.
 
 And for the first time in what felt like forever, Wardah knew peace.
 
@@ -4371,7 +4327,7 @@ Submission.
 The doors opened, and Sayyid entered.
 
 At once, Wardah lowered her forehead to the ground,
-her arms extended forward in a deep kowtow—a silent offering of herself.
+her arms extended forward, prostrated in a silent offering of herself.
 
 The room was still. Only the faint rustle of silk marked Sayyid’s passage as he moved past them.
 
@@ -4384,13 +4340,13 @@ Her body obeyed before thought could form, flowing into an upright kneel, spine 
 “Stand,” he commanded. “Show yourself. Shine like the sun.”
 
 Wardah rose in one liquid motion, effortless, precise.
-She stepped forward legs apart,
+She stepped forward, legs apart,
 arms lifted and folded behind her head; her chest pushed out.
 Her veils, sheer and gossamer-thin, whispered over her skin as she shifted into the pose,
 offering herself with absolute grace.
 
-She breathed in the moment, her entire being alight with devotion.
-Standing before her Sayyid, she was radiant in her obedience.
+She breathed in the moment, chin lifted, spine drawn long beneath the sheer veils.
+Standing before her Sayyid, she did not let herself sway, did not let her gaze drop.
 His approval was her world, and when his hands moved to her breasts,
 she remained perfectly still—her body his to touch, his to claim, without hesitation.
 
@@ -4406,16 +4362,16 @@ This was a trial—one she had prepared for, one her training had taught her to 
 Sayyid tilted his head slightly, his eyes fixed on her face, gauging her response.
 Yes, it hurt, but not beyond bearing.
 And Wardah welcomed it.
-Pain and pleasure—two petals of the same flower, two facets of the same devotion.
+She had long since stopped trying to tell where the pain ended and the pleasure began.
 
 He nodded, pleased.
 
-“You have come far, Wardah,” he said, his voice deep, rich, carrying the weight of approval she craved.
+“You have come far, Wardah,” he said, his voice deep, rich, carrying a weight that settled deep in her chest.
 “From a wayward girl into one worthy of my harem.
-You are becoming a true rose—something rare and beautiful, made to be displayed, cherished, and treasured.”
+You are becoming a true rose—something rare and beautiful, made to be treasured.”
 
-His words shivered through her like silk, and she trembled with pride,
-her heart swelling with the intoxicating sweetness of being seen, chosen, and approved.
+His words settled warm against her skin, and she straightened beneath his gaze,
+chin lifting another fraction, as though pulled by something outside herself.
 
 Sayyid reached for a small wooden box on the low table beside him.
 The faint clink of metal broke the stillness as he opened it, drawing out two golden shields,
@@ -4423,11 +4379,9 @@ their surface worked with delicate filigree, each set with a tiny, gleaming gems
 
 Wardah’s breath caught.
 
-These were not temporary.
-Not training pieces.
-These were final.
+These were not temporary, not training pieces—these were final.
 
-With slow, deliberate care, Sayyid removed the simple barbells she had worn until now, laying them aside.
+With slow, unhurried care, Sayyid removed the simple barbells she had worn until now, laying them aside.
 The brief emptiness, the cool air brushing her bare skin, made her nipples tighten, the sensitivity almost unbearable.
 
 And then—gold.
@@ -4446,12 +4400,10 @@ His mouth curved.
 
 “Beautiful,” he murmured. “A girl worthy of my attention.”
 
-Her heart soared.
-
 Her smile was flawless, just as she had been taught: radiant, serene, sincere.
-“Shukran, as-sayyidi,” she whispered, her voice low, steady.
+“Shukran, ya sayyidi,” she whispered, her voice low, steady.
 
-Sayyid’s eyes darkened with pleasure, his nod slow and approving.
+Sayyid’s eyes darkened, his nod slow, satisfied.
 
 “Good girl,” he said, his tone deep, warm, a caress in itself. “I am impressed.”
 
@@ -4459,8 +4411,7 @@ A shiver ran through her.
 Goosebumps rose along her arms.
 The sensation spread downward, coiling and pulsing between her thighs, a deep, intoxicating warmth.
 
-She had pleased him.
-She had truly pleased him.
+She had pleased him—she could feel it in how his hands lingered, unhurried now instead of testing.
 
 Her Sayyid gestured downward, the meaning unmistakable.
 
@@ -4468,8 +4419,7 @@ Wardah obeyed at once, sinking gracefully onto the cushion.
 She turned and lowered herself into the humbled dog pose—knees spread wide, arms extended forward,
 forehead pressed to the ground, hips raised high, her body entirely offered, entirely open.
 
-This was right.
-This was perfect.
+This felt right, whole in a way nothing else had.
 
 Her body, her will, her very being—every part of her belonged to him.
 
@@ -4477,11 +4427,11 @@ Sayyid advanced, his steps deliberate, measured.
 Wardah held still, savoring the delicious tension of anticipation, of surrender.
 
 His fingers traced the line of her spine, slow and possessive, before coming to rest at her most vulnerable place.
-He inspected her with calm precision, his touch firm, sliding over the small hoops that still decorated her folds.
+He inspected her with quiet thoroughness, his touch firm, sliding over the small hoops that still decorated her folds.
 
 “Exquisite,” he murmured.
 
-Her heart soared with pride. She was exquisite because he had made her so.
+Her breath caught, hips pressing infinitesimally higher into his palm. She was exquisite because he had made her so.
 
 Sayyid reached once more for the wooden box and drew out her final adornment.
 
@@ -4495,7 +4445,7 @@ Her skin tingled as the cool air brushed where the tiny loops had once been.
 
 And then—the shield.
 
-He pressed it into place, smooth gold covering her sex completely, a radiant emblem of her surrender and her belonging.
+He pressed it into place, smooth gold covering her sex completely, sealing her surrender whole.
 Another click, then another, the finality of it resounding through her bones.
 
 A wave surged through her, powerful and absolute.
@@ -4505,14 +4455,14 @@ It was belonging.
 
 She was his. Entirely his.
 
-Perfect.
-
 Sayyid stepped back, surveying his work, satisfaction glowing in his gaze.
 
 “You are now truly mine, Wardah,” he said, his deep voice rich with approval.
 “You have proven yourself worthy of your place in my harem.
 You should be proud.”
 
-Pride swelled within her, pure and unshakable.
+Something in her settled, quiet and certain, the gold cool and constant against her skin.
 
 She was home.
+
+The last click still echoed faintly in her ears—a door closing with no one left inside to mind.

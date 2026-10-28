@@ -57,49 +57,39 @@ Read below, or click on the image for the EPUB download:
 
 Sonia crouched by the edge of the trench, brushing sand off what looked like the base of a carved column.
 The Canary sun burned overhead, but she barely noticed.
-Her focus was on the intricate patterns emerging beneath her careful work—geometric shapes interspersed with flowing,
-almost organic lines.
+Geometric shapes emerged beneath her brush, crossed by flowing, almost organic lines.
 None of it matched anything she had seen in the textbooks.
 It wasn’t Roman or Phoenician.
-It wasn’t even the vaguely familiar motifs of indigenous Guanche culture.
+It didn’t resemble Guanche work either.
 
-“Hey, Sonia!” Her colleague, Nate, called from the other end of the dig. “You gotta see this.”
+“Sonia!” Nate called from the other end of the dig. “Leave that a minute. Come and look.”
 
-Reluctantly, Sonia set her brush down and stood, brushing dirt from her gloves.
-She adjusted the wide-brimmed straw hat tied under her chin.
-Crossing the uneven ground, she dodged around half-excavated walls and trenches.
-The site sprawled across the rugged hillside like a forgotten puzzle, half-buried under centuries of volcanic ash.
+Sonia set down her brush reluctantly. She brushed her gloves together, adjusted her straw hat, and picked her way across the trenches. Half-excavated walls broke the slope above her, their upper courses still buried in ash.
 
 “What is it?” she asked as she reached Nate.
 
 He pointed to a slab of stone they had uncovered the day before, now resting on a makeshift frame of wooden beams.
-It had been cleaned enough to reveal a series of carvings, arranged in rows and columns like a bizarre form of text.
+Cleaning had revealed carvings in rows and columns, perhaps a form of writing.
 But it wasn’t the carvings that drew her attention—it was the inlay.
-Metallic streaks ran through the stone, glinting faintly in the sun,
-as if liquid metal had been poured into the grooves.
+Metal filled the grooves, glinting in the sun.
 
-“Does that look... technological to you?” Nate asked, his voice laced with unease.
+“Tell me that doesn’t look like a circuit,” Nate said.
 
-Sonia frowned, leaning in closer.
-The inlays formed a network of patterns that might have been decorative,
-but there was a symmetry to them that felt almost purposeful.
-She traced a gloved finger over the lines, the metal cool under the canvas.
-“I don’t know,” she admitted.
-“It’s too precise for something ornamental.”
+Sonia bent closer. The metal felt cool through her glove as she traced one of the lines.
+
+“Decoration, perhaps. But look at the symmetry.” She followed it to the next junction. “Why be so precise?”
 
 “It gets weirder,” Nate said.
 He gestured toward another section of the site,
-where a group of workers was uncovering a set of wide, shallow steps leading down into the ground.
+where workers were uncovering wide, shallow steps.
 “That’s the entrance to the main complex.
 Just got a glimpse inside—there’s something down there you should see.”
 
 Sonia followed him, her boots crunching over the gritty soil.
 The staircase descended into shadow, flanked by walls carved with more of the strange patterns.
-Lanterns had already been set up below, their light flickering against the rough-hewn stone.
+Lanterns lit the rough-hewn walls below.
 
-As they stepped into the chamber, Sonia’s breath caught.
-The air felt... different here.
-Heavy, almost oppressive, with a faint metallic tang that reminded her of storms.
+Sonia stopped at the chamber entrance. The air was heavy, with the metallic tang of an approaching storm.
 The room was circular, its walls lined with niches that held cracked and broken objects—ceramic bowls,
 glass vials, things that might once have been tools.
 At the center of the room stood a dais, its surface smooth and black, as if carved from obsidian.
@@ -107,96 +97,63 @@ At the center of the room stood a dais, its surface smooth and black, as if carv
 “This,” Nate said, “is what I wanted you to see.”
 
 He pointed to a panel set into the wall near the dais.
-Unlike the rest of the carvings, this panel was clean, almost pristine,
-its surface glowing faintly with a blue-green hue.
-It was divided into squares, each one etched with more of the strange symbols.
+Unlike the other carvings, the panel was clean and glowed blue-green.
+Squares divided its surface, each bearing more symbols.
 As Sonia approached, she felt a faint hum beneath her feet, like the vibration of a running machine.
 
 “This isn’t possible,” she murmured. “This has to be some kind of hoax.”
 
-“Keep telling yourself that,” Nate said. “But if this is fake, it’s the most convincing one I’ve ever seen.”
+“Then someone’s gone to a lot of trouble,” Nate said. “How do you explain the panel?”
 
 Sonia reached out, hesitating before her fingers touched the glowing panel.
 The air around it seemed warmer, buzzing faintly against her skin.
-“If this is Atlantean...” she started, but the words died in her throat.
-If this was Atlantean, then everything they knew about ancient history was about to be turned upside down.
+“If this is Atlantean...” She stopped.
+The discovery could overturn their account of ancient history.
 
-The glowing panel wasn’t the only thing drawing her attention.
-Around the edges of the dais were shallow depressions, arranged in a precise circle.
-They reminded her of something, though she couldn’t place what.
-Almost like... placements for standing or kneeling.
+Around the dais, shallow depressions formed a circle. Sonia looked from one to the next. Someone could have stood in each—or knelt.
 
 “What do you think this was for?” she asked, her voice low.
 
-Nate shrugged, his unease evident in his expression. “Doesn’t feel like a temple, does it?”
+Nate shrugged uneasily. “Doesn’t feel like a temple, does it?”
 
 “No,” Sonia agreed. “It doesn’t.”
 
-Her gaze drifted to the carvings on the walls, the faintly glowing lines running like veins through the stone.
-The patterns seemed to shift subtly in the flickering light, as if alive.
-There was something here—something they didn’t understand yet.
-But it wasn’t worship, and it wasn’t art.
-Whatever this place had been, it had a purpose.
-And Sonia couldn’t shake the feeling that it wasn’t meant for anything benevolent.
+Sonia studied the glowing lines in the walls. They seemed to shift in the lantern light.
+She doubted anyone had made this place for worship or art.
+Whatever its purpose, it troubled her.
 
 The following day, Sonia crouched in the shade of the tarpaulin,
 brushing sand off another piece of metal that had emerged from the soil.
-The delicate curves and hollows of the object made it clear it was no random scrap—this was crafted.
+Someone had shaped its curves and hollows with care.
 She tilted it in the sunlight, revealing a faint seam along one edge.
-It could have been a hinge, though it was so corroded that even calling it that felt speculative.
-The blackened surface glinted faintly under her brush, but any detail had been worn away by time and exposure.
+Perhaps it was a hinge; the corrosion made it hard to tell.
+Her brush exposed a blackened surface, too worn to reveal much detail.
 
-The area she’d chosen to explore was set a little apart from the main excavation.
+She worked a little apart from the main excavation.
 The others were too focused on the inscriptions in proto-Linear A to pay much attention to her quiet work.
 She didn’t mind.
 She wasn’t a linguist.
 And if she was right about what she’d found, this could be just as significant.
 
-Her tray was already filling with fragments—mostly round or half-round,
-with sharp edges and smooth curves that suggested some kind of intricate assembly.
+Round and half-round fragments filled her tray. Their edges and curves suggested parts of a mechanism.
 A few had empty sockets where stones might once have been set.
 She imagined them colorful and polished, though now they were as blackened as everything else.
 
-Her brush stilled as she uncovered something different.
-It was larger than the others, split cleanly into two pieces.
-Unlike most of the fragments, this one had clearly once formed a complete unit.
-She tilted her head, fitting the two halves together in her mind.
-A collar, she realized.
-Or something like it.
-The curve was unmistakable.
+Her brush stopped at two larger pieces. She studied the curves, fitting them together in her mind. A collar. Or something very much like one.
 
-Sonia’s lips tightened.
-A sense of unease prickled at the back of her neck.
-What kind of society used things like this?
-Jewelry?
-Restraints?
-Some hybrid of both?
-The designs were elaborate, but the purpose...
-She wasn’t ready to speculate yet.
+Jewelry, she told herself. The workmanship was elaborate enough. But she kept turning the pieces over to examine the fastening.
 
-She should document it.
-The team would want to see it—would need to see it.
-But as she stared at the pieces in her hand, a strange sense of possessiveness crept over her.
-This one was different.
-Intact, or nearly so.
-A single artifact she could hold in her hands.
-Something about it felt personal, almost intimate.
+She ought to put it in the notebook. Give it a number, bag the pieces, let the team examine them. Instead she held them a moment longer. Nearly intact. Small enough to take home.
 
 She glanced over her shoulder.
 Nate was still in the main dig site,
 debating with one of the linguists about the implications of the proto-Linear A inscriptions.
-The workers nearby were preoccupied with sifting through soil for smaller finds.
+The nearby workers sifted soil for smaller finds.
 No one was watching her.
 
-Her gloved fingers slid the pieces into her satchel,
-tucking them carefully between layers of cloth to keep them from clinking.
+She slipped the pieces into her satchel, between layers of cloth so they would not clink.
 Her heart thudded against her ribs as she straightened up.
-It wasn’t like her to do this—she prided herself on her professionalism, her methodical approach.
-But this was different.
-She told herself it wasn’t theft.
-Not really.
-There were so many other fragments like it.
-This one didn’t even seem special.
+She was careful with finds. Everyone knew that. And there were so many fragments here; this one was hardly exceptional. She had just spent several minutes telling herself the opposite.
 
 Still, her hands trembled slightly as she turned back to her tray.
 She brushed more sand away, working more slowly now, her mind distracted.
@@ -207,8 +164,7 @@ It was just a souvenir.
 Something to remember the dig by.
 Something to prove to herself, years from now, that she had been here.
 
-When the time came to package the rest of her finds, Sonia worked with precision,
-cataloging each piece, noting every detail in her notebook.
+When she packaged the rest of her finds, Sonia cataloged each piece in her notebook.
 She even lingered a little longer over the fragments with empty sockets,
 their jewel settings blackened and unrecognizable.
 She recorded it all, as thoroughly as always.
@@ -220,26 +176,23 @@ Except for one.
 The artifacts piled up day after day, each new discovery stranger than the last.
 Sonia sat cross-legged on the tarp-covered ground near her section of the dig,
 her gloves dusty as she examined the latest batch of finds.
-The pieces were baffling—everywhere she turned, she saw designs that were alien to anything she had studied before.
-The team had started calling them Atlantean as a shorthand, a placeholder for something they couldn’t yet define.
+None of the designs resembled anything she had studied.
+The team called them Atlantean for want of a better name.
 
-“This is insane,” muttered Carla, one of the field techs, holding up what looked like a small, delicate frame.
-It was made of metal, twisted into looping curves that seemed decorative but had clearly been shaped with purpose.
-“It’s like someone tried to combine a chastity belt with a circuit board.”
+Carla, one of the field techs, held up a delicate frame of metal loops.
+
+“A chastity belt with a circuit board,” she said. “Please tell me I’m wrong.”
 
 Sonia glanced over, suppressing a smile.
 Carla wasn’t entirely wrong.
-There was something bizarrely modern about the artifacts
-they were pulling out of the ground—an almost technological precision in the designs,
-though they were clearly ancient.
+The ancient artifacts looked strangely modern, with the precision of machine parts.
 They found arm bands that looked more like restraints, rings with mechanisms no one could figure out,
 and strange structures with grooves that might have been meant to lock something in place.
 
-One of the strangest items was uncovered by Nate.
-He held it up triumphantly as Sonia approached, her curiosity piqued.
+Nate uncovered one of the strangest items.
+He held it up as Sonia approached.
 The object resembled a collar, not unlike the fragments Sonia had found earlier, but this one was almost intact.
-It had a sleek, curved design, and inset into its surface were dull black stones.
-They looked like they might have been gemstones once, but now they were lifeless and opaque.
+Dull black stones studded its curved surface. They might once have been gemstones.
 
 “Check this out,” Nate said, handing it over. “Doesn’t it look... I don’t know... too functional to be just jewelry?”
 
@@ -255,10 +208,7 @@ Something practical.”
 “Or sinister,” Carla quipped, tossing a shard of glass into a labeled bag.
 “I mean, half of this stuff looks like it came from some kind of ancient BDSM dungeon.”
 
-“You’re not wrong,” Nate said, crossing his arms.
-“There’s definitely a... theme here.
-Restraints, collars, these weird cuffs we found yesterday.
-And it’s all so... deliberate.”
+Nate folded his arms. “The cuffs yesterday, this collar, now that frame. We can’t keep calling everything ceremonial.”
 
 “It doesn’t fit any of the cultures we know,” Sonia added.
 She set the collar down carefully and gestured toward the growing collection of artifacts.
@@ -271,82 +221,58 @@ Sonia rolled her eyes.
 “Not alien.
 Just different.
 These people—whoever they were—they weren’t like anyone else.
-They must have had a completely unique way of thinking.
-A different worldview.”
+They must have thought differently.”
 
-“Yeah, one where bondage chic was all the rage,” Carla said, smirking.
+“Apparently the dress code was quite strict,” Carla said.
 
-Sonia ignored her, though a faint unease prickled at the back of her mind.
+Sonia ignored her, uneasy.
 She had been trying to avoid thinking about the implications of the artifacts—the collars,
 the restraints, the way so many of the designs seemed to straddle the line between function and fetish.
 It was easier to focus on cataloging, documenting, analyzing.
-But the mystery was impossible to ignore.
+But she still wanted answers.
 
 As the dig progressed, more of the complex came into focus.
 They uncovered what appeared to be a market square, with rows of stalls marked by low stone walls.
-Many of the stalls had been buried under volcanic ash, their contents preserved in eerie detail.
-Sonia found herself
-staring at the remnants of what looked like display racks—metal and stone constructions that might once have held goods,
-or perhaps something more unsettling.
+Volcanic ash had preserved the stalls and their contents.
+Sonia stared at metal and stone racks that might once have displayed goods—or something else.
 
 The temple itself revealed even stranger secrets.
 The carvings inside depicted scenes
 that were difficult to interpret—figures in elaborate headpieces surrounded by glowing objects,
 others kneeling or bound in strange devices.
-The designs were sensual, almost overtly sexual, but they also hinted at something else.
-Power.
-Control.
-Submission.
+Sonia could not separate the sexual scenes from the arrangements of power. Again and again, one figure stood while the others knelt or waited in restraints.
 
-The team argued endlessly over the meaning of it all.
+The team argued over its meaning.
 Some thought it was a religious site, others a center for trade or governance.
 Sonia wasn’t sure.
-The artifacts didn’t just suggest utility—they suggested intent.
-Whoever these people were, they had a vision, a purpose.
-But it was a purpose that felt alien, even after all these centuries.
+These people had built the devices for a purpose Sonia still could not grasp.
 
 She couldn’t shake the feeling that the place wasn’t just about worship or trade.
 It was about control.
 But control of what—or who—remained a mystery.
 
-
 ## Back at Home
 
-Sonia sighed as she walked out of the airport into the crisp Parisian air,
-her carry-on slung over her shoulder and a heavy sense of relief settling over her.
-The two-month dig on the Canary Islands had been equal parts exhilarating and exhausting.
-The discoveries—the intricate carvings, the mysterious artifacts—had consumed her thoughts day and night,
-pulling her into a world long buried under volcanic ash.
-But now, standing on familiar ground, she realized how much she had missed home.
-And Marion.
+The Paris air felt cold after the Canary Islands. Sonia shifted her carry-on and let out a breath. For two months she had thought about little except the dig. Now she wanted to get home to Marion.
 
-The cab ride through the city was surreal.
-Paris’s familiar rhythm felt almost alien after the isolated, windswept island.
-The muted sounds of the dig—shovels scraping, the low hum of voices—had been replaced by the bustle of urban life.
-She had kept in touch with Marion, of course, but calls and texts weren’t the same.
-She missed her girlfriend’s warmth, her presence,
-the way Marion made the world feel solid even when Sonia was chasing mysteries older than history itself.
+From the cab, Paris felt unfamiliar after the isolation of the island.
+Traffic and voices filled the streets after weeks of shovels scraping at the quiet dig.
+They had called and sent messages throughout the dig. It had kept them in touch, but Sonia wanted Marion beside her, where a pause in the conversation did not mean a bad connection.
 
 She set her suitcase down with a thud in the cramped entryway of the apartment,
 the air cool and faintly scented with Marion’s favorite lavender diffuser.
 The faint rustle of movement came from the kitchen, followed by Marion’s warm voice calling out, “You’re home!
 Finally!”
 
-Sonia didn’t have time to reply before Marion appeared, her short curls slightly damp from a shower.
-She wore a simple black tank top and faded jeans,
-but the grin on her face was enough to make Sonia drop everything and wrap her arms around her.
-The kiss they shared was long, deep and slow, after the whirlwind of travel.
-Marion pulled back, her hands resting on Sonia’s waist.
+Marion appeared before Sonia could answer, her shoulder-long curls still damp from a shower. A black tank top, faded jeans, that grin. Sonia dropped her bags. By the time Marion drew back from their kiss, Sonia had stopped thinking about the airport.
 
-“You look exhausted,” Marion said, brushing a strand of Sonia’s hair back under her still-dusty hat.
-“But you’re here, and that’s what matters.”
+“You look exhausted.” Marion brushed Sonia’s hair back under the dusty hat. “You’ve brought half the dig with you.”
 
-Sonia smiled, already feeling the weight of the dig slipping away. “I missed you. And I’m starving. What’s for dinner?”
+Sonia smiled. “I missed you. And I’m starving. What’s for dinner?”
 
-“Something edible, I promise,” Marion said with a wink, leading Sonia into the tiny kitchen, swaying her back.
-“Sit down, and I’ll grab it.”
+“Something edible. I’ve made an effort.” Marion led her into the tiny kitchen. “Sit. You can tell me whether it worked.”
 
-Dinner was simple—pasta with a light tomato sauce and a bottle of cheap red wine—but it was perfect.
+Dinner was simple—pasta with a light tomato sauce and a bottle of cheap red wine—but Sonia wanted nothing else.
 They sat at the small, wobbly table, catching up on the mundane details of life.
 Sonia filled Marion in on the dig, starting with the heat, the long hours, and the frustrating logistics.
 But as the wine flowed, her recounting turned to the more intriguing details.
@@ -358,13 +284,9 @@ Just strange, advanced designs that feel... wrong, somehow.”
 
 “Wrong how?” Marion asked, her chin resting on her palm as she leaned forward.
 
-Sonia’s lips quirked into a mischievous smile.
-“Well, take this theory of mine.
-Imagine a society—a really old one, five or six millennia back—that’s obsessed with control.
-Not just the kind of control you need to run a city or a religion.
-Personal control.
-Physical control.
-Over people.”
+Sonia turned the glass between her hands.
+
+“I have a theory. Five or six thousand years ago, a society builds all this machinery. Not just to run a city. To control individual people—their bodies, what they can do.”
 
 Marion raised an eyebrow, intrigued. “Like slavery?”
 
@@ -403,17 +325,16 @@ But I can’t stop thinking about it.
 About what kind of people they were, how they lived.
 It’s haunting.”
 
-After dinner, they moved to the couch, a cozy nest of mismatched cushions and throws.
+After dinner, they moved to the couch, with its mismatched cushions and throws.
 Marion poured them each another glass of wine while Sonia rummaged through her bag.
 She returned with the collar fragments, carefully wrapped in cloth.
 Unfolding them, she placed the pieces on the coffee table.
 
 “These,” Sonia said, her voice quieter now, “are what I brought back.
-Probably shouldn’t have, but...
-I couldn’t resist.”
+I know I shouldn’t have. But look at them.”
 
 Marion picked up one of the fragments, her fingers brushing over the corroded surface.
-The blackened metal was smooth in some places, pitted in others, but the craftsmanship was undeniable.
+The blackened metal was smooth in some places, pitted in others, but someone had worked it with care.
 “This was a collar?” she asked, tilting the piece to see where it might fit with the other half.
 
 Sonia nodded.
@@ -426,56 +347,48 @@ A sign of ownership and control.”
 Marion’s lips curled into a smirk as she set the piece down. “And you thought this would make a good souvenir?”
 
 Sonia laughed, leaning against her.
-“What can I say?
-It’s too fascinating to leave behind.
-And maybe a little sexy, in a dark, twisted kind of way.”
+“I couldn’t leave it behind.
+And maybe it’s a little sexy.”
 
 Marion wrapped an arm around Sonia’s shoulders, pressing a kiss to her temple.
 “Well, it’s definitely unique.
 And very you.”
 
-They sat in silence for a moment, the fragments gleaming faintly in the lamplight,
-as if holding secrets they would never fully uncover.
+Marion looked down at the fragments again. Sonia left them on the cloth between them; she had expected more questions.
 
-The following days Sonia spent hunched over her workdesk at home,
-the evening light filtering through the lace curtain and casting soft shadows over her meticulous setup.
+Over the following days Sonia worked at her desk by the lace-curtained window.
 The collar fragments rested in the center of the table, propped on a soft cloth.
 Next to them were her tools: fine brushes, a loupe, a small container of solvent, and tweezers.
 She worked with a steady hand,
 brushing away layers of petrified grime that had hidden the true nature of the material beneath.
 
-As the grime came away, what emerged was breathtaking.
+The grime came away.
 The "metal" at the core of the collar wasn’t metal at all, or at least not any metal Sonia recognized.
 It was black and pristine, gleaming faintly in the light.
 Despite millennia of burial, the material showed no sign of damage.
-Its surface was impossibly smooth, as if untouched by time.
+Its surface was smooth and unmarked.
 
 ![](sonia-collar.jpg)
 
 The jewels—if that’s what they were—were even stranger.
 They remained set firmly into the collar’s outer surface,
-their dull sheen giving way to hints of color as Sonia worked at them with a delicate pick.
+showing hints of color as Sonia cleaned them with a pick.
 Red, amber, green, and lots of blue hues emerged, though the colors were muted,
 matted by whatever age and exposure had done to them.
 They weren’t multifaceted, more rounded, like ancient cabochon gemstones,
 and the faintly raised lines running along the inside of the collar felt purposeful, almost technical.
 
-She leaned back in her chair, her hands resting on the edge of the table.
-Her heart raced with a mixture of triumph and curiosity.
-This wasn’t just an artifact; it was something... else.
-Something otherworldly in its perfection.
+Sonia set down the pick. She had cleaned the same patch twice, expecting to find a scratch or a pit underneath. There was none.
 
 Behind her, she heard Marion’s voice, low and teasing. “Still at it?”
 
 Sonia glanced over her shoulder to see Marion leaning against the doorframe, her arms crossed.
 She was dressed casually in one of Sonia’s oversized shirts and a pair of leggings, her hair loose and slightly mussed.
-Despite her playful tone, there was a hint of annoyance in her expression.
+Marion was smiling, but she had come no farther than the doorway.
 
 “It’s just—” Sonia gestured to the collar fragments. “I think I’m getting somewhere. The material is—”
 
-“Yeah, yeah,” Marion interrupted, stepping into the room.
-“High-tech bondage jewelry from Atlantis.
-I’ve heard the pitch before.”
+“Yes, yes. High-tech bondage jewelry from Atlantis.” Marion came into the room. “I think I could give the lecture by now.”
 She stopped beside Sonia’s chair and placed her hands on Sonia’s shoulders, leaning down to kiss the side of her neck.
 “But you’ve been glued to this thing for days.
 I’m starting to feel like I’m in competition with ancient alien kinks.”
@@ -495,22 +408,22 @@ but Marion was already leading her toward the sofa.
 Sonia let herself be pulled into Marion’s embrace, the tension in her shoulders easing as Marion kissed her.
 It started playfully, with Marion nipping at her bottom lip and murmuring something about “mysterious Atlantean charm,”
 but it quickly deepened.
-Sonia forgot about the collar, the grime, the tools—all of it faded as Marion’s hands tangled in her hair.
+Sonia forgot her work as Marion tangled her hands in her hair.
 
 “See?”
 Marion said breathlessly, breaking the kiss for just a moment.
 “This is way better than your weird ancient trinket.”
 
-“Maybe,” Sonia admitted, her lips brushing against Marion’s again. “But you’ll have to work harder to convince me.”
+“Maybe,” Sonia said, kissing her again. “But you’ll have to work harder to convince me.”
 
 Marion’s grin turned mischievous as she repeated Sonia’s earlier words, her voice dripping with playful sarcasm.
 “High-tech bondage jewelry from Atlantis.
 Very fancy.
 But what about good old low-tech bondage from Paris?”
 She leaned forward, reaching under the sofa to slide out a storage compartment.
-With a flourish, she pulled out a bundle of ropes, black and red, the soft cotton gleaming faintly in the dim light.
+She pulled out a bundle of black and red cotton ropes.
 
-Sonia raised an eyebrow, her lips curving into a teasing smirk. “Oh, really? That’s your plan?”
+Sonia looked at the ropes, then at Marion. “You’ve thought this through, have you?”
 
 Marion shrugged, her smile unabashed as she dangled the ropes in front of Sonia.
 “Just thought I’d remind you how much fun simpler things can be.
@@ -537,8 +450,8 @@ cinching it snugly but not uncomfortably.
 “But you better not—hey!”
 She broke off with a laugh as Sonia tugged the ropes tighter, pinning her arms firmly behind her back.
 
-Sonia worked quickly, her hands deftly binding Marion’s ankles next,
-crossing them neatly before connecting everything with a longer length of rope.
+Sonia bound Marion’s ankles,
+crossed them, and connected the bindings with a longer rope.
 In minutes, Marion was in a snug hogtie, her body gently arched and completely immobilized.
 She tested the knots, wriggling against the bindings, but Sonia’s work held firm.
 
@@ -604,16 +517,15 @@ then using her tongue to wet them and then breathe on them.
 Marion lost her speech, and turned to soft moans, a sign for Sonia to now use her teeth and nibble,
 mixing in a bit more intensity into her play.
 
-Marion’s soft groan was all the encouragement Sonia needed.
-She let her hands roam freely now, cupping, stroking, exploring every inch of skin she could reach.
+At Marion’s groan, Sonia let her hands roam over Marion’s skin.
 Her kisses followed, trailing over Marion’s shoulders and neck,
 her touch never too much but just enough to leave Marion trembling.
-Every sigh, every gasp, was music to Sonia’s ears, and she smiled against Marion’s skin,
-knowing exactly how much her girlfriend was enjoying the slow, sensual torment.
+Marion’s sighs made Sonia smile against her skin.
 
 Then she slowly let her hands dive into Marion's pants, searching and finding the wetness she was looking for.
-She undid the buttons and the zip, pushing the jeans down a bit and then eased her fingers into the folds,
+She was pushing the leggings down a bit and then eased her fingers into the folds,
 confirming she was ready.
+Carefully, she removed the leggings and the panties completely.
 
 She moved down, taking her time and using her fingers and her mouth, carefully listening to Marion's moaning,
 timing things to draw them out.
@@ -641,25 +553,22 @@ So perfect.
 Always so eager to please.”
 
 Marion’s lips closed around Sonia’s fingers, her eyes fluttering shut as she drew them into her mouth.
-Sonia’s breath hitched at the warmth, the slick glide of Marion’s tongue as she cleaned each finger,
-slow and deliberate.
+Sonia caught her breath as Marion slowly cleaned each finger.
 
-“Just like that,” Sonia murmured, her lips brushing against Marion’s ear.
+“Just like that,” Sonia murmured against Marion’s ear.
 “You’re so beautiful like this.
-So obedient.
-I love how much you trust me, how you give yourself completely.”
+I love how much you trust me.”
 
 Marion whimpered softly, the sound muffled by Sonia’s fingers, and Sonia took her time.
 She let her fingers linger, teasing over Marion’s lips before slipping back in, deeper this time.
-Marion’s mouth opened wider to take them, her breathing steady and slow,
-her movements unhurried as if savoring every second.
+Marion opened her mouth wider, breathing slowly.
 
-“You’re such a good girl for me,” Sonia continued, her voice like silk.
+“You’re such a good girl for me,” Sonia said softly.
 “So perfect, letting me take care of you, letting me have all of you.
 I could keep you like this forever, couldn’t I?
 Helpless and mine.”
 
-Marion’s soft whimper turned into a hum of contentment,
+Marion hummed,
 her lips closing firmly around Sonia’s fingers as she sucked gently.
 Sonia smiled, brushing a kiss against Marion’s temple.
 
@@ -676,22 +585,11 @@ brushing them one last time over Marion’s lips before pulling her into a gentl
 
 ## The Next Morning
 
-The first rays of the morning sun filtered through the curtains, casting a soft glow over the living room.
-Sonia and Marion lay tangled together on the sofa, a mess of limbs,
-discarded clothing, ropes, and a rumpled quilt covering them haphazardly.
-Marion stirred first, blinking sleepily as the light hit her face.
-She yawned, stretching slightly against Sonia’s warm body, careful not to disturb her too much.
+Sunlight reached Marion’s face through the living-room curtains. She blinked and tried to stretch without waking Sonia. The sofa was too narrow for it; under the quilt they were still tangled together, ropes and clothes scattered around them.
 
-As she turned her head, her gaze wandered to the workspace by the window.
-The collar fragments rested where Sonia had left them, still arranged neatly on the cloth.
-Marion frowned, her sleepy brain registering that something was different.
-The blackened surface wasn’t as dark as before—parts of it gleamed faintly, catching the sunlight.
-The jewels, dull and muted the night before, now seemed brighter, their colors more vivid.
+Marion looked toward the worktable. Sonia had left the fragments in their neat arrangement on the cloth, but something was wrong with the color. She blinked again. The black surface gleamed in places, and she could distinguish colors in jewels that had looked dull the night before.
 
-“Sonia,” Marion murmured, nudging her girlfriend gently.
-When Sonia didn’t stir, Marion kissed her cheek, a bit more insistent this time.
-“Sonia, wake up.
-Look at this.”
+“Sonia.” She nudged her, then kissed her cheek. “Come on. I need you to look at something.”
 
 Sonia groaned softly, reluctant to leave the warmth of Marion and the cocoon they had made together.
 “What?” she mumbled, her voice heavy with sleep.
@@ -700,14 +598,12 @@ Marion sat up, pulling the quilt around her shoulders. “Your artifacts. The co
 
 ![](sonia-watching.jpg)
 
-That got Sonia’s attention.
-She blinked awake, sitting up and pushing her hair back as she followed Marion’s gaze.
-The moment she saw the collar fragments, her breath caught.
+That woke Sonia. She sat up, pushed her hair back, and stared at the collar fragments.
 The metal she had cleaned was no longer black.
 In the sunlight, it had lightened to a dark grey, almost metallic in its sheen.
-The change wasn’t uniform—some areas remained blackened where grime still clung—but the difference was undeniable.
+Grime still blackened parts of the surface.
 
-Sonia stood, wrapping the quilt around herself as she crossed to the table.
+Sonia wrapped herself in the quilt and crossed to the table.
 She didn’t touch the fragments, just leaned over them, her eyes wide with fascination.
 The jewels were clearer now, their colors distinct and almost glowing in the sunlight.
 
@@ -716,15 +612,13 @@ The jewels were clearer now, their colors distinct and almost glowing in the sun
 Marion joined her, standing close but careful not to get too near the table.
 “Do you think it’s reacting to the sunlight?” she asked.
 
-Sonia nodded slowly, her mind already racing.
-“It has to be.
-The only difference is the sun.”
+“What else has changed?” Sonia said. “It was sitting here all night. Now the sun’s on it.”
 She crouched to get a better look, peering at the fine lines and details of the collar.
 “It’s not just discoloration, though.
 The surface—it looks... alive.
 Almost like it’s waking up.”
 
-Marion crossed her arms, watching Sonia with a mixture of curiosity and unease.
+Marion crossed her arms, watching Sonia uneasily.
 “Do you think it’s safe?
 I mean, this thing has been buried for thousands of years.
 What if it’s releasing something?”
@@ -732,7 +626,7 @@ What if it’s releasing something?”
 “I don’t know,” Sonia admitted, glancing back at Marion.
 “But I don’t think it’s dangerous—not in that way.
 The material—it’s not like anything we’ve ever seen.
-It’s not corroded or damaged, not like it should be after all this time.
+It should be corroded after all this time, but it isn’t.
 And now this...”
 She gestured at the fragments.
 “This is why it stayed intact.
@@ -758,8 +652,7 @@ Whatever this civilization was, they were way beyond anything we’ve seen befor
 And this collar?
 It might be the key to understanding them.”
 
-They stood in silence for a moment, the sunlight continuing to spill over the fragments,
-coaxing more color and light from the once-blackened surface.
+They watched the sunlight brighten the fragments.
 Marion finally broke the silence, her voice softer now.
 “You’re not going to try anything with it, are you?”
 
@@ -774,25 +667,19 @@ And see what it does.”
 
 
 Sonia set the collar halves down on the cloth-draped table, her hands trembling slightly in their protective gloves.
-The fragments were no longer relics in the conventional sense.
+The fragments no longer looked ancient.
 Days of careful exposure to sunlight had transformed them into something gleaming and pristine.
 The metal—if it was metal—was polished to a mirror-like chrome finish, completely free of grime.
 The "jewels," or whatever they were, now shone brilliantly,
 their colors by now mostly sapphire blue.
 
-It was mesmerizing, and unsettling.
-
-The faint hum emanating from the collar was barely perceptible,
-more felt than heard, like a distant vibration in the air.
-Sonia had caught herself leaning closer several times, almost hypnotized by it.
+She could feel the collar’s faint hum more than she could hear it.
+Several times she had caught herself leaning closer.
 Now, sitting at the table under the same midmorning light that had revealed its transformation,
 she couldn’t resist any longer.
 
-Using the protective cloth and her gloves, Sonia lifted the two halves and aligned them carefully.
-The hinge worked smoothly, with a precision that belied the artifact’s supposed age.
-The pieces clicked together, and the seam was almost invisible.
-She turned it over in her hands, marveling at the craftsmanship—or technology.
-There was no mistaking it anymore: this wasn’t just an artifact; it was an object with purpose.
+With her gloves and the cloth, Sonia lifted and aligned the halves.
+The hinge moved without catching. Sonia turned the joined halves over in her hands, searching for the seam. She could barely find it. Whatever had made this, whatever the material was, it still worked.
 
 Experimenting cautiously, Sonia tried closing the collar completely.
 The front edges met with a satisfying click,
@@ -802,8 +689,7 @@ The collar opened effortlessly with the slightest pull.
 
 “What are you hiding?”
 Sonia muttered, inspecting the lock more closely.
-The mechanism was intricate, with tiny grooves and blue lights,
-with seams that suggested a function she couldn’t quite puzzle out.
+Tiny grooves, blue lights, and seams marked the mechanism. She could not work out its function.
 
 Marion’s voice startled her from behind. “You’re still at it? I thought you were taking a break this weekend.”
 
@@ -811,14 +697,7 @@ Sonia turned to see Marion leaning against the doorframe, her arms crossed.
 Her expression was a mix of amusement and concern.
 “I’ve never seen you this obsessed with anything outside a dig site.”
 
-“I know,” Sonia said, setting the collar back on the cloth.
-She pulled off her gloves and rubbed her temples.
-“But look at it, Marion.
-It’s perfect.
-Pristine.
-Not a single sign of decay or damage.
-And this lock mechanism—it’s like nothing I’ve ever seen.
-It should work, but it doesn’t.”
+“I know.” Sonia set the collar down and pulled off her gloves. She rested a finger on the cloth beside the clasp. “Look at it, though. No damage. The hinge works perfectly. Everything fits. Except it won’t lock.”
 
 Marion stepped closer, eyeing the collar warily. “Maybe it’s broken. Or maybe it needs something to activate it?”
 
@@ -826,7 +705,7 @@ Sonia frowned. “What kind of something?”
 
 Marion shrugged. “I don’t know. A tool? A key? Maybe it’s not meant to lock unless it’s on someone.”
 
-Sonia blinked, the implication sinking in. “On someone? You mean...”
+Sonia took her finger away from the clasp. “On someone?”
 
 Marion gestured toward the collar, her tone light but her words pointed.
 “It’s a collar, Sonia.
@@ -858,9 +737,8 @@ You can obsess over it again tomorrow.”
 Reluctantly, Sonia let herself be led away,
 though her thoughts lingered on the collar, its faint hum, and the mysteries it refused to give up.
 
-The park was alive with the sounds of children laughing, dogs barking, and leaves rustling in the breeze.
-Sonia and Marion walked along a shaded path, their hands clasped comfortably,
-the warmth of Marion’s palm grounding Sonia after the intensity of her recent work.
+Children laughed and dogs barked in the park. A breeze stirred the leaves.
+Sonia and Marion walked hand in hand along a shaded path.
 They had eaten their sandwiches under a sprawling oak tree,
 the sun dappling their faces through the leaves, and now they strolled at an easy pace.
 
@@ -870,13 +748,7 @@ Marion nudged Sonia gently with her shoulder.
 “So,” she began, a teasing lilt in her voice, “what’s so fascinating about that collar?
 I mean, you’ve been glued to it like it’s the Holy Grail.”
 
-Sonia glanced at her, a playful smirk tugging at her lips.
-“It’s the mystery,” she said.
-“The craftsmanship is perfect, the technology—if you can even call it that—is unlike anything we’ve ever seen.
-And then there’s the function.
-Whatever it was made for, it’s not just decoration.
-It does something.
-I need to know what.”
+“It does something,” Sonia said. “Someone made it to do a job, and we can’t even work out how to close it. Doesn’t that bother you?”
 
 Marion raised an eyebrow, her grin turning mischievous.
 “And what if it really is a slave collar?” she asked, her tone light but her words deliberate.
@@ -892,11 +764,9 @@ Marion flushed faintly but didn’t back down. She held Sonia’s gaze, her smil
 Sonia’s grin widened.
 “Wearing or controlling?” she asked, tilting her head slightly, her voice teasing but her eyes warm.
 
-Marion laughed softly, shaking her head but not answering directly.
-They both knew the answer,
-and they both knew where this kind of conversation usually led. “You think you’re so clever,” Marion said,
-nudging Sonia with her hip again as they resumed walking.
-“But we both know how this plays out 80% of the time.”
+Marion looked ahead and nudged Sonia with her hip.
+
+“You think you’re so clever. We both know how this goes about eighty percent of the time.”
 
 Sonia chuckled, lacing her fingers more tightly with Marion’s.
 “That’s because you like it that way.
@@ -904,66 +774,49 @@ And I’m not complaining.”
 
 “Maybe I just like making you happy,” Marion replied, her voice softer now, her smile tinged with affection.
 
-Sonia paused again, pulling Marion to a stop and leaning in to kiss her, slow and sweet.
+Sonia stopped and kissed her.
 When they broke apart, Sonia’s voice was barely above a murmur.
 “You make me happy just being you.
 The rest?
 Just a bonus.”
 
-Marion smiled into the kiss that followed,
-letting herself melt into Sonia’s touch, the park and its distractions fading away.
+Marion smiled as they kissed again.
 When they finally broke apart, they continued their walk hand in hand,
-the tension of the earlier conversation giving way to easy companionship.
-Still, the unspoken possibilities lingered between them, tantalizing and inevitable.
+at ease again, though neither had forgotten the collar.
 
 ## Marion's Experiment
 
-Marion stood in the living room, the evening sun pouring in through the windows,
-casting long golden rays that made the collar gleam almost unnaturally.
-It sat on Sonia’s worktable, pristine and alien, its chrome-like surface reflecting the light with an iridescent sheen.
-The jewels—or indicators, or whatever they were—now sparkled vividly, each one clear and luminous in its color.
-By now all the lights glimmered in a high-tech blue.
+From across the living room, Marion could see the evening sun reflected in the collar. Sonia had left it on the worktable. The jewels, if they were jewels, glowed blue.
 
-Marion couldn’t look away.
-She had promised herself
-she wouldn’t touch it .
-But the way the intricate lines inside the collar seemed to pulse faintly in the light was almost hypnotic.
-It wasn’t just beautiful; it was compelling.
-She moved closer, her hands hovering just over the surface as if she could feel the faint hum radiating from it.
-It was subtle, more a vibration in the air than a sound, but it was there.
-And it felt... powerful.
+She had promised herself she would leave it alone. Looking was different. She could do that from here. Then she was beside the table, holding her hands just above it and feeling the faint vibration in the air.
 
-She reached out, gently picking up the collar with a cloth to avoid direct contact,
-just as she had seen Sonia do so many times.
-The weight was heavier than she expected, solid and substantial.
+She picked it up with the cloth, copying Sonia’s careful grip. The weight surprised her. Watching Sonia handle it, she had expected something lighter.
 Turning it over, she examined the inside,
-where the gleaming lines ran like veins, converging near the locking mechanism.
+where gleaming lines met near the lock.
 The catch looked simple enough,
 but Marion had seen Sonia test it repeatedly, always with the same result—it wouldn’t engage.
 
 Holding it carefully, Marion tilted the collar in the light, inspecting the clasp.
 The lines from the inside seemed to lead directly to it,
-as if some kind of energy was channeled there.
+as if they carried energy there.
 She furrowed her brow, studying the tiny grooves and seams in the metal.
-It was elegant, precise, and undeniably functional.
-Yet it refused to do the one thing it seemed designed for.
+Yet the clasp would not close.
 
-Her reflection in the mirror by the hallway caught her eye, and a strange thought crept into her mind.
-*It's a collar.
-It’s meant to be worn.*
+In the hallway mirror she could see herself holding it.
+
+*It’s a collar. It’s meant to be worn.*
 
 The thought wasn’t entirely her own—or at least, it didn’t feel that way.
-Marion blinked, shaking her head, but the idea didn’t leave.
+She shook her head. A moment later she was still considering it.
 
 Almost dreamlike, she stepped in front of the mirror, still holding the collar with the cloth.
-She stared at herself, her reflection seeming sharper in the evening light.
-The collar gleamed in her hands, perfect and otherworldly.
+She studied herself with the collar in her hands.
 She raised it slowly, hesitating for just a moment, her heart pounding in her chest.
 
 Then, as if compelled by something beyond her own will, she brought it to her neck.
 
 The moment it touched her skin, she felt the faint hum more clearly.
-It wasn’t just a sound or vibration—it was a presence, a promise reaching across millennia.
+She felt it against her throat.
 Marion’s breath caught as she closed the collar around her neck.
 It fit perfectly, as if it had been made for her.
 
@@ -971,28 +824,23 @@ But the clasp still wouldn’t lock.
 
 She pressed lightly, turning the collar this way and that, trying to coax the mechanism into engaging.
 The lines inside seemed to shimmer faintly now, their clarity almost glowing against her skin.
-She could feel the collar’s hum resonating against her pulse, a strange warmth spreading through her,
-dropping through her from here neck down, into just the right place.
+She could feel the collar’s hum resonating against her pulse, warmth spreading from her neck down through her body.
 
-But the catch refused to snap shut.
+She checked her reflection, then the catch again.
 
-Marion stared at herself in the mirror, her fingers lingering on the collar.
-“Why won’t you work?” she whispered, her voice soft and almost pleading.
+“Come on,” she whispered. “Why won’t you work?”
 
-The hum seemed to respond, growing just slightly stronger, as if the collar was answering her in its own enigmatic way.
+The hum grew a little stronger. It seemed to answer her.
 
 But it wouldn’t lock.
 
-Frustration and curiosity warred within her as she traced the clasp again, then the smooth surface of the collar.
-She could feel the power, the purpose, the promise of it—but whatever it was meant for, it wasn’t fully awakened.
+Frustrated but still curious, she traced the clasp and smooth surface again.
+She could feel it working, but it would not lock.
 
 Not yet.
 
 With a sigh, Marion slowly unclasped the collar and set it back on the table.
-The hum faded as she stepped away, leaving her with an odd mix of exhilaration and disappointment.
-
-Whatever this thing was, it wasn’t ready.
-Or maybe she wasn’t.
+As she stepped away, the hum faded. She ought to have been relieved. Instead she looked back at it.
 
 She rubbed her neck absently, the phantom warmth of the collar still lingering on her skin,
 and waited for Sonia to come home.
@@ -1001,24 +849,19 @@ When Sonia stepped through the door, she looked more animated than Marion had se
 She dropped her bag by the coat rack and made a beeline for Marion,
 pulling her into a warm hug before kissing her cheek.
 
-“Marion,” she said, her voice bubbling with excitement, “you’re not going to believe what we’ve figured out!”
+“Marion. We’ve worked something out.”
 
-Marion chuckled, leaning back slightly to look at Sonia’s flushed face. “Something about the dig?”
+Marion leaned back in the hug to look at her. “I’m going to guess this isn’t about dinner.”
 
-“Everything about the dig,” Sonia corrected, guiding Marion to the couch.
-“We had this big meeting today—linguists, historians,
-even a couple of specialists they brought in from other institutions.
-It’s... it’s wild.”
+“The dig.” Sonia steered her toward the couch. “We had the linguists in today, and historians, and specialists from other institutions. Listen to this.”
 
 Marion raised an eyebrow as she settled beside her, tucking her feet under her. “Okay, spill.”
 
-Sonia practically bounced in her seat.
-“So, the linguists have been comparing the script we found at the dig to Linear-A—you know,
-the Mycenaean writing system from ancient Greece?
-And it’s definitely related.
-The symbols match up almost perfectly.”
+Sonia sat forward, her hands already moving as she explained.
 
-“Okay...” Marion said slowly, trying to follow.
+“They’ve compared the script with Linear-A—the Mycenaean writing from Greece. There’s a definite relationship. Some of the symbols are almost identical.”
+
+“I’m with you so far,” Marion said.
 
 “But here’s the thing,” Sonia continued, leaning closer.
 “This script?
@@ -1035,8 +878,7 @@ Marion blinked. “So... the Atlanteans weren’t the Mycenaeans?”
 Sonia said, gesturing excitedly.
 “They’re not the same people, but they had contact.
 Maybe the Mycenaeans borrowed the script from the Atlanteans, or maybe the Atlanteans influenced them.
-What’s clear is that the Atlanteans were far more advanced.
-Like, ridiculously more advanced.”
+What’s clear is that the Atlanteans were far more advanced. Far beyond anything we expected.”
 
 Marion tilted her head, intrigued despite herself. “How advanced are we talking?”
 
@@ -1060,19 +902,14 @@ The museum team brought in some local BDSM experts to consult.”
 
 “They what?” Marion laughed, leaning back in shock.
 
-“Yep.
-From a local munch group,” Sonia said and settled back into the couch,
-her grin widening as she recounted the scene at the museum.
-“So, get this,” she began, gesturing animatedly, “they didn’t just bring in generic ‘experts.’
-They called in people we know.
-You should have seen the team’s faces.”
+“From the local munch group. People we know.” Sonia finally sat back. “I wish you’d seen the team when they arrived.”
 
-Marion perked up, her curiosity piqued. “Wait, who? Tell me everything.”
+Marion tucked her feet underneath her. “Names, Sonia.”
 
 “Okay, first, they brought in Juliette Lefèvre.
 You know her, right?
 The one who runs that workshop on historical restraints near Montmartre?”
-Sonia’s eyes gleamed.
+Sonia grinned.
 “She’s obsessed with period-accurate bondage gear.
 I mean, if there’s a way to tie someone up like a 15th-century Venetian courtesan, she’s figured it out.”
 
@@ -1088,7 +925,7 @@ locking a volunteer’s wrists together while explaining the physics of restrain
 You should have seen the poor guy’s face.
 He was so red, Marion.”
 
-Marion burst out laughing, clutching her sides. “Oh no. Who volunteered for that?”
+“Who let her do that?” Marion asked. “Please tell me it wasn’t someone important.”
 
 “David, the intern.
 Poor guy.
@@ -1097,7 +934,7 @@ I swear he didn’t know what he was getting into,” Sonia said, laughing along
 You remember him, the guy with the ridiculous mustache?
 The one who makes custom paddles and floggers for half the kink scene?”
 
-Marion’s laughter doubled. “François? With the museum people? Please tell me he brought his suitcase.”
+Marion laughed harder. “François? With the museum people? Please tell me he brought his suitcase.”
 
 ![](francois-suitcase.jpg)
 
@@ -1108,7 +945,7 @@ whips—laid them all out on a table and started explaining impact play to a roo
 He gave this super-detailed breakdown of the types of sensations each tool could deliver
 and how the weight and flexibility of the materials affected the experience.”
 
-Marion shook her head, tears of laughter forming in her eyes. “Oh my God. How did anyone survive that?”
+Marion wiped her eyes. “Oh my God. How did anyone survive that?”
 
 “Barely,” Sonia said with a grin.
 “Then came Léa Dubois.
@@ -1118,7 +955,7 @@ She looked at this weird Atlantean device we found—it had wires, or what looke
 embedded into some kind of flexible material—and said, ‘Oh, this is for electrical stimulation.’
 Just like that.”
 
-Marion gasped, covering her mouth in shock. “She didn’t.”
+“She just announced it?” Marion asked.
 
 “She did.”
 Sonia nodded.
@@ -1126,11 +963,11 @@ Sonia nodded.
 Then she pulled out her tablet and started showing schematics of her own designs, comparing them to the artifact.
 The curator nearly fainted.”
 
-Marion was in stitches now, unable to contain her laughter. “This is gold. Please tell me it gets better.”
+“Go on,” Marion said. “You can’t stop there.”
 
-Sonia smirked. “Oh, it does. The pièce de résistance was Michel Rousseau. You remember Michel—the hypnotist?”
+Sonia smirked. “Oh, it does. Best of all was Michel Rousseau. You remember Michel—the hypnotist?”
 
-Marion’s jaw dropped. “The one who does erotic suggestion scenes? They brought him?”
+“Michel?” Marion sat up. “They invited Michel to explain suggestion to them?”
 
 “Yep.
 He looked at these carvings we found in the temple—patterns and symbols etched into stone—and said,
@@ -1140,7 +977,7 @@ He asked for a volunteer and used nothing but his voice to drop the poor curator
 Half the room was holding their breath.”
 
 
-Marion fell back into the cushions, laughing uncontrollably.
+Marion fell back against the cushions, laughing.
 “You’re telling me the museum people let Michel hypnotize someone in public?”
 
 “Not just someone,” Sonia said, her grin wicked.
@@ -1163,7 +1000,7 @@ I have to see it for myself.”
 
 “Oh, trust me,” Sonia said, leaning in with a mischievous smile. “You would have loved every second of it.”
 
-Marion shook her head, her laughter bubbling up again.
+Marion shook her head, laughing again.
 “Sonia, you’re telling me that your big academic discovery boils down to Atlantis being the world’s first BDSM dungeon?”
 
 Sonia snorted, leaning back on the couch.
@@ -1192,7 +1029,7 @@ She glanced at Marion, a sly grin tugging at her lips.
 
 Marion rolled her eyes, but her cheeks flushed slightly. “Okay, fair point. But still... this is wild.”
 
-“You don’t know the half of it,” Sonia said, her voice dropping to a quieter, more contemplative tone.
+“You don’t know the half of it,” Sonia said more quietly.
 “There’s so much we don’t understand yet.
 And that collar?”
 She nodded toward the desk, her gaze lingering on the object.
@@ -1201,7 +1038,7 @@ It’s not just symbolic.
 It’s a tool—maybe even a device.”
 
 Marion’s eyes followed Sonia’s to the collar,
-its chrome surface catching the light like a polished mirror, the colorful jewels faintly glinting.
+its chrome surface reflecting the light, its jewels glinting.
 She didn’t say anything, but the memory of the hum against her skin, the faint pull she’d felt, made her shiver.
 It had been strange and alluring, and even now, the thought of it both excited and unnerved her.
 
@@ -1213,82 +1050,59 @@ It is designed to... make people do things."
 
 Sonia smiled, turning to press a kiss to Marion’s temple.
 “Always,” she said, though her gaze lingered on the collar.
-Its allure was undeniable, its mysteries tantalizing.
-It wasn’t just an artifact; it was alive in a way that none of the other finds had been.
-
-As Marion rested her head against her shoulder,
-Sonia felt a subtle pull of her own—not just from the collar’s hum, but also from the questions it left in its wake.
-What was it meant to do?
-Why had it been made?
-And why did she feel that same faint thrill every time she thought about putting it around Marion's neck?
+Marion rested her head against Sonia’s shoulder. Sonia kept looking past her at the worktable. Earlier she had wanted to know what the collar did. Now she caught herself picturing it on Marion, and had to bring her attention back to the woman beside her.
 
 ## A Bad Girl Caned
 
 Sonia stared at the collar.
-It gleamed under the warm light, its surface immaculate, the jewels vivid and alive with color.
+Its polished surface and bright jewels caught the light.
 
-Marion pointed to the locking mechanism.
-She tried to come clear, her cheeks faintly flushed.
-"While you were gone, I have been doing... science," she said.
-“Look here,” Marion said, her finger hovering near the clasp.
+Marion pointed at the clasp rather than meet Sonia’s eyes.
+
+“While you were out, I did some… science.”
+
+“Science?”
+
+“Look here.” Marion kept her finger over the catch.
 “The grooves, the way the lines from the inside converge here—it’s clear the collar is meant to close.
 But it doesn’t.
 Not unless...”
 She hesitated, glancing at Sonia, her expression almost sheepish.
 “Not unless it’s worn.”
 
-Sonia’s head tilted slightly, her brow furrowing. “What do you mean?”
+Sonia frowned. “What do you mean?”
 
 Marion exhaled slowly, gesturing to the collar again.
 “It’s not broken.
 The locking mechanism works, but only when it’s around someone’s neck.
 It’s designed that way.”
 
-Sonia’s eyes narrowed, her gaze darting between Marion and the collar.
-“And how exactly do you know that?”
+Sonia looked from Marion’s hand to her face.
 
-Marion hesitated, her hand dropping to her side.
-“I... might have tested it.”
+“How do you know?”
 
-The silence between them was sudden and heavy.
-Sonia stared at her, the realization dawning in her eyes.
-“You tried it on,” she said, her voice low, each word clipped with tension.
-“A piece of ancient and live bondage technology that we don't understand.
-Alone.
-With no backup?”
+Marion let her hand fall. “I might have tested it.”
 
-Marion’s blush deepened, and she couldn’t meet Sonia’s gaze.
-“I was careful,” she said softly.
-I didn't touch it directly,", she claimed.
-And looked down.
-"Except when it was around my neck.
-But it didn’t lock.
-I wish...”
+Sonia stared at her.
+“You tried it on,” she said in a low, clipped voice. “While you were alone here.”
+
+“I was careful. I used the cloth.” Marion looked down. “Except round my neck, obviously. But it didn’t lock. I wish…”
 
 “You wish...”
 Sonia’s tone was sharper now, though she hadn’t raised her voice.
-“You put on an ancient artifact that we both feel is dangerous around your neck,
-without anyone here to help you if something went wrong?”
+“And if it had? Who was going to help you?”
 
 Marion looked down, her voice barely above a whisper. “I... I just wanted to see.”
 
-Sonia’s jaw tightened, and her next words came cold and precise.
-“Stupid little girl.
-I could have lost you.
-Were you even thinking?
-And if so, what?"
+Sonia tightened her jaw.
+“You stupid little girl. I could have lost you.” Sonia stopped, pressing her lips together. “What were you thinking?”
 
 She paused, clearly agitated.
 "I should cane you for this."
 
-Marion’s head snapped up, her blush spreading from her cheeks to her neck.
-Her stomach twisted painfully at the words, fear rippling through her.
-Sonia wasn’t often angry,
-and when she was, her punishments weren’t playful—they were strict, calculated, and incredibly painful.
-Marion could already feel the phantom sting of the cane across her skin,
-and her intestines seemed to cramp at the thought.
+Marion looked up. Sonia seldom sounded like this. The cane, when she meant it as punishment, was quite different from their games. Marion knew that, and knowing did nothing to settle her stomach.
 
-But then the fear pooled, spreading lower, where it burned hot and insistent.
+Her fear excited her too.
 She squirmed slightly, her voice trembling as she whispered the words, “I’m sorry, Sonia.
 I’ve been bad.”
 
@@ -1306,7 +1120,7 @@ Sonia let out a slow breath, shaking her head, though a small smirk tugged at th
 Mine alone.
 And I want to keep you, my cute little stupid.”
 
-Marion shivered at the words, the knot of fear and arousal tightening in her core.
+Marion shivered, afraid and aroused.
 Sonia’s hand reached out, brushing lightly against her jaw, tilting her face up.
 “You’re going to pay for this,” Sonia said softly.
 “And you’re going to love every second of it.
@@ -1314,14 +1128,13 @@ Eventually.
 I will make you work for it, though.”
 
 Marion didn’t respond, her breath hitching as Sonia’s thumb traced her lower lip.
-There was no need for words now.
-The path forward was clear, and Marion was more than ready to take it.
+Marion waited.
 
 
-Sonia worked with a calm, deliberate precision, tying each knot with care.
-Marion’s arms were bound behind her back, her wrists crossed and secured with soft but unyielding rope.
-Sonia was tying the wrist bondage to the crotch rope.
-Her legs were folded, ankles tied to the tighs.
+Sonia tied each knot with care.
+Marion’s arms were bound behind her back, her wrists crossed and held with rope.
+Sonia tied the wrist bindings to the crotch rope.
+Her legs were folded, ankles tied to her thighs.
 She propped Marion up, her ass conveniently up in the air,
 shoulders down on the sofa,
 the knees widely spread.
@@ -1354,24 +1167,21 @@ creating a pattern of glowing welts on Marion’s back and thighs.
 She moved with concentration, her face calm, her eyes never leaving Marion’s body,
 working herself into a rhythm.
 She was focused, not angry.
-This wasn’t punishment born of rage—rage was not Sonia's way.
-It was controlled, deliberate and exacting.
-And it was designed to hurt, not to please.
+She chose each stroke to hurt, not to please.
 
 Marion squirmed, the ropes digging into her as the strikes came faster.
 She moaned against the bit, her muffled sounds growing louder with each lash.
-Sonia’s cane left vivid red lines in its wake, crossing over tender skin.
+The cane left red lines across Marion’s skin.
 Marion’s breathing quickened, her muscles trembling as the pain built.
 
 But Sonia didn’t stop.
 She knew exactly where Marion was, how far she could go, and where she could place the next welt.
-Close enough to that vulnerable slit between Marion's spread and boound legs to make her panic,
+Close enough to that vulnerable slit between Marion's spread and bound legs to make her panic,
 but not actually hitting there with a cane.
 
 How far she had to go, to break through Marion's ability to eroticize the pain,
 to drive the message home.
-She could feel Marion’s limits approaching, could sense the breaking point,
-when the moans turned into tears, before Marion herself could.
+She sensed Marion nearing her limit as the moans turned to tears.
 
 The tears came suddenly, spilling over as Marion’s muffled cries turned into soft, shuddering sobs.
 Her body sagged in the ropes, her head drooping forward as she surrendered completely.
@@ -1391,56 +1201,41 @@ Sonia stroked her hair, her other hand running lightly over Marion’s back, avo
 “You took so much for me.
 I’m so proud of you.”
 
-Marion’s sobs softened, her breathing slowing as Sonia continued to hold her, murmuring words of comfort and praise.
+Marion’s sobs eased as Sonia held and comforted her.
 “That’s my good girl,” Sonia said, pressing a kiss to Marion’s temple.
 “You’re safe now.
 I’ve got you.”
 
 They stayed like that for a long time,
-tangled together on the floor, Sonia’s hands gentle as they traced soothing circles over Marion’s skin.
+tangled together, Sonia’s hands gentle as they traced soothing circles over Marion’s skin.
 The pain had ebbed into a dull throb, but Marion felt safe, grounded, and deeply loved.
-Sonia’s voice, her touch, her presence—it was everything Marion needed to bring her back, whole and cared for.
+Marion held on to her.
 
 ## The Secret Unlocked
 
-The morning sun streamed through the window, filling the living room with a kaleidoscope of light.
-The collar sat where Marion had left it,
-its chrome surface scattering the sunlight into a burst of colors that danced across the walls.
-It gleamed almost ethereally, a piece of ancient technology that seemed far too beautiful, and far too ominous,
-to belong in their little apartment.
-The hum was subtle but undeniable now, vibrating faintly in the air.
-It seemed alive, a presence that demanded attention.
+Patches of reflected color lay on the living-room walls. The collar was still where Marion had left it, humming among the ordinary things on the table.
 
 Marion stirred first, stretching lazily before glancing at the collar.
 She blinked, rubbing her eyes.
 “It’s so... pretty,” she murmured, her voice still thick with sleep.
 
-Sonia sat up beside her, her gaze following Marion’s.
-“Pretty,” she echoed, though there was a tension in her voice.
-“And dangerous.”
+Sonia sat up and followed her gaze. “You said dangerous yesterday.”
 
 Marion turned to her, a faint smile playing on her lips. “We don’t know that.”
 
-“You told me it is,” Sonia countered, but even as she spoke, her eyes lingered on the collar.
-She could feel the pull, the way it seemed to call to them both, offering promises they couldn’t quite understand.
-Almost against her will, she found herself saying, “Okay.
-We could try.
-You already did, didn’t you?”
+“You were the one warning me.” Sonia meant to leave it there. Instead she kept looking at the clasp. “You already tried it, though.”
 
 Marion nodded hesitantly, her cheeks flushing slightly. “Yeah. But it didn’t do anything. It won’t close. I told you.”
 
 Sonia swung her legs over the edge of the couch, standing and motioning for Marion to do the same.
 “Let’s try again.
 This time with me here.”
-She told herself this was science.
-And it would be safe with her around.
-She was the clear-headed one of them two, wasn't she?
-The one that took the responsibility for both of them so that Marion could let go and drop.
+She would watch what happened. That was the difference, she told herself: Marion would not be alone this time. One of them would remain clear-headed. It was usually her.
 
 Marion nodded eagerly, retrieving the collar carefully, wrapping it in cloth.
 Sonia watched closely as Marion stepped in front of the mirror, lifting the collar to her neck.
 She hesitated for a moment, then snapped it shut around her throat.
-The hum grew slightly louder, as if acknowledging the contact.
+The hum grew louder at the contact.
 
 But the clasp didn’t lock.
 It clicked shut, but when Marion tugged lightly, it fell open again.
@@ -1449,7 +1244,7 @@ It clicked shut, but when Marion tugged lightly, it fell open again.
 
 “Wait,” Sonia interrupted, taking the collar from Marion’s hands.
 She turned it over in thought.
-“What’s a slave without an owner?” she murmured, more to herself than to Marion.
+“What’s a slave without an owner?” she murmured.
 
 Marion tilted her head, confused. “What are you talking about?”
 
@@ -1463,7 +1258,7 @@ Slowly, she raised it to Marion’s neck.
 
 The moment the collar touched her skin, the hum intensified, and Marion shivered involuntarily.
 Sonia snapped the halves together, and this time, there was a distinct click.
-The locking mechanism engaged, smooth and final, and the collar stayed shut.
+The lock engaged. The collar stayed shut.
 
 At the same time, a small metallic ring embedded into the clasp fell loose, landing in Sonia’s palm.
 She stared at it, her heart pounding.
@@ -1473,34 +1268,27 @@ Marion touched the collar tentatively, her fingers brushing over the smooth surf
 
 Sonia nodded, her gaze fixed on the ring in her hand.
 “It locked,” she repeated softly.
-The hum was stronger now, resonating through the room, a tangible force that seemed to envelop them both.
+The stronger hum filled the room.
 
 Marion turned to Sonia, her eyes wide. “What now?”
 
-Sonia met her gaze, her expression unreadable.
-“Now,” she said, her voice steady, “we find out what this thing really does.”
+Sonia looked from the ring to Marion.
 
-Sonia stood silently, watching Marion with sharp, attentive eyes.
-The collar gleamed around Marion’s neck, the blue jewels subtly pulsing as if alive,
-their faint glow shifting with the rhythm of the hum at the speed of a heartbeat.
-Sonia hadn’t taken her eyes off Marion since the collar locked into place, and her voice was calm but firm as she spoke.
+“Now we find out.”
+
+Sonia watched the blue jewels pulse against Marion’s throat. The rhythm was slow enough to count. She kept her voice level.
 
 “Kneel,” Sonia said.
 
-Marion didn’t move.
-Her brow furrowed slightly, and she opened her mouth as if to respond, but then closed it.
-There was no immediate reaction, no compulsion.
-She glanced at Sonia, her expression confused.
+Marion stayed where she was. She opened her mouth, thought better of whatever she had been about to say, and looked at Sonia.
 
-“It’s not doing anything,” Marion said after a moment.
-Her voice was steady, but there was a faint tremor, a hint of something unsettled.
+“Am I supposed to feel something?” she asked. “Because I don’t.”
 
 Sonia frowned thoughtfully, then looked down at the ring in her palm.
 Slowly, she slipped it onto her finger.
 The moment the cool metal touched her skin, the hum in the room shifted, growing slightly louder, more focused.
-Sonia felt a faint, almost imperceptible tingle run through her hand.
-There was an energy, a bond forming, stretching between the ring and the collar.
-Between Sonia and Marion.
+Her hand tingled.
+She felt a bond form between the ring and the collar, between herself and Marion.
 
 “Marion,” she said again, her voice carrying more authority now. “Kneel.”
 
@@ -1516,37 +1304,33 @@ The pull intensified.
 “Like... like everything is wrong unless...”
 She trailed off, frowning as she took another step, her movements hesitant and slow.
 
-Sonia watched, her heart pounding as Marion’s struggle became more visible.
-Each step seemed to sap her strength, her body moving as if through molasses.
+Sonia watched Marion struggle.
+Each step took more strength than the last.
 Marion’s face tightened with concentration, her hands curling into fists as she pushed against the invisible pressure.
 The hum grew louder, disorienting and unrelenting,
 and the faint pull became more pronounced, almost like a physical weight pressing on her.
 
-“I can resist it,” Marion said, though her voice was weaker now. “It’s just... exhausting.”
+“I can still choose,” Marion said. She had to stop for breath. “It’s just such hard work.”
 
 She took another step, but her movements were sluggish, her breaths coming faster.
 She hesitated, then bent her knee slightly, as if testing something.
 The moment she did, the hum softened, the pressure easing just enough for her to catch her breath.
 Marion’s eyes widened, and she straightened again, only to feel the pull intensify once more.
 
-It was a battle, a slow wearing down of her will.
-Each movement against the pull cost more energy, more focus, until her body trembled from the effort.
-The hum was everywhere, gnawing at her thoughts, making it harder to concentrate.
+Each movement against the pull took more effort, until she trembled.
+The hum made it harder to concentrate.
 Her limbs felt heavy, her mind foggy.
 
 Finally, Marion let out a shaky breath and gave in. She dropped to her knees.
 
 The moment her knees hit the floor, the hum changed again, softening into something gentle, almost melodic.
 The tension in the air vanished, and Marion let out a soft, involuntary sigh.
-The colors around her seemed brighter, her mind clearing as if a weight had been lifted.
+The colors around her seemed brighter, her mind clearing.
 Happiness bubbled through her, warm and unbidden.
 She knelt further, assuming a pose of reverent attention, her hands resting on her thighs, her head slightly bowed.
 Everything felt right, as if this was exactly where she was meant to be.
 
-Sonia observed the transformation, her analytical mind racing.
-Marion had seemed locked in her own world, struggling against an unseen force for almost five minutes.
-But now, kneeling before her, Marion was calm, focused, her entire being centered on Sonia.
-It wasn’t just submission—it was devotion.
+Almost five minutes. Sonia had watched Marion fight for almost five minutes, and now Marion was looking at her as if nothing had been wrong. No reproach. No request to stop.
 
 Sonia crouched in front of Marion, her hand hovering near the collar as her gaze searched her girlfriend’s face.
 Her cheeks were flushed, her eyes wide and shining as they looked at Sonia.
@@ -1561,20 +1345,15 @@ Only Obedience feels so good.”
 Her expression softened further, her gaze unwavering.
 “I’m a good girl.”
 
-Sonia’s breath caught at the words, her grip on the situation slipping for a moment before she composed herself.
-Whatever this collar was, it was more than a relic.
-It was alive, in its own strange way.
-And now, so was something else between them.
+Sonia had expected a joke, perhaps a complaint about her knees. Marion simply waited for her next word.
 
 Sonia studied Marion, who was still kneeling reverently before her.
 The collar gleamed under the morning sun, pulsing faintly with its soft heartbeat rhythm.
-Even when not commanding, she could feel the bound, and her power over Marion,
+Even when not commanding, she could feel the bond, and her power over Marion,
 she could see the devotion in her eyes.
 This is what an ancient goddess must have felt when her worshippers knelt before her altar,
 hands raised in supplication.
-Sonia’s heart was racing, though she wasn’t entirely sure why.
-No.
-She knew exactly why, she just didn't like the cause.
+Sonia knew why her heart was racing. She did not like to admit it.
 
 She swallowed hard and asked, “Can you take it off?”
 
@@ -1583,14 +1362,11 @@ Marion blinked slowly, her head tilting slightly, as if the question didn’t qu
 
 “The collar,” Sonia clarified. “Can you take it off?”
 
-For a moment, Marion looked as though she didn’t understand the question.
-Then her confusion melted into something close to panic.
-“The collar?” she repeated, her voice rising slightly.
-“No.
-Please, no.
-Not the collar.”
+Marion’s hands closed over her thighs.
 
-Sonia recoiled at the sudden desperation in Marion’s tone. “Marion—”
+“No. Not that.” Her voice rose. “Please, Sonia. Don’t.”
+
+Sonia recoiled at Marion’s desperation. “Marion—”
 
 “It’s not meant to... please don’t.”
 Marion’s words spilled out in a rush,
@@ -1598,9 +1374,7 @@ her hands clenching into fists against her thighs as she looked up at Sonia, her
 “Please, Sonia.
 Don’t take it off.”
 
-Sonia froze, taken aback by the intensity of Marion’s reaction.
-Her girlfriend, normally so composed even in their games, looked like she was on the verge of tears.
-A knot formed in Sonia’s chest—part guilt, part something else she couldn’t name.
+Sonia had only asked a question. Now Marion looked close to tears, and some part of her still wanted to hear another obedient answer. She did not trust herself to speak at once.
 
 “Bend your neck, please,” Sonia said firmly, masking her unease.
 
@@ -1615,27 +1389,21 @@ It aligned perfectly with a small recess near the clasp, sinking into place wher
 There was a soft click, and the collar sprang open.
 
 Sonia pulled it away quickly, wrapping it into its protective cloth again.
-The hum stopped immediately, the room falling into a strange, oppressive silence.
+The hum stopped. Neither woman spoke.
 
 Marion lifted her head slowly, her expression dazed and hollow.
 Her eyes followed the wrapped collar as Sonia stepped back.
 Without it, her posture slumped slightly, and her movements seemed heavier, less deliberate.
 She looked at Sonia, then back at the collar, her gaze filled with longing.
 
-“Please,” Marion whispered, her voice barely audible.
-“Can you put it on again?"
-Then, again, with a whine in her voice.
-"Please, Sonia?”
+“Put it back?” Marion whispered. When Sonia did not answer, she tried again. “Please.”
 
-Sonia’s breath caught.
-The way Marion’s voice trembled, the naked need in her tone—it hit something deep inside her.
-For a split second, she considered it, felt the urge to obey that plea,
-to slip the collar back around Marion’s neck and feel its power hum between them again.
+The collar was still in Sonia’s hands. She would only have to turn it round, lift it once more. Marion was asking her to.
 
 Instead, she turned away, walking to her desk.
 She opened the drawer, carefully setting the collar inside, and closed it with a deliberate finality.
-The metallic snick of the lock felt loud in the quiet room.
-Sonia pocketed the key, her hand tightening around it as though it might burn her if she let it go.
+The drawer lock clicked.
+Sonia pocketed the key and gripped it.
 
 When she turned back to Marion, she saw the emptiness in her eyes.
 Marion’s shoulders sagged, and she sat back on her heels, staring at the floor.
@@ -1654,12 +1422,7 @@ But it was wrong.
 
 Or was it?
 
-Sonia’s fingers brushed against the key in her pocket, her mind racing.
-No, she told herself.
-This wasn’t just about what it made her feel.
-The collar was powerful, and it was dangerous.
-It wasn’t just addictive for Marion—it was seductive for her, too.
-And that was the most unsettling part.
+Sonia touched the key in her pocket. She had put the collar away because of what it was doing to Marion. That was true. It was also easier to think about Marion’s longing than her own.
 
 Sonia stepped closer to Marion, kneeling to take her face gently in her hands.
 “We’re done with it for now,” she said softly.
@@ -1668,29 +1431,21 @@ With or without it.”
 
 Marion nodded faintly, but her eyes flicked once more toward the desk, her longing unhidden.
 Sonia kissed her forehead, holding her close, but her own thoughts churned.
-She had locked it away, yes—but the collar’s hum, its pull, still echoed in the back of her mind.
+Even with the collar locked away, she kept thinking about it.
 
 Later that evening, Sonia lay in their four-poster bed, her arm draped protectively around Marion,
 who nestled close, her head resting on Sonia’s chest.
 Marion’s breath came slow and steady, her body warm and pliant in the stillness of the night.
 Sonia stared up at the ceiling, her fingers trailing absently through Marion’s hair.
-The weight of the day pressed down on her,
-scattered moments replaying like a broken reel—the desperation in Marion’s voice when she begged for the collar,
-the hollow sadness that lingered after it was removed.
+She remembered Marion begging for the collar, then looking so empty without it.
 
-It wasn’t just the collar. It was what it awakened in them both. The connection it forged. The spell it cast.
+She missed their connection too.
 
-Sonia’s fingers brushed the key in her pocket, the small, jagged edges biting lightly into her thumb.
-It was where the collar sat now, locked away but far from forgotten.
-Those sharp edges grounded her, a reminder of what was real.
-She missed the power it gave her—not the raw, brutal domination it hinted at, but the purity of Marion’s focus.
-The way Marion had looked at her, adored her, worshipped her.
-Sonia had never felt so central, so completely in someone’s world.
+She found the key through her pocket and pressed her thumb against its teeth. The drawer was locked. Yet she could remember exactly how Marion had looked up at her: no distraction, no hesitation, nothing else she wanted. Sonia had never had anyone’s attention so completely.
 
 The memory came unbidden: Marion kneeling, eyes wide,
 radiating a devotion so complete it sent a shiver down Sonia’s spine.
-That unrestrained surrender, that purity of purpose—it was exhilarating.
-It was intoxicating.
+She wanted that surrender again.
 
 And it was wrong.
 
@@ -1710,54 +1465,42 @@ Their dynamic wasn’t about absolute control; it was about crafting something s
 
 But the collar was different.
 
-It wasn’t about balance.
-It wasn’t about trust.
-It stripped away the careful foundation they had built.
-It offered unyielding power, the ability to control without question or hesitation.
+It threatened the trust they had built.
+It offered power Marion could not question.
 It demanded surrender—not from Marion, but from Sonia herself.
-It urged her to abandon her own rules, to wield authority without accountability, without restraint.
+It urged her to abandon her rules and take control without answering to Marion.
 
 And it felt good. Too good.
 
 Sonia closed her eyes, the key digging into her palm now.
-The collar whispered to her, tugged at her, calling her to embrace what it offered.
-The pull was undeniable.
-It wanted her to give up her own restraint and lean into its influence.
+She wanted its power. That frightened her.
 
 She exhaled sharply, her body tense against the soft comfort of the bed.
-Her grip on the key tightened as if holding it might anchor her, keep her from spiraling.
+She gripped the key harder.
 She couldn’t give in.
 Not to that.
 Not to it.
 
-Marion shifted against her in her sleep, her warmth a reminder of everything real and grounding.
+Marion shifted against her in her sleep.
 Sonia focused on that—the steady rhythm of Marion’s breathing, the trust implicit in her touch.
 She couldn’t let the collar warp what they had built together.
 She wouldn’t.
 
-Sleep came slowly, dragging Sonia into restless dreams.
+When Sonia slept, she dreamed restlessly.
 Dreams of taking what was not given, of violent domination and absolute power.
 
 Sonia woke with a start, her chest heaving, her body covered in a fine sheen of sweat.
 Marion was still asleep beside her, curled into her side, her breath warm against Sonia’s skin.
 Sonia’s hand flew to her pocket, gripping the key tightly as her mind raced.
-The dream lingered, vivid and visceral,
-the memory of power and surrender tangled together in a way that left her shaken.
+She remembered the dream and shuddered.
 
 She looked down at Marion, her peaceful face glowing faintly in the morning light,
 and whispered, “What are you doing to me?”
 The words were meant for the collar, but she wasn’t sure if she was asking it—or herself.
 
-
 ## Poltergeist
 
-Sonia walked into the university’s archaeology department Monday morning,
-her satchel slung over one shoulder and her thoughts a tangle of the weekend's events.
-Nate and Carla were waiting near the coffee machine in the corner of the break room,
-both looking unusually animated for this early hour.
-Carla, predictably, was perched on the edge of the table,
-her hands flying as she talked, while Nate leaned against the counter,
-arms crossed, a look of amused resignation on his face.
+On Monday morning, Sonia found Carla perched on the break-room table, talking with both hands. Nate leaned against the counter beside the coffee machine. It was too early for either of them to look this awake.
 
 “Sonia!” Carla called out, her voice carrying. “You’re not gonna believe this.”
 
@@ -1765,34 +1508,17 @@ Sonia forced a smile and approached, setting her bag down casually on a nearby c
 “Morning to you too,” she said lightly.
 “What’s got you both so worked up?”
 
-“Artifacts,” Nate said, his voice calm but his eyes sparkling with excitement. “Some of them activated yesterday.”
+“Artifacts,” Nate said, trying to sound calm. “Some of them activated yesterday.”
 
-Sonia’s pulse quickened.
-She fought to keep her expression neutral as she poured herself a cup of coffee.
-“Activated?” she asked, feigning confusion.
-“What do you mean by that?”
+Sonia turned to the coffee machine before answering.
 
-“Girl, it was wild,” Carla cut in, practically vibrating with energy.
-“So you know how some of the stuff we pulled out has that weird discoloration?
-Like, how the black gunk’s coming off, and it’s all shiny underneath?
-Well, turns out, it’s not just shiny—it’s...
-I don’t know, alive or something.
-Yesterday, late morning, a couple of the artifacts started humming.
-And glowing!
-Like, actual lights coming out of ancient metal.
-I was ready to start throwing salt and chanting.”
+“Activated how?” She kept her eyes on the cup.
 
-Nate rolled his eyes.
-“Ignore her drama,” he said, though his tone was good-natured.
-“But she’s not wrong.
-Some of the artifacts we’ve restored—cleaned, exposed to sunlight, all that—showed activity yesterday around eleven.
-It was subtle at first—faint vibrations, light flickers—but it was real.”
+“You know the black gunk we’ve been taking off?” Carla said. “Well, underneath it the things light up. And hum. Yesterday, late morning. I was about ready to fetch salt and start chanting.”
 
-Sonia gripped her mug tightly, her knuckles whitening.
-Eleven.
-That was when she had locked the collar around Marion’s neck.
-It’s connected, she thought.
-But I can’t tell them that.
+“The cleaned ones,” Nate said. “The pieces we’d exposed to sunlight. Around eleven yesterday there were vibrations and flickers of light.” He glanced at Carla. “No chanting.”
+
+Eleven. Sonia held the mug with both hands. She had been fastening the collar round Marion’s neck then. She could give them the missing part of their story, if she were willing to explain what she had taken home.
 
 “What kind of activity?” she asked, forcing a casual tone. “And which artifacts are we talking about?”
 
@@ -1800,19 +1526,19 @@ But I can’t tell them that.
 “Artifact sixty-nine—yeah, I know, nice number for a C-belt—and artifact three-seventy-two.
 The cyber-chastity belt and the punishment heels.”
 
-“Carla,” Nate groaned, running a hand through his hair. “Can you not?”
+“Could we use the catalog names?” Nate asked.
 
-“What?” Carla shot back, raising her hands in mock innocence. “That’s what they are! You’ve seen them.”
+“I am using the catalog numbers. You’ve seen the objects.”
 
 Sonia frowned, her curiosity piqued despite herself. “Cyber-chastity belt? Punishment heels?”
 
 Carla smirked, gesturing as she spoke.
 “Okay, so artifact sixty-nine is this set of metal panties—lockable, rigid, but with these weird internal mechanisms.
-We officially haven’t figured out what they’re for yet, but it's kinda anatomically obvious it's not ritual purposes.
+Officially, its purpose is unknown. Unofficially, have a look at the shape.
 And artifact three-seventy-two is a pair of ankle-breaking heels, like, sky-high stilettos with lockable ankle straps.
 I tried them on once just for fun, and they’re impossible to walk in.”
 
-“You what?” Nate interrupted, exasperation written all over his face. “You’re going to get us fired one of these days.”
+Nate straightened away from the counter. “You tried them on? Carla, do you want us fired?”
 
 “Oh, relax,” Carla said, waving him off.
 “It was weeks ago, and nothing happened.
@@ -1822,39 +1548,24 @@ They lit up.
 Little blue lines along the straps and the soles.
 I half-expected them to start walking on their own.”
 
-Sonia’s mind raced, trying to piece it all together.
-The timing couldn’t be a coincidence.
-The collar and the other artifacts—they were connected, somehow part of a larger system.
-A system that was waking up.
+Sonia tried to find another explanation for the timing. She could not. Somehow the collar at home belonged to the same system as these things.
 
-“And this all started at the same time?” Sonia asked, her voice steady despite the storm in her head.
+“And this all started at the same time?” Sonia asked, trying to sound calm.
 
-“Pretty much,” Nate said.
-“Give or take a few minutes.
-It’s incredible, honestly.
-Five-thousand-year-old artifacts, and they’re still functional?
-This changes everything we thought we knew about ancient technology.”
+“Within a few minutes,” Nate said. “Five thousand years, Sonia. And we’re standing here discussing which ones work.”
 
 “Yeah,” Carla added, grinning.
 “Forget pyramids and aqueducts.
 These guys were building high-tech chastity belts and designer torture heels.
 Priorities, right?”
 
-Sonia forced a laugh, but her stomach churned.
-The artifacts weren’t just technological marvels—they were designed for control, submission, and restraint.
-And now, somehow, they were waking up.
-She needed answers.
-But for now, she could only nod along, keeping her secret buried as the weight of her discovery pressed down on her.
+Sonia gave the laugh Carla expected. She had come in hoping to get through an ordinary Monday; now she was listening for anything she could use without explaining why she needed it.
 
-Sonia sat at her desk, the catalog open on screen before her on her workstation,
-a knot tightening in her stomach with each entry she read.
-The collar had been only the beginning.
-But the further she delved into the catalog, the more the true nature of the artifacts became disturbingly clear.
+At her desk, Sonia read the artifact catalog with growing unease.
+The collar was one of many devices built to control people.
 
-As she scrolled, the images became more disquieting.
-A set of intricate wrist shackles,
-still covered in the grime of millenia,
-hinting at internal mechanisms to lock or unlock them.
+She scrolled through the images.
+Wrist shackles lay under millennia of grime, their seams suggesting locks inside.
 Anklet cuffs, their edges lined with groves that might become glowing lines, as they did on the collar.
 Elbow shackles designed to bind the arms tightly behind the back.
 Thigh bands that paired seamlessly with chastity belts, forcing the knees chastely together.
@@ -1865,35 +1576,26 @@ Metal blindfolds etched with patterns that shimmered faintly when exposed to lig
 Then there were the inserts—Sonia’s stomach churned as she flipped past them.
 They came in every imaginable shape and size, and for all orifices.
 
-Her eyes drifted to the numbers: hundreds of artifacts cataloged, meticulously photographed, and stored.
-The sheer volume of it was staggering.
+The team had cataloged, photographed, and stored hundreds of artifacts.
 Whoever these people had been, control and restraint weren’t just a part of their lives—they had been an obsession.
-A society ruled by domination and submission,
-by technology that didn’t just restrict the body but seemed to command the mind.
+Their technology restrained the body and seemed to control the mind.
 
-Sonia rubbed her temples, her breath shallow.
+Sonia rubbed her temples.
 She couldn’t stop thinking about the collar, about the way Marion had looked at her,
 the way the hum had resonated through her body like it belonged there.
-And last night—her dreams had been more vivid, more intense, than anything she’d ever experienced.
-Dreams of power, of submission, of a pull she couldn’t resist.
+Last night she had dreamed of that power.
 
-Her hand hovered over the keyboard.
-Checking out items for restoration would require paperwork, and paperwork left a trail.
+She could check the pieces out for restoration. There would be a form, a name beside each number. Her name.
 
-But manipulating the database?
-That was something else entirely.
-She hesitated, her fingers trembling as she considered the consequences.
-
-Then she took a deep breath and began typing.
+Sonia moved the cursor back to the catalog records. For a while she did nothing. Then she began deleting.
 
 It took her only a few minutes to erase the records for a handful of artifacts:
 a chastity belt, its matching thigh bands, and a set of shackles for the wrists and elbows.
-They weren’t the most complete or pristine examples in the collection,
+They weren’t the best-preserved examples in the collection,
 but they were intact enough to serve her purposes—whatever those might turn out to be.
 
-The storage room was quiet when Sonia stepped inside, the cool air wrapping around her like a shroud.
-Shelves upon shelves of carefully labeled artifacts stretched into the dim light,
-each one a testament to a civilization long gone.
+Sonia entered the quiet, cool storage room.
+Labeled artifacts filled the shelves.
 She moved quickly, scanning the labels for the items she’d flagged.
 
 Her heart raced as she found them one by one.
@@ -1905,20 +1607,15 @@ At the back of the storage room, near the janitor’s supplies, she opened the d
 The shelves inside were cluttered with old equipment and forgotten tools—perfect for hiding something she wasn’t ready to claim.
 Sonia placed the artifacts on the lowest shelf, pushing them as far back as she could.
 
-She stepped out of the closet and closed the door, her breath shaky.
-It wasn’t theft—not yet.
-It could still be a mistake, a clerical error, something she could explain away if necessary.
-But deep down, she knew better.
-She had crossed a line.
+She closed the closet and left her hand on the handle. The pieces were still in the building. She could put them back. She had been careful enough with the records that she might even call it a clerical error.
 
-As she walked away, her footsteps echoing in the empty corridor,
-she tried to convince herself she could still stop, that she didn’t have to go any further.
-But the hum of the collar, the pull of the artifacts, and the memory of Marion’s gaze lingered in her mind.
+All that care was rather difficult to explain to herself.
 
-Sonia sat at her desk, her eyes fixed on the glowing screen before her, but the words blurred into an indistinct haze.
-Her fingers hovered over the keyboard, motionless, as the hum seemed to vibrate faintly in her ears.
-It wasn’t real—not here, not now—but it might as well have been.
-The memory of the collar’s presence was impossible to shake, echoing in her mind like a half-forgotten melody.
+Walking away, she told herself she could still stop.
+But she kept thinking about Marion in the collar.
+
+Back at her desk, Sonia stared at the screen. She could almost hear the collar, though it was at home.
+Her hands hovered over the keyboard.
 
 Her thoughts drifted, unbidden, to Marion.
 Marion kneeling before her, the collar gleaming around her neck, her eyes wide with submission and longing.
@@ -1933,175 +1630,123 @@ She could see it so clearly: Marion looking up at her, her lips trembling with b
 Hope for release, for the touch that would grant her freedom—but also hope to be denied,
 to feel Sonia’s power hold her there, on the edge, tormented and utterly devoted.
 
-The rush hit Sonia like a tidal wave.
-Control.
-Absolute control.
-The kind of control that left no room for resistance, no possibility of rebellion.
-It wasn’t just physical—it was emotional, psychological, even spiritual.
-Marion’s body might be bound by the artifacts, but her heart and soul belonged entirely to Sonia.
-The idea was intoxicating, more potent than anything Sonia had ever felt before.
+She wanted complete control of Marion, beyond what any restraint could give her.
+The thought excited her more than she wanted to admit.
 
-She squeezed her eyes shut, trying to banish the images, but they clung to her like shadows.
-The hum grew louder in her mind, the memory of Marion’s gaze searing into her thoughts.
+She closed her eyes, but still pictured Marion looking up at her.
 She could almost feel the weight of the ring in her hand again,
 the cool metal that had bridged the connection between them.
 
-This is wrong, she told herself, the words like a mantra. This isn’t us. This isn’t what we are.
+This is wrong, she told herself. This isn’t us.
 
 Sonia forced herself to breathe deeply,
 muttering under her breath, “To control others, you must first learn to control yourself.”
 
-Her mother’s words felt like a lifeline, something to ground her against the storm inside her.
-Sonia gripped the edges of her desk,
-focusing on the rough texture of the wood, the faint hum of the air conditioner,
-the click of keyboards from the office down the hall.
-She counted her breaths, each one a small victory over the temptation that clawed at her.
+She held the edge of the desk until she could feel the grain under her fingers. Down the hall, someone was typing. The air conditioner ran on. She counted her breaths and tried to attend to those ordinary sounds.
 
 The fantasies weren’t new.
 Sonia had always harbored a quiet fascination with restraint and power dynamics.
 But this—this was different.
 It wasn’t playful or consensual, not the way it had been before.
 The collar had twisted it into something darker, more insidious.
-It wasn’t about sharing an experience or deepening their connection.
-It was about domination.
-Control.
-Ownership.
-The kind that didn’t ask for permission.
+She did not want a shared experience. She wanted to own Marion without asking permission.
 
-Sonia opened her eyes, staring at the blank page on her screen.
-Her heart still pounded, her thoughts still raced, but she forced herself to focus.
-One step at a time, she told herself.
-One breath at a time.
+She opened her eyes. The page on the screen was still blank. For all the effort of sitting here, she had done no work.
 
-But as the day wore on, the pull didn’t weaken.
-It lurked at the edge of her consciousness, whispering to her,
-calling her back to the artifacts, to the collar, to Marion.
+As the day wore on, she kept returning to the collar and what she could do with it.
 
 ## Coming clean
 
-Sonia stared at her phone on the desk, her thumb hovering over the call button.
-She had pulled up Marion’s name instinctively, her fingers moving on autopilot,
-but now she hesitated, paralyzed by the weight of her own thoughts.
+Marion’s number was on the screen. Sonia had opened it before she knew what she wanted to say, and now her thumb rested beside the call button.
 
 What could she even say?
 
 "Hey, Marion,
 I can’t stop fantasizing about locking you in a chastity belt and keeping the key while you beg me for release?"
 
-The absurdity of it struck her, and she let out a small, humorless laugh.
-The thought alone made her stomach twist in guilt.
-Marion would probably be intrigued—hell, she’d probably be into it.
-She’d laugh, tease Sonia about her “archaeological kink,”
-and then, knowing Marion, she’d say something flirty and bold, offering herself up as the keyholder’s first experiment.
+She almost laughed. Marion would probably make a joke about her archaeological kink, then want to hear more. That was what made the call so difficult.
 
 And that was the problem, wasn’t it?
 It wasn’t just about the acts.
 Their play—ropes, crops, even the more intense nights with wax or pain—had always been built on trust,
 care, and an unspoken agreement to never take themselves too seriously.
 They could play hard, but they always checked in, their connection never faltering.
-Marion’s teasing would break the tension, Sonia’s jokes would ease the sting of a moment,
-and their laughter would bind them together even when one of them was tied up and gasping for breath.
+Even during their hardest play, they could make each other laugh.
 
 But this...
 
-Sonia gripped the edge of her desk, her knuckles whitening.
+Sonia gripped the desk.
 This wasn’t playful.
 It wasn’t compassionate.
 When the hum had her in its grip, when the fantasies took hold, they were nothing like the nights they shared.
 
-They were dark, consuming, and utterly devoid of humor or balance.
+There was no humor in them.
 
 In those dreams, Marion wasn’t just her partner—she was her possession.
 Her body, her mind, her pleasure, her pain—it all belonged to Sonia.
-There were no jokes, no lighthearted banter to break the spell.
-Just control.
-Absolute, unrelenting control.
+She wanted control without interruption.
 
 And Marion’s surrender wasn’t the enthusiastic, consensual submission they shared in their scenes.
-It was total.
-Silent.
-Devoted.
+It was silent and complete.
 It scared Sonia how much she had enjoyed the thought of it.
 
-The phone screen dimmed to idle, the glow fading as her finger froze above it.
-She wanted to tell Marion, to confess the way these thoughts had gripped her.
-But how could she do that without tainting everything they had built together?
-Without Marion looking at her differently, or worse, without Sonia looking at herself differently?
+The phone screen dimmed beneath her finger.
+She could tell Marion. Then she would have to hear the words aloud and wait for an answer. There would be no taking them back if Marion heard something in them she had never heard before.
 
 Her gaze drifted to the window, where the late afternoon light filtered through the blinds,
 casting striped shadows across the room.
-The memories of last night and the collar's pull felt like a shadow too,
-clinging to her, whispering that she could go further.
+She could not stop thinking about going further.
 
 Marion’s face flashed in her mind—not the playful, smiling Marion she loved, but the Marion from her dreams.
 Kneeling.
 Bound.
 Looking up at Sonia with wide, pleading eyes.
 
-The rush of power that thought brought made Sonia’s stomach churn again, a sick twist of exhilaration and guilt.
+The thought excited her, then made her feel sick.
 
 This isn’t who I am, she thought, squeezing her eyes shut. This isn’t who we are.
 
 And yet...
 
-She could still hear the faint hum, feel the memory of Marion’s submission wrapped around her like a second skin.
+She could still remember the hum and Marion’s submission.
 She closed her laptop and rested her forehead in her hands.
-She needed to find a way to talk to Marion about this,
-to ground herself in the relationship they had rather than the fantasies that threatened to consume her.
-But how could she admit these feelings without risking what they’d built together?
-How could she explain that it wasn’t the acts themselves, but the darkness behind them, that unsettled her?
+She needed to explain the part that frightened her. Marion might hear the things she wanted to do and mistake the confession for an invitation.
 
-Her phone buzzed on the desk, a text from Marion lighting up the screen. *Dinner tonight? Miss you.*
+Her phone buzzed with a text from Marion. *Dinner tonight? Miss you.*
 
-Sonia exhaled slowly, picking up the phone and typing back. *Miss you too. Dinner sounds perfect. Can’t wait.*
+Sonia typed, *Miss you too. Dinner sounds perfect. Can’t wait.*
 
-She set the phone down, her hands trembling slightly.
-Marion deserved honesty.
-No matter how dark that would be.
+She read it again before setting the phone down. Tonight, then. She owed Marion more than that easy answer.
 
 The smell of garlic, butter, and thyme greeted Sonia as she stepped into the apartment.
-The familiar scents were comforting, but tonight, they felt heavy with anticipation.
+Usually the smell comforted her. Tonight she was too anxious.
 Marion was at the stove,
 dressed casually in a loose sweater that hung just off her shoulder, her hair tied back in a messy knot.
-A bottle of red wine stood open on the counter, breathing, its deep crimson color catching the warm kitchen light.
+A bottle of red wine stood open on the counter.
 
 “Perfect timing,” Marion said, flashing Sonia a smile as she stirred something in a pan.
 “Dinner’s almost ready.
 How was work?”
 
-“Busy,” Sonia replied, her voice catching slightly.
-She set her bag down by the door, her heart already sinking into the warmth of their home.
-The weight of her day felt heavier here, but she forced a small smile.
-“And I see you’ve outdone yourself.”
+“Busy.” Sonia put her bag down and looked at the table rather than Marion. “You’ve outdone yourself.”
 
 Marion grinned, motioning toward the small dining table already set with plates and candles.
-“Simple, not outdone.
-Roast chicken, a little ratatouille, and the wine is a Côtes du Rhône that’s been begging to be opened.”
+“It’s chicken, Sonia. And ratatouille.” Marion pointed with the spoon. “The Côtes du Rhône is doing most of the work.”
 
 Sonia felt the corners of her mouth lift despite herself. “You spoil me,” she said softly.
 
 “You deserve it,” Marion replied without hesitation, her voice light but her eyes warm.
 
-The meal was perfect, as always.
-The chicken was tender, the ratatouille rich and hearty, the wine a smooth counterpoint to every bite.
-They ate slowly, their conversation easy and familiar,
-but beneath the surface, both women felt it—a tension neither could quite name yet.
+The food was good. Sonia knew it was good, though she would have struggled to describe it. She kept finding one more ordinary thing to say before the thing she had come home to tell Marion.
 
-Sonia pushed her empty plate away and set her glass down, watching Marion as she sipped the last of her wine.
-Marion’s gaze flicked up to meet hers, and the look they shared lingered,
-the unspoken words between them growing louder.
+When her plate was empty, Sonia pushed it away. Marion was still holding her glass. Their eyes met, and this time Sonia did not look for something else on the table.
 
 Sonia broke the silence first, her voice soft. “Marion, we need to talk.”
 
-Marion nodded, her expression curious but calm.
-“I thought so,” she said, leaning back in her chair.
-“You’ve been... distant today.
-What’s going on?”
+Marion looked at her. “I wondered how long you were going to make me wait. What is it?”
 
-Sonia hesitated, running her fingers along the stem of her wineglass.
-“It’s about the collar,” she said finally.
-“And about me.
-About us.”
+For a moment Sonia could only look at her.
+“The collar,” she said. “What happened yesterday. I haven’t stopped thinking about it.”
 
 Marion tilted her head slightly, her brow furrowing. “Okay,” she said, her tone cautious but open.
 
@@ -2116,9 +1761,9 @@ She paused, searching for the right words.
 Your entire world.
 And I loved it.”
 
-Marion didn’t flinch. Her expression remained steady, though a flicker of something—recognition, maybe—crossed her face.
+Marion’s fingers loosened round her glass. She waited.
 
-Sonia continued, her voice faltering slightly.
+Sonia went on.
 “But it wasn’t just that.
 It wasn’t playful.
 It wasn’t us.
@@ -2128,9 +1773,9 @@ It was intoxicating, Marion.
 And it scared me.”
 
 Marion set her glass down carefully, folding her hands in her lap.
-“Because it didn’t feel like love anymore?” she asked gently.
+“And that didn’t feel like loving me?” Marion asked.
 
-Sonia nodded, her throat tightening.
+Sonia nodded.
 “It felt like power.
 Like control.
 And I keep thinking about it—about you, collared and bound,
@@ -2141,11 +1786,11 @@ And I don’t want to feel that way.
 Not about you.
 Not about us.”
 
-Marion was quiet for a moment, her gaze thoughtful. “I get it,” she said finally.
+Marion took a moment to answer. “I think I know.”
 
-Sonia blinked, startled by the calm in her voice. “You do?”
+“You do?”
 
-Marion nodded, her lips pressing into a faint, wry smile.
+Marion nodded, smiling wryly.
 “The collar did something to me too,” she admitted.
 “When you took it off, I felt... empty.
 Everything’s been dull since then.
@@ -2156,20 +1801,14 @@ That sense of... devotion.
 Of security.
 Like nothing could go wrong because you were in control, and all I had to do was obey.”
 
-Sonia’s chest tightened at Marion’s words, the raw honesty in them.
+Sonia listened.
 
 Marion looked down at her hands, her fingers curling slightly.
-“I know it’s not me,” she said softly.
-“Those feelings—they’re not mine.
-Not really.
-They’re the collar’s.
-But knowing that doesn’t make them go away.
-I miss it.
-Desperately.”
+“I know where it comes from,” she said. “I keep telling myself that. The collar made me feel it.” She looked up. “It doesn’t help. I still miss it.”
 
-The room was silent for a long moment, the weight of Marion’s confession settling between them.
+Neither spoke for a while.
 
-Finally, Sonia spoke, her voice quiet.
+Finally, Sonia spoke,.
 “I manipulated the database today,” she admitted.
 “I erased some records and hid some artifacts.
 More restraints.
@@ -2181,107 +1820,82 @@ I’ve been thinking about you.
 About what it would feel like to see you like that.
 To have you like that.”
 
-Marion looked up, her eyes meeting Sonia’s. There was no judgment there, only understanding.
+Marion looked up meeting Sonia’s eyes. There was no judgment there, only understanding.
 
-“I don’t know what’s happening to us,” Sonia said, her voice breaking slightly.
+“I don’t know what’s happening to us,” Sonia said.
 “But I’m scared, Marion.
 Of what I’m feeling.
 Of what this might do to us.”
 
-Marion stood, crossing to Sonia’s side of the table.
-She knelt beside her, taking Sonia’s hands in her own.
-“We’ll figure it out,” she said softly.
-“Together.
-Whatever this is, we’ll face it.
-And we’ll do it as equals.
-Okay?”
+Marion came round the table and knelt beside Sonia’s chair, taking her hands.
 
-Sonia nodded, tears prickling at the corners of her eyes as she pulled Marion into a tight hug.
-The warmth of Marion’s embrace, the steady rhythm of her breathing, was grounding, soothing.
+“You should have told me,” she said. “I should have told you how much I missed it. We can start there.” Her thumbs moved over Sonia’s knuckles. “Together. As equals. Can we do that?”
 
-For a moment, the hum of the collar and the pull of its power seemed far away.
-This night, the bedroom was quiet, the dim light from the bedside lamp casting a soft glow across the room.
-Sonia and Marion lay together under the quilt, the gentle warmth of their bodies a shield against the weight of the day.
+Sonia nodded and pulled Marion close. She held her until she felt calmer.
+
+For a moment, Sonia stopped thinking about the collar.
+That night, the bedside lamp lit the quiet bedroom.
+Sonia and Marion lay together under the quilt, warm against each other.
 The air smelled faintly of lavender from the diffuser Marion had turned on earlier,
 its calming scent blending with the faint crispness of clean sheets.
 
 Marion rested her head on Sonia’s chest, her arm draped loosely across Sonia’s waist.
 Sonia’s hand moved slowly, rhythmically, through Marion’s hair, her fingers threading through the soft curls.
-Neither of them spoke.
-Words felt unnecessary, even intrusive.
-The quiet was heavy, but not oppressive—it was full,
-carrying the unspoken understanding that passed between them in the darkness.
+Neither tried to fill the silence.
 
 Sonia pressed a soft kiss to Marion’s forehead, her lips lingering for a moment.
 Marion responded by snuggling closer, her nose brushing Sonia’s collarbone as she sighed contentedly.
 
 “I’m here,” Sonia whispered, her voice barely audible.
 
-Marion hummed softly in response, her hand slipping to rest against Sonia’s side.
-Her fingers moved in tiny, absent-minded circles, as if she were tracing invisible patterns.
-It wasn’t a touch of desire, only reassurance.
+Marion answered with a quiet hum and traced small circles on Sonia’s side. Neither tried to turn the touch into anything more.
 
 Their legs tangled under the quilt, bare skin brushing bare skin, but there was no urgency in the contact.
-It was warmth, connection, the simple comfort of being close.
+She was glad to be close.
 Marion shifted slightly, her breath soft against Sonia’s skin as she murmured, “Thank you.”
 
 Sonia didn’t ask what for—she knew.
 
 She tilted her head, resting her cheek against Marion’s hair.
-“Always,” she replied quietly, the single word carrying all the promises she couldn’t put into sentences.
+“Always,” she replied quietly, holding Marion close.
 
-The night stretched on, time slipping by unnoticed as they lay together.
-Eventually, they both found sleep.
+They lay together until they slept.
 
 ## Click
 
-Sonia stirred, the absence of warmth beside her pulling her from sleep.
-Her hand reached instinctively for Marion, but the bed was cold and empty.
-She blinked groggily, lifting her head.
+Sonia reached for Marion before she was properly awake. Her hand found the sheet, cold where Marion should have been. She lifted her head.
 
-Marion knelt on the floor beside the bed, her posture perfect, her head bowed.
-In her hands, she held the collar, the faint morning light catching its polished surface.
-The small,
-shoddy lock on Sonia’s desk drawer had clearly been no match—Marion had likely bypassed it with nothing more than a bobby pin.
+Marion was beside the bed, kneeling with the collar in her hands. Sonia looked at it, then toward the desk. That little lock. A bobby pin would probably have done it.
 
-“Marion?” Sonia’s voice was thick with sleep, laced with confusion.
+“Marion. What are you doing?”
 
-Marion looked up, her eyes glowing with something Sonia couldn’t quite name—devotion, longing, certainty.
-Slowly, she bowed her head, holding the collar higher.
+Marion looked up, then lowered her head again and raised the collar.
 
 “Please,” Marion said, her voice soft but steady. “Take what is yours, my Queen.”
 
-The words hit Sonia like a bolt of lightning, sending a shiver through her entire body.
-Her heart raced, not just with shock, but with recognition.
-This is what I want, a voice inside her whispered.
-This is what she wants.
-
-And yet, it was wrong.
+Sonia knew at once how badly she wanted to take it. Last night they had sat at the table and promised each other something quite different. Neither mentioned that now.
 
 Sonia swung her legs over the side of the bed, her feet touching the cool floor.
-Her breath hitched as she reached out, her hand trembling slightly.
-The collar felt heavier than before,
-as though it carried not just its own weight, but the enormity of their shared desires.
+She reached out before she had decided what to say. The weight of the collar settled into her hand.
 
 “Marion,” Sonia murmured, her voice shaking.
 
-Marion lifted her head slightly, her hair falling back.
-Her hands rose, pulling her hair up and away in a gesture of pure submission.
-“Please,” she repeated, her voice barely above a whisper.
+Marion lifted her hair clear of her neck.
 
-Sonia hesitated for a moment, her chest tight with the war between guilt and longing.
-Then, slowly, she stepped forward and placed the collar around Marion’s neck.
+“Please.” It was the only argument she offered.
+
+Sonia stood with the collar between them a moment longer. Then she stepped forward and placed it round Marion’s neck.
 The metal clicked into place, and the hum returned,
 enveloping them both, while the ring dropped into Sonia's hand again.
-She slid it onto her finger, feeling the power slither over her, emanating from where the ring sat on her finger.
+She put on the ring and felt its power spread through her.
 
-Marion let out a soft, shuddering breath, her body relaxing instantly as the tension melted away.
-Her posture shifted slightly,
-her movements fluid and graceful as though she had been waiting her whole life for this moment.
+Marion breathed out. Her shoulders lowered; when she moved again, the careful stiffness had gone.
 
-Sonia’s hand lingered on the collar for a moment before she withdrew, her voice low and commanding. “Crawl with me.”
+Sonia kept a hand on the closed collar, then let it go.
 
-Marion obeyed without hesitation, her movements sensual as she followed Sonia across the room and into the bathroom.
+“Crawl with me.”
+
+Marion followed her across the room and into the bathroom.
 The tile floor was cool beneath her hands and knees, but she barely noticed, her entire focus locked on Sonia.
 
 Sonia turned on the shower, the sound of water filling the small space.
@@ -2292,7 +1906,7 @@ who knelt just outside the shower, her head bowed, her body glistening faintly i
 
 “Come,” Sonia said, her voice firm.
 
-Marion crawled forward, the hum of the collar resonating in the enclosed space.
+Marion crawled forward, the collar humming in the small room.
 She entered the shower on her knees, the water soaking her hair and skin as she waited for Sonia’s next command.
 
 “Do me,” Sonia said, her tone soft but laced with undeniable authority. “Serve your Queen.”
@@ -2304,7 +1918,7 @@ Sonia gasped softly,
 her hand tangling in Marion’s wet hair as her legs parted slightly to grant her lover better access.
 
 Marion’s tongue moved with purpose, her every motion careful and precise.
-She worshipped Sonia with her mouth, her lips and tongue offering nothing but pure devotion.
+She concentrated on Sonia.
 The hum of the collar seemed to amplify the connection between them,
 the steam swirling around them as Sonia’s breaths grew heavier.
 
@@ -2315,8 +1929,7 @@ her tongue circling and teasing in a way that made Sonia’s knees tremble.
 “Good girl,” Sonia murmured, her voice thick with pleasure. “So perfect. So mine.”
 
 Marion moaned softly against her, the sound vibrating through Sonia’s core.
-The shower was filled with the sound of water, soft gasps,
-and the quiet hum of the collar as Sonia finally let herself surrender to the waves of sensation crashing over her.
+Sonia heard the water, their gasps, and the collar’s quiet hum as she let herself enjoy Marion’s touch.
 
 She came with a soft cry, her body shuddering as Marion’s tongue brought her over the edge.
 Sonia’s grip loosened, her hand sliding from Marion’s hair to cup her cheek,
@@ -2324,11 +1937,11 @@ pulling her up into a tender kiss as the water continued to fall around them.
 
 The collar’s hum seemed to soften,
 its resonance settling into a quiet pulse that echoed the steady rhythm of their breaths.
-Sonia held Marion close, their foreheads touching as the reality of what they had done began to sink in.
+Sonia held Marion close, their foreheads touching.
 
 The water cascaded down around them, the steam swirling thick and warm.
 Sonia cupped Marion’s face, her fingers tracing the line of her jaw before tipping it upward.
-Her voice was low, commanding but rich with something deeper—connection, ownership, devotion.
+Her voice was low.
 
 “Who owns you?” Sonia asked, her eyes locked on Marion’s.
 
@@ -2345,19 +1958,18 @@ The hum vibrated faintly against her touch, resonating in the humid air.
 
 “You do, my Queen.”
 
-“Who owns your lust?” Sonia’s voice dropped, a whisper that cut through the sound of the falling water.
+“Who owns your lust?” Sonia whispered.
 
 Marion’s breath hitched, her voice trembling with fervent certainty. “You do, my Queen.”
 
-The words sent a shiver down Sonia’s spine, igniting something dark and powerful within her.
+Sonia shivered at the answer.
 She let the water cleanse them both for a moment longer before stepping back, turning off the shower.
-The sudden quiet was deafening, broken only by their breathing and the faint hum of the collar.
+In the quiet they could hear their breathing and the collar.
 
 Sonia reached for a towel, holding it out to Marion. “Dry me,” she commanded.
 
 Marion took the towel reverently, her hands moving with care as she dried Sonia’s skin.
-She worked slowly, starting at Sonia’s shoulders, her touch both practical and worshipful.
-Her movements were precise, lingering, as though every moment of contact was an offering.
+She started at Sonia’s shoulders and worked slowly, lingering over each part of her body.
 
 When Sonia was dry, Marion quickly toweled herself off,
 her own actions efficient and hurried, her focus entirely on her Queen.
@@ -2387,19 +1999,17 @@ She spread her legs slightly, her fingers moving to her aching folds.
 She began to touch herself, her fingers finding her clit with practiced ease.
 Her breaths came faster as she worked herself closer and closer to the edge, her body trembling with need.
 
-Her Queen’s presence was all-encompassing, the hum of the collar a constant reminder of her submission.
-Each flick of her fingers was a gift to her Queen, each moan a prayer.
+She kept her eyes on Sonia. The collar hummed.
 
 But she couldn’t hold out forever.
 
 Marion’s body tensed, her hips jerking upward as the pleasure surged toward its peak.
-She clenched her teeth, trying to stop herself,
-to obey, but the orgasm broke through, a wave of ecstasy crashing over her.
+She clenched her teeth and tried to obey, but could not stop the orgasm.
 
 Before she could lose herself in it, Marion’s hand moved instinctively,
 slapping her pussy with a sharp, punishing strike.
 
-The pain was immediate, radiating outward from her clit like a shockwave.
+Pain struck at once.
 It extinguished the pleasure instantly, leaving her trembling and gasping, her body raw and aching.
 The ruined orgasm left her breathless, her clit throbbing with a mix of pain and numbness.
 
@@ -2408,8 +2018,7 @@ Her clit throbbed, sensitive and raw, but her Queen’s command was clear, unden
 She edged herself again, the climb slow and excruciating, her nerves dulled yet alive with the lingering echoes of pain.
 
 “Thank you, my Queen,” Marion whispered, her voice shaking with both gratitude and resolve.
-Sonia watched every movement.
-She rode the power, soaked up every moment of Marion denying herself for Sonia.
+Sonia watched Marion deny herself at her command.
 
 Marion's fingers worked with practiced care, drawing herself closer to the brink once more.
 The pleasure was a slow, aching burn, each moment an eternity as her body struggled to balance the agony and ecstasy.
@@ -2434,44 +2043,42 @@ Her tears mixed with her sweat as she edged herself again,
 her body trembling, every movement a deliberate act of submission.
 
 Sonia leaned forward, her voice calm but heavy with authority.
-“Who owns you?” she asked, her tone cutting through the charged air like a blade.
+“Who owns you?” she asked.
 
 Marion’s breath hitched, her fingers pausing for the briefest moment before resuming their slow, methodical work.
 “You do, my Queen,” she answered, her voice trembling but certain.
 
 “Who owns your lust?” Sonia asked, her gaze unwavering.
 
-“You do, my Queen,” Marion repeated, the words spilling from her lips as though they were etched into her very soul.
+“You do, my Queen,” Marion repeated without hesitation.
 
-“Good girl,” Sonia murmured, her approval a balm to Marion’s raw, aching body.
+“Good girl,” Sonia murmured. Marion relaxed a little at her approval.
 
 Marion sobbed softly, her tears falling freely now, but her fingers didn’t falter.
-She belonged to her Queen, her body and her pleasure nothing more than offerings of devotion.
+She belonged to her Queen, her attention still on Sonia.
 
 Marion’s body trembled, her fingers slick and trembling as they hovered over her swollen folds.
 Her tears mingled with the sheen of sweat on her flushed face.
 She barely registered the pain in her clit anymore;
 it was drowned by the intensity of her submission, by the hum of the collar resonating through her.
 
-“Stop now,” Sonia commanded, her voice firm, slicing through the haze of Marion’s lust like a whip.
+“Stop now,” Sonia commanded.
 “Hands up over your head.
 Legs outstretched.
 Lie still.”
 
 Marion obeyed instantly, her fingers retreating from her aching pussy as she shifted position.
 Her arms rose above her head, her legs straightening as she lay motionless before her Queen.
-Every nerve in her body screamed for release, but she silenced it, surrendering to Sonia’s authority completely.
+She wanted release, but held the pose Sonia had ordered.
 
-Sonia’s gaze swept over her, taking in every inch of Marion’s trembling, vulnerable form.
-She wanted to test her power over Marion.
-Her voice softened, but the command in it was unmistakable.
+Sonia watched her hold the pose. She could give another order. She wanted to know whether that would be enough. When she spoke, she barely raised her voice.
 “Come now,” she whispered into Marion's ear.
 
 Marion’s breath hitched, her chest heaving as the words struck her.
 She didn’t move—she didn’t need to move.
 The command alone was enough.
-It swept through her body like fire, igniting her from the inside out.
-Despite the pain, despite the emptiness in her abused pussy, the orgasm crashed over her like a tidal wave.
+Her body responded before she could think.
+Despite the pain, despite the emptiness in her abused pussy, she came.
 
 Her back arched,
 her hands gripping the sheets above her head as her pussy clenched around nothing, spasming uncontrollably.
@@ -2481,16 +2088,16 @@ And still, she didn’t stop.
 
 The collar hummed, its power coursing through her as her Queen’s command compelled her forward.
 Marion’s body shuddered, tears streaming down her face as the climax stretched out, unrelenting.
-It wasn’t pleasure or pain anymore—it was pure, consuming devotion.
+She could no longer separate pleasure from pain.
 
 “Don’t stop,” Sonia whispered again, unyielding.
 
 Marion obeyed, her body writhing as another wave of release tore through her, her moans mixing with sobs.
-Her pussy clenched again and again, each spasm a testament to the power of her Queen’s will.
+Her pussy clenched again and again as she obeyed.
 
 Her voice cracked as she gasped, “Thank you, my Queen. Thank you.”
 
-Sonia leaned down, brushing a tear from Marion’s cheek with a tenderness that belied the power she wielded.
+Sonia leaned down and brushed a tear from Marion’s cheek.
 “That is enough.
 Good girl,” Sonia murmured.
 “You belong to me, and you’ve made me proud.”
@@ -2498,54 +2105,39 @@ Good girl,” Sonia murmured.
 Marion sobbed softly, her body finally beginning to relax, her breathing ragged as the command released her.
 She lay still, her arms still raised, her legs outstretched, utterly spent but deeply content.
 
-Sonia knelt beside her, her hand resting lightly on Marion’s chest, feeling the rapid thrum of her heartbeat.
-The hum of the collar softened, its resonance fading into a quiet pulse as Sonia whispered, “You’re mine, Marion.
-Always mine.”
+Sonia knelt beside her and laid a hand on her chest. Marion’s heart was beating fast under her palm; the collar’s hum had already settled.
+
+“You’re mine, Marion,” she whispered. “Always mine.”
 
 Marion smiled faintly, her lips trembling as she whispered back, “Always, my Queen.”
 
 ## Slaving away
 
-Sonia gave Marion time to relax a bit, before she allowed her to leave the pose she'd been commanded into.
+Sonia let Marion rest before releasing her from the pose.
 “Okay, let’s get up. We have a lot to do,” Sonia ordered as she rose from the bed.
 
-Marion followed her Queen’s command immediately, even though her body ached and trembled from the morning’s ordeal.
-The collar stayed locked around her neck, its hum a constant presence, a reminder of her submission.
-It wasn’t just an accessory—it was a force, driving her, guiding her, shaping her every thought.
+Marion got up when Sonia did, though her legs were not quite steady. The collar hummed against her throat. She waited to hear what Sonia wanted next.
 
-Sonia dressed quickly, slipping into her workday clothes, leaving the apartment with purpose.
-She glanced back only once,
-giving Marion a final look that carried authority and trust before the door clicked shut behind her.
+Sonia dressed for work. At the door she glanced back at Marion, then left.
 
-Alone, Marion’s movements felt instinctive, as if guided by an unseen hand.
-She couldn’t lounge around in her usual casual clothes, not with the collar encircling her throat.
-She needed to be presentable, to look polished and perfect for her Queen, even in her absence.
+With Sonia gone, Marion turned toward her clothes. Her usual things would have been comfortable, but that was no longer quite the point. She wanted to be ready for Sonia to look at her.
 
 She chose a slim, practical black dress, its neckline modest but fitted closely enough to show off her figure.
 The sleeves were short, leaving her arms free to move easily.
 The hemline fell just above her knees, teasingly close to playful but still proper.
-She cinched a belt at her waist to emphasize her curves and stepped into low,
-heeled black shoes that clicked softly on the tile.
+She fastened a belt at her waist and put on low-heeled black shoes.
 Her makeup was subtle but elegant—soft eyeliner, a hint of blush,
 and a deep pink lipstick that highlighted her naturally full lips.
 Her hair she brushed until it shone, then pinned it back into a sleek, tidy bun.
 
-Satisfied, she took a moment to glance at herself in the mirror.
-The collar was a stark contrast to the polished, professional look she had assembled,
-but it only heightened her appearance.
-It was a mark of who she was, a silent declaration of whom she belonged to.
+She checked herself in the mirror. The black dress and tidy hair made the collar more conspicuous, not less. She found she liked that.
 
 Marion turned and began her work, diving into her usual chores: dusting, sweeping, tidying the small apartment.
-But today, the collar transformed everything.
+Today the collar changed how the work felt.
 
-Under its influence, her mind was sharply focused, every thought directed toward efficiency and perfection.
-She moved quickly and deliberately, her hands scrubbing, folding, organizing with an energy she didn’t know she had.
-When she worked, the collar hummed faintly, rewarding her with a sense of satisfaction that warmed her from within.
-The world seemed brighter, clearer, every task an act of devotion.
+She knew which task came next without having to stop and decide. Dust, sweep, put everything in its place. With each job she felt the collar’s approval, and the room looked a little brighter.
 
-But the moment her mind wandered—or if she paused too long—the rewards faltered.
-The hum grew faint, the colors around her dulled, and an awful wave of guilt swept over her, crushing and heavy.
-Fear followed close behind—fear of letting her Queen down, of failing to meet the standards expected of her.
+When she paused, the brightness faded. There it was again: the dull room, the feeling that she had done something wrong. Sonia was not here to be disappointed in her, but Marion felt it all the same.
 
 Marion pushed through her exhaustion, driven by the collar’s unrelenting demand for diligence.
 She wiped the counters, her movements precise, her breath coming fast as her body strained to keep up.
@@ -2554,9 +2146,7 @@ her fingers gripping the cloth tighter as she scrubbed away an invisible spot.
 
 Her Queen deserved nothing less than perfection.
 
-Even the smallest details mattered—every object in its place, every surface spotless.
-The hum encouraged her, a soft, almost imperceptible vibration that filled her with a strange joy when she succeeded.
-It wasn’t just housework anymore; it was a mission, a calling, an expression of her love and submission.
+She checked the objects she had already put straight and wiped a surface she had already cleaned. The faint hum rewarded her each time. She was doing this for Sonia; it had become difficult to say when it would be enough.
 
 By mid-afternoon, Marion was spent, her muscles aching, her mind hazy with exhaustion.
 But the collar wouldn’t let her stop.
@@ -2564,41 +2154,26 @@ She stood at the sink, scrubbing a stubborn pan, her arms trembling as she fough
 
 “You mustn’t let her down,” she whispered to herself, her voice thick with determination. “You can’t.”
 
-The collar hummed faintly in response, its approval washing over her like a balm.
-Marion’s lips curved into a tired but content smile.
-Whatever it took, she would do it.
-She would serve.
-She would obey.
+The collar hummed and her guilt eased.
+Marion smiled tiredly and kept scrubbing.
 
 
-Sonia sat at her desk, her fingers poised over the keyboard,
-but the words she was supposed to be typing remained stubbornly absent.
-Her mind was elsewhere, replaying the events of the morning with vivid clarity.
-Marion kneeling, offering the collar,
-her voice trembling with devotion as she said, “Please take what is yours, my Queen.”
+At her desk, Sonia tried to return to her work. Instead she heard Marion again: “Please take what is yours, my Queen.” She had been holding out the collar then, waiting for Sonia to decide.
 
-The memory sent a shiver through Sonia, a mix of exhilaration and unease coursing through her.
+She shivered, excited and uneasy.
 She had known in that moment,
 as she locked the collar around Marion’s neck and watched her crawl,
-that something fundamental had shifted between them.
-This wasn’t a fleeting game, not a playful scene with safewords and boundaries that blurred but never broke.
-This was something deeper, more consuming.
+that their relationship had changed.
+They had gone beyond their scenes and safewords.
 
 Sonia’s hand moved absently to her throat, brushing the skin as if she could feel the weight of the collar herself.
-It wasn’t just Marion who had been changed by the hum of the ancient artifact—it had shaped Sonia too,
-molded her into something she hadn’t known she could be.
+The artifact had changed Sonia too.
 She owned Marion now, not just in fantasy but in a way that felt tangible and absolute.
 
 Her thoughts drifted to Le Petit Prince, the words of the fox echoing in her mind:
 “You become responsible, forever, for what you have tamed.”
 
-That was what this felt like.
-Not a game or an accident, but a taming.
-Marion had offered herself to Sonia completely, and Sonia had accepted,
-sealing the bond between them with the hum of the collar.
-Ownership wasn’t about control for control’s sake.
-It was about care, responsibility, devotion.
-It was about shaping and being shaped in return.
+She returned to the word *responsible*. Marion had offered, and she had accepted. That must mean more than being allowed to give orders. She wanted it to mean more.
 
 But it was also about power, and Sonia couldn’t deny the rush that came with it.
 
@@ -2610,18 +2185,11 @@ The chastity belt locked tightly in place,
 its cruel design denying Marion even the possibility of pleasure without her Queen’s permission.
 
 Sonia shifted in her chair, crossing her legs tightly as the thought sent a wave of arousal through her.
-She imagined Marion bound in more ways than one, her body fully surrendered, her mind consumed by obedience.
-The collar’s hum would guide her, focus her, ensuring she gave her everything to Sonia without hesitation or doubt.
+She imagined Marion wearing the restraints and obeying her without hesitation.
 
-Sonia closed her eyes, exhaling shakily.
-This wasn’t just about Marion—it was about what owning Marion did to her.
-The thrill of it, the weight of it, the undeniable pull of the collar that had changed everything.
+Sonia closed her eyes. Owning Marion excited her, and she wanted more.
 
-She couldn’t go back.
-
-Marion couldn’t go back.
-
-The collar had bound them together, reshaping their relationship into something neither of them had anticipated.
+She could not imagine either of them going back.
 Sonia knew she should feel guilt, maybe even fear, but instead, she felt a deep, unshakable certainty.
 This was who they were now.
 
@@ -2632,19 +2200,16 @@ The idea of Marion kneeling before her, the belt locked tight,
 her thighs bound, her hands shackled—Sonia’s breath quickened at the thought.
 
 She glanced at the time, her impatience mounting.
-Work felt like an obstacle now, a delay keeping her from what she truly wanted.
+She wanted the workday to end.
 Her fingers moved restlessly over the keyboard,
 her mind still consumed by the thought of her stash, of Marion waiting at home, of what tonight might bring.
 
 Sonia swallowed hard, pressing her legs together as she tried to refocus.
-But the collar’s thrall was relentless,
+But she could not stop thinking about the collar,
 and she knew that as soon as the workday ended, she would be racing home to her property.
 Hers alone.
 
-But before that, she'd have work to do, so Sonia gathered her papers and went out, searching for Carla.
-She had expected to find her near the coffee machine in the break room, where Carla usually perched,
-half-leaning against the counter with her easygoing smirk and irreverent commentary.
-But today, Carla was nowhere to be found there.
+There was Carla to find first. Sonia gathered her papers and went to the break room, expecting the usual running commentary from beside the coffee machine. Carla was not there.
 
 After a quick sweep of the usual spots, Sonia finally located her in her office.
 Carla sat stiffly at her desk, her posture uncharacteristically rigid, her fingers tapping distractedly at her keyboard.
@@ -2652,36 +2217,25 @@ When Sonia entered, Carla flinched slightly, her head snapping up, her face a st
 
 “Carla,” Sonia said, stepping inside and closing the door behind her. “I’ve been looking for you.”
 
-Carla forced a smile, though it didn’t quite reach her eyes. “Hey, Sonia. What’s up?”
+Carla smiled and turned back to the keyboard. “Sonia. What do you need?”
 
-Sonia’s gaze swept over her, sharp and assessing.
-Something was off.
-Carla’s usual casual demeanor was replaced by an almost nervous energy, her movements tense, her expression strained.
+Usually she would have had a joke ready before Sonia reached the desk.
 
-“I wanted to ask you about the equipment,” Sonia said, leaning against the doorframe.
-“The artifacts that ‘came to life.’
-You seemed pretty excited about them earlier.
-Have you... been working with them?”
+Sonia leaned against the doorframe. “Those pieces you were telling me about. Have you been doing any more work on them?”
 
-Carla froze for a moment, her fingers stilling over the keyboard.
-She glanced down, her cheeks darkening faintly, but she quickly recovered, forcing a laugh.
-“What?
-No, of course not.
-I’ve just been cataloging the usual stuff.
-Nothing exciting.”
+Carla stopped typing.
+
+“No. Cataloging. The usual.” She glanced at the screen. “Plenty of it, as you can see.”
 
 The ring on Sonia’s finger began to hum, its vibration intensifying the longer she stood in Carla’s presence.
-Sonia’s breath hitched slightly, her thoughts racing.
+Sonia paused.
 
 Her voice turned careful, almost casual.
 “You sure about that?
 I mean, some of the artifacts seem pretty... interactive.
 I wouldn’t blame you if you wanted to experiment.”
 
-Carla’s blush deepened, her body tensing visibly.
-“Experiment?” she echoed, her laugh brittle.
-“Yeah, no.
-Not really my thing.”
+“Experiment?” Carla repeated. She gave a short laugh. “You’ve got the wrong person.”
 
 The hum grew stronger, resonating through Sonia’s entire hand.
 She stepped forward, her eyes narrowing.
@@ -2715,7 +2269,7 @@ Slowly, she rose to her feet, her hands fumbling at the hem of her skirt.
 With a shaky breath, she lifted it, revealing the sleek, metallic chastity belt locked tightly around her hips.
 Artifact 69.
 
-The belt gleamed under the fluorescent lights, its intricate design both beautiful and imposing.
+The belt gleamed under the fluorescent lights.
 The plate at the front shimmered faintly, its surface smooth and seamless,
 save for the faint outline of the mechanism within.
 
@@ -2730,7 +2284,7 @@ I just had to see how it felt.
 I thought I could just try it for a second, but it locked itself on me.
 And now it’s... it’s torturing me.”
 
-Sonia stepped closer, her heart pounding as she inspected the belt.
+Sonia stepped closer to inspect the belt.
 The hum from the ring intensified, resonating in perfect harmony with the artifact.
 She reached out, pressing the ring firmly against the plate of the belt.
 
@@ -2752,7 +2306,7 @@ Sonia stepped back, watching as Carla sank to her knees,
 her skirt still bunched around her waist, her face flushed and tear-streaked.
 The hum of the belt softened slightly, its power subsiding but not disappearing entirely.
 
-Carla looked up at Sonia, her expression a mix of shock, shame, and something that looked startlingly like gratitude.
+Carla looked up at Sonia, shocked and ashamed, but apparently grateful.
 
 “I own you now,” Sonia said, her voice calm but firm, the weight of her words settling heavily in the room.
 
@@ -2770,7 +2324,7 @@ She tilted her head slightly, her gaze locking with Carla’s.
 Do you understand your situation?”
 
 Carla’s eyes fluttered shut as she sucked on Sonia’s thumb, her tongue swirling around it in slow, obedient motions.
-She nodded faintly, her lips sealing around the digit as though it were a lifeline.
+She nodded, her lips closing around Sonia’s thumb.
 
 Sonia withdrew her finger, leaving Carla’s mouth open slightly, her lips glistening.
 “Now,” she said, her tone sharpening, “tell me where the other awakened artifacts are.”
@@ -2794,7 +2348,7 @@ For her Queen.
 Finally satisfied, she sat down at her desk, her knees pressed tightly together as she began typing.
 The belt hummed faintly, the sensation a constant reminder of her submission.
 She worked with a diligence that was uncharacteristic for her—no jokes, no distractions.
-Every task became a focused effort, a tribute to her Queen’s ownership.
+She gave each task her full attention.
 
 The moment she completed a task, the belt stirred to life,
 a faint vibration teasing her clit and sending a rush of heat through her body.
@@ -2809,28 +2363,18 @@ To please her Queen.
 Task after task, Carla worked tirelessly, her arousal building with each reward, her desperation mounting.
 The belt controlled her as much as Sonia did, a silent, inescapable presence that ensured her focus never wavered.
 
-For the first time, Carla found herself completely consumed by her work, not for its own sake,
-but because it was the only way to prove herself worthy of her Queen’s attention—and maybe,
-just maybe, permission to finally come.
+Carla worked for her Queen’s attention and the hope of permission to come.
 
-Sonia leaned back against the wall, her head tipping back until it rested against the cool surface.
-She closed her eyes, taking a deep, steadying breath, but it did little to calm the storm inside her.
+Outside Carla’s office, Sonia stopped with her back to the wall. She had meant to ask about the artifacts. She stood there trying to account for what she had done instead.
 
 If I keep this up, she thought wryly, I’ll be Queen of the damn country before the month is out.
 Provided there’s enough Atlantean tech to go around.
 
-Her lips twitched into a humorless smile, but it faded as quickly as it came.
-The truth was heavier than the joke.
-She hadn’t wanted to claim Carla—not really.
-The thought of adding another person to this strange, burgeoning... empire? ... harem?
-It felt overwhelming.
-And yet, the moment she entered the office, the moment she saw Carla squirming, lying,
-and knew she was bound to something unclaimed, the hum had risen like a tidal wave, impossible to ignore.
+The joke did not help for long. Another person. Carla, whom she had worked beside and laughed with, was now on the other side of that door waiting for her approval. Sonia had not planned it. She kept returning to that fact as if it explained what followed.
 
 It wasn’t just the ring—it was her.
 
-The artifacts seemed to respond to her, drawing her into their ancient purpose,
-aligning with something inside her that had always been there but had never fully awakened.
+The artifacts responded to her. She wanted to do what they encouraged.
 You’re a Dominant, the hum seemed to whisper.
 Rise to the challenge.
 Establish your claim.
@@ -2857,31 +2401,19 @@ to offer herself, to feel the weight of Sonia’s ownership again.
 
 The thought sent a jolt of heat through Sonia, but it was tempered by something heavier. Guilt. Responsibility.
 
-“Yes, Sonia,” she muttered under her breath, her voice laced with bitterness.
-“Keep telling yourself the ring made you do it.
-Easy excuse.
-Not your fault, not your responsibility.”
+“The ring made you,” she muttered. “Very convenient, Sonia.”
 
 But she knew better.
-The ring, the artifacts—they didn’t create these feelings.
-They amplified what was already there, laid bare desires she had kept buried for years.
-She couldn’t pretend otherwise.
+The artifacts had strengthened desires she had concealed for years. She could not deny that.
 
-She owned two people now.
+Two people. She counted them once more: Marion at home, Carla behind the door. Both waiting for her to decide what happened next.
 
-It wasn’t a game.
-It wasn’t a joke.
-Marion and Carla depended on her in a way that went far beyond play.
-She had claimed them, and with that came control—control she had to provide, because without it, they would be lost.
-
-The weight of it pressed down on her, but it was a weight she couldn’t walk away from.
-It was hers now, just as they were hers.
-
+She had wanted their attention. Now she had to answer for it.
 
 ## Completing the Collection
 
-Sonia pushed off the wall, straightening her spine.
-She couldn’t linger here, indulging in self-doubt.
+Sonia pushed off the wall.
+She could not stand here doubting herself.
 There was still Nate to find, and likely more awakened artifacts to deal with.
 And then, later...
 
@@ -2892,12 +2424,11 @@ She would claim her again, because Marion craved it, and because Sonia needed it
 
 And after that...
 
-Her lips curled into a faint, knowing smile.
+She smiled.
 After that, Carla would be waiting.
 Edged and needy, desperate to serve her Queen.
 
-Sonia stepped into Nate’s office, the door creaking faintly as it swung open.
-The scene before her was almost too absurd to believe.
+Sonia pushed Nate’s door open and stopped.
 
 On Nate’s desk sat a tool chest, its drawers half-open,
 various wrenches and screwdrivers scattered haphazardly across the surface.
@@ -2911,57 +2442,42 @@ their ankle cuffs also glowing with the same eerie blue light.
 Nate was bent awkwardly, wielding a large wire cutter as he struggled to cut through one of the cuffs,
 his face flushed with a mix of exertion and embarrassment.
 
-Sonia leaned against the doorframe, crossing her arms as she took in the sight.
-She arched an eyebrow, her voice laced with dry amusement.
+Sonia leaned against the doorframe. For a moment she watched him work on the cuff.
+
 “Hello, Nate.”
 
 Nate’s head snapped up, his eyes widening in horror.
 He fumbled with the wire cutter, nearly dropping it as he tried to straighten up,
 the bands on his wrists banging against his desk.
 
-“Sonia!” he blurted, his face turning crimson. “I... I can explain.”
+“Sonia.” He looked down at the cutter. “This isn’t quite what it looks like.”
 
-Sonia raised a hand, stopping him mid-sentence.
-“Let me guess,” she said, her tone even.
-“You saw the awakened artifacts.
-You were mesmerized by the lights.
-And for some reason, you felt an overwhelming urge to try them on.”
+Sonia raised a hand before he could go on.
+“They lit up,” she said. “And you wanted to know what it would be like to wear them.”
 
 Nate’s mouth opened, then closed again.
 His blush deepened, his eyes darting away from hers.
 “How do you know?” he muttered finally.
 
 Sonia sighed, stepping further into the office.
-“Because it’s what everyone keeps telling me.
-And let me guess: they won’t come off.”
+“It’s becoming a familiar story. They won’t come off?”
 
-Nate gestured helplessly to the ruined wire cutter on his desk.
-The metal edges were bent and useless, the tool clearly no match for the unyielding material of the cuffs.
-“Not even a dent,” he said, his voice tinged with despair.
-“It’s like... like something magical straight out of a fetish story.”
+Nate held up the cutter so she could see the bent edges.
 
-Sonia stifled a chuckle, her gaze sweeping over him again.
-Nate, usually so composed and scientific, was now visibly flustered,
-trapped in glowing bands and impossibly high heels.
-The juxtaposition was almost too much.
+“Not a mark on the cuff. Look at the tool.” He set it down. “This is absurd. It is like... like something magical straight out of a fetish story.”
+
+Sonia nearly laughed, then saw that Nate was waiting for her to do exactly that. She looked at the bands instead.
 
 “I take it you weren’t prepared for this level of... interactivity,” Sonia said, stepping closer.
 
-Nate groaned, rubbing a hand over his face—well, as much as the bands would allow.
-“I wasn’t prepared for anything.
-I was just trying to catalog them, and then they started glowing.
-And...
-I don’t know, Sonia.
-It was like my brain stopped working.
-I just had to know what they felt like.”
+Nate groaned.
+“I was cataloging them. I knew perfectly well what they were.” He rubbed at his face. “Then they lit up, and knowing didn’t seem to make any difference. I wanted to try them.”
 
 “And now you know,” Sonia said dryly, gesturing to the heels and bands.
 
 Nate shot her a withering look. “Yeah, thanks for pointing that out.”
 
-Sonia tilted her head, studying the glowing blue lines on the cuffs.
-“The artifacts seem to activate differently for everyone,” she mused aloud.
-“But the compulsion to interact with them seems... consistent.”
+Sonia studied the blue lines. “Different pieces. Same need to put them on.”
 
 She placed a hand on the desk, leaning closer to inspect the ankle cuffs.
 The glow pulsed faintly, the light running along the grooves like liquid.
@@ -2971,22 +2487,15 @@ The craftsmanship was exquisite, otherworldly, and entirely unyielding.
 “Just like the collar and belt I’ve seen.
 They won’t come off without some kind of override.”
 
-Nate slumped slightly, his shoulders sagging. “Great. So I’m stuck like this forever?”
+Nate looked at the ruined cutter again. “Is there anything that will open them?”
 
-“Not forever,” Sonia said, though her tone lacked certainty.
-She tapped the ring on her finger, feeling the familiar hum resonate faintly as she stood close to him.
-The artifacts reacted to her presence—just as they had with Marion, Carla, and now Nate.
-
-“I think,” Sonia said slowly, “I can help. But I need to ask you something first.”
+“I think I can help.” Sonia tapped the ring on her finger. It hummed as the bands responded, just as the collar and Carla’s belt had done. “But first I need to ask you something.”
 
 Nate hesitated, looking up at her warily. “What?”
 
 “Do you want to be free of them?” Sonia asked, her voice soft but deliberate.
 
-Nate blinked, his lips parting as if to answer, but the words caught in his throat.
-His gaze shifted to the glowing bands, then the heels.
-A flicker of something—confusion?
-hesitation?—passed across his face.
+Nate looked down at his wrists. Sonia waited. He had been trying to cut the things off; the answer ought to have been simple.
 
 Sonia arched an eyebrow, her voice firm now. “Nate. Answer me honestly. Do you want me to remove them?”
 
@@ -2998,13 +2507,11 @@ I don’t know,” he admitted, his voice barely above a whisper.
 Nate winced sharply, his face contorting in pain as if he’d just been struck across the soles of his feet.
 He staggered slightly, the impossibly high heels forcing him to catch himself against the desk.
 
-Sonia crossed her arms, her tone cool and matter-of-fact.
-“These things don’t tolerate lies very well, Nate,” she said, "or evasions, for that matter."
-Her voice taking on the cadence of a patient teacher explaining something to a particularly slow child.
-“Try again.”
+Sonia folded her arms.
 
-Nate’s blush deepened, spreading from his cheeks down to his neck.
-He fidgeted with the bands around his wrists as he glanced down at the desk, clearly wishing it could swallow him whole.
+“They don’t seem to like that answer. Lies, evasions—try again, Nate.” Her patience sounded practiced even to her.
+
+Nate turned one wrist as far as the band allowed, looking for something on the desk he could fix his eyes on.
 
 “It...” he began, his voice faltering.
 His hand gestured awkwardly toward the bulge in his pants,
@@ -3033,10 +2540,9 @@ Sonia’s smile widened, a wave of power surging through her.
 “Good,” she said, her voice low and deliberate.
 “Now we’re getting somewhere.”
 
-Nate glanced up at her, his expression a mix of shame and relief, as though admitting the truth had unburdened him.
-But Sonia wasn’t finished.
+He looked up as if the admission might be enough. Sonia let the pause last.
 
-“Say it again,” she demanded, her tone brooking no argument. “Louder. Own it.”
+“Say it again,” she demanded. “Louder. Own it.”
 
 Nate’s breathing quickened, his chest rising and falling as he tried to muster the courage.
 Finally, he lifted his head, meeting Sonia’s gaze, and spoke with a shaky but audible voice.
@@ -3076,7 +2582,7 @@ Her eyes narrowed as she gestured toward him.
 
 Nate nodded wordlessly, his face still flushed but his posture stiff with compliance.
 
-Sonia’s voice took on a sharper edge.
+Sonia spoke more sharply.
 “Find a cock cage, Nate.
 One with thigh bands.
 Clean it thoroughly, and activate it with sunlight.
@@ -3095,50 +2601,40 @@ And yet, the thought of compliance—of following Sonia’s commands to the lett
 and he felt himself rise in his pants again.
 
 
-Sonia strode through the hallways, her heels clicking with a purpose that matched the rhythm of her heartbeat.
-The thrill of power coursed through her veins, undeniable, intoxicating, and impossible to resist.
+Sonia strode down the hallway.
+She wanted to give another order.
 Her mind lingered on her words to Nate,
 the sight of him squirming under her command, the way the artifacts had bent him to her will.
 
-But she wasn’t just riding a wave of dominance.
-She was leaning into it, letting it wash over her, letting it define her.
+She was choosing this control.
 
-At the broom closet, Sonia paused, her fingers brushing the cold metal handle before pulling it open.
+Sonia opened the broom closet.
 The items she had stashed earlier sat on the lowest shelf, hidden from prying eyes.
 She crouched down,
 lifting each piece carefully—the chastity belt, the thigh bands, the wrist bands, and the elbow bands.
 
-Each artifact carried the same otherworldly craftsmanship, smooth and sleek,
-glowing faintly as if eager to serve their ancient purpose again.
-Sonia now knew these things were nearly indestructible.
-No need to clean them with dainty brushes and scrapers.
-She carried them to a nearby sink, setting them down one by one.
+The hidden pieces glowed faintly as she lifted them. Sonia thought of the cutter failing to dent Nate’s cuffs as she carried them to the sink. She had spent days with brushes and a pick on the collar; perhaps these did not need such delicate treatment.
 
 The hum of the ring on her finger grew stronger as she worked, cleaning the artifacts with precision,
-her hands steady despite the storm of emotions swirling inside her.
+keeping her hands steady.
 The belt gleamed under the water, its intricate designs catching the light as she scrubbed away centuries of grime.
 The bands followed, their metallic surfaces shining like mirrors when she finished.
 
-Sonia stepped out into the sunlit corridor, laying the items out carefully where the rays could charge them.
+Sonia stepped out into the sunlit corridor, laying the items out carefully to charge them.
 She watched as the faint blue lines began to glow more brightly, the artifacts awakening under the sunlight’s touch.
 
-She sighed, crossing her arms as she stood back.
-Fate, she thought wryly.
-Or whatever twisted force is at work here.
-It had thrust her into this position of control, of ownership.
-She could have resisted—perhaps should have—but the power was too sweet, too consuming.
+She stood back from the sunlit pieces. Fate was a tempting word for it. It left out the deleted records and the decision to hide them in the closet.
 
-By the time the sun began to dip below the horizon, Sonia returned to her office.
+A little later Sonia returned to her office.
 She set the artifacts out on the desk, their glow still faint but steady.
-They hummed faintly in unison, a chorus of anticipation that matched the rhythm of the ring on her finger.
+They hummed in time with her ring.
 
 Not long after, a soft knock came at her door.
 
 “Enter,” Sonia said, her voice firm, steady.
 
 The door creaked open, and Carla and Nate stepped inside.
-Their faces were a study in contrasts—crimson with shame,
-yet their eyes burned with the unmistakable glow of submission.
+Both blushed and lowered their eyes.
 They moved without hesitation, their bodies obeying some unspoken command.
 
 Wordlessly, they knelt in perfect pose.
@@ -3149,24 +2645,20 @@ the requested cage next to him
 Sonia leaned back against her desk, her gaze sweeping over them with a mixture of satisfaction and calculation.
 They were hers now, both of them, bound by the artifacts they wore and the commands they couldn’t resist.
 
-“Good,” she said softly, the word carrying the weight of her authority. “You’ve both done well today.”
+“Good,” she said. “You’ve both done well today.”
 
-Neither of them spoke, their silence an act of reverence.
+Neither spoke.
 
-Sonia smiled faintly, the power surging through her again.
-She was no longer resisting it, no longer pretending this wasn’t exactly what she wanted.
-She had claimed them, and they had submitted.
-
-The day might be ending, but Sonia’s reign over them was only beginning.
+She had thought about this at her desk. Having both colleagues kneeling here was different. She let herself look at them a little longer before speaking.
 
 
-Sonia’s voice was sharp and commanding, cutting through the silence of the room like a blade.
+Sonia broke the silence.
 
 “Nate,” she said, her tone leaving no room for argument, “get naked.”
 
-Nate’s face, already a deep crimson, somehow managed to darken further.
+Nate blushed harder.
 He hesitated for a moment, his hands twitching,
-but Sonia's presence—and the implicit power of the ring over the items he wore—left him no choice.
+but Sonia and the ring left him no choice.
 Slowly, awkwardly, he began stripping off his clothes, his movements stiff with embarrassment.
 
 Sonia turned her attention to Carla.
@@ -3194,9 +2686,9 @@ before she shifted her attention back to Nate.
 
 Nate, now naked save for the glowing bands and heels, dropped to his knees with a clatter of metal against the floor.
 He crawled forward, the humiliating position making his face burn even brighter,
-and held up the cock cage in both hands like an offering.
+and held up the cock cage in both hands.
 
-Sonia took the cage, her fingers brushing over the smooth, cool surface as she inspected it.
+Sonia took the cage and inspected its smooth surface.
 The faint hum of activation pulsed through the artifact, its blue lines glowing faintly in readiness.
 
 “Stand up, Nate,” Sonia ordered. “Legs apart. Be available.”
@@ -3223,8 +2715,7 @@ I want you to... to lock me up, control me.”
 Sonia raised an eyebrow, her lips curving into a sly smile.
 She stepped closer, the cock cage gleaming in her hand as she prepared to lock Nate into his new reality,
 while in the background Carla's muffled cries of pleasure and desperation filled the air.
-The sound of the belt forcing yet another orgasm from Carla was a symphony of submission,
-but Sonia’s focus was entirely on Nate.
+Carla cried out again, but Sonia kept her attention on Nate.
 
 “And why is that, Nate?”
 Sonia asked, her voice smooth and low.
@@ -3238,22 +2729,22 @@ His shackled wrists trembled behind his back, but he couldn’t bring himself to
 
 Sonia tilted her head slightly, her gaze piercing.
 
-“I’ve always had these fantasies,” Nate admitted, the words tumbling out now.
+“I’ve always had these fantasies,” Nate admitted, speaking quickly now.
 “And when I saw the artifacts light up, I...
 I was powerless.
 I had to try them on.
 I need to be controlled.
 I need to be disciplined.
 Without it, I...”
-He trailed off, his shame heavy in the air.
+He trailed off, ashamed.
 
 Sonia’s lips curved into a sly smile as she stepped closer,
 her fingers brushing lightly over the gleaming cage in her hand.
-“Good boy,” she said softly, her voice like velvet.
+“Good boy,” she said softly.
 “Now, let’s make sure you get exactly what you want.”
 
 Nate’s breath hitched as Sonia knelt slightly, the cage in her hands gleaming ominously under the light.
-She moved with a calm precision, her hands steady as she began fitting the intricate device around his exposed privates.
+She began fitting the device around him.
 
 The first piece was a shackle that encircled his scrotum, with an attached metal shell.
 It clicked shut with a faint metallic sound.
@@ -3262,8 +2753,7 @@ Nate winced slightly, the containment unfamiliar, though not painful. Yet.
 
 Next came the stiffly connected shackle for his cock.
 Sonia adjusted it with deliberate care, sliding his length into the curved cage.
-The interior was lined with faint,
-teasing spikes—too soft to break the skin but sharp enough to promise discomfort if arousal dared to rise.
+Small spikes lined the interior, too soft to break the skin but enough to make arousal painful.
 
 The cap at the end of the cage sealed over the sensitive tip of his cock,
 leaving it completely shielded and utterly inaccessible.
@@ -3287,7 +2777,7 @@ thigh bands ensuring his movements were delicate and restricted.
 
 Nate glanced down at himself, his blush deepening as he took in the transformation.
 The plate and bands made it clear that he wouldn’t be able to wear pants while locked in this state.
-His body felt alien, reshaped by the restraints into something utterly controlled and undeniably submissive.
+His body felt unfamiliar in the restraints.
 
 “You look perfect,” Sonia said, her voice filled with quiet satisfaction. “Just as you should be.”
 
@@ -3299,15 +2789,13 @@ Sonia smirked, folding her arms as she stood over him.
 Now,” she said, her tone turning sharp, “kneel.”
 
 Nate sank to his knees immediately, the chains on his thigh bands clinking faintly as he obeyed.
-Sonia’s smirk deepened.
-Nate might have been struggling to accept his situation,
-but there was no denying one truth now: he belonged entirely to her.
+Sonia smiled. She considered him hers now.
 
 
 Sonia turned sharply toward Carla, who was still writhing helplessly on the floor.
-Her voice was slicing through the air with the precision of a blade. “Enough already.”
+She spoke sharply. “Enough already.”
 
-The command hit Carla like a physical force, and the belt responded instantly.
+The belt responded at once.
 The mechanisms that had been mercilessly driving her through wave after wave of forced orgasms shut down mid-build,
 leaving her teetering on the edge.
 Her body jerked, her breath hitching as she felt herself denied yet again—but this time, Sonia had timed it perfectly,
@@ -3319,18 +2807,15 @@ leaving her more sensitive and raw than sated.
 And now?
 Now she was left unfulfilled, her arousal burning brighter than ever, a cruel mix of relief and frustration.
 
-She looked up at Sonia, her emotions swirling in a chaotic storm—thankful for the reprieve,
-angry at the denial, and desperate for satisfaction that refused to come.
-It was too much.
-The contradictions clawed at her, and a sharp pang of resentment bubbled to the surface.
+She looked up at Sonia, grateful for the pause but angry at the denial.
 
-The words were forming before she could stop them, a sharp retort, something biting and disrespectful.
+She almost answered back.
 But before they left her lips, the belt reacted.
 
-The flick was sudden and sharp, like a whip crack against her clit.
+She felt a sudden, sharp flick against her clit.
 Carla yelped,
 her knees buckling as pain shot through her,
-snuffing out the words and replacing them with an immediate, visceral lesson.
+and she could not speak.
 
 Disobedience wasn’t just discouraged—it was impossible.
 
@@ -3339,7 +2824,7 @@ The belt’s hum settled into a low, insistent vibration, a silent reminder of w
 
 Carla’s anger dissipated as quickly as it had come, replaced by shame and a renewed sense of helplessness.
 She lowered her gaze, her cheeks burning as she whispered, “Thank you, my Queen.”
-The words were automatic, forced on her by the disorienting hum, but they carried weight.
+The hum forced the words from her.
 
 Sonia watched her closely, her sharp gaze catching every flicker of emotion that crossed Carla’s face.
 The mix of anger, pain, and reluctant gratitude was exactly what she had intended.
@@ -3351,9 +2836,7 @@ She had no choice but to accept it.
 
 
 
-Sonia smirked as she watched Carla and Nate kneeling before her, their postures stiff with obedience.
-The rush of power consumed her, fanning the flames of her fantasies.
-She barely restrained herself as the words poured out, her tone sharp and commanding.
+Sonia looked f rom Carla to Nate. The next idea came so readily that she spoke before considering what either of them might make of it.
 
 “Nancy here,” she said smoothly,
 gesturing toward the chastened, shackled man, “will need help dressing, given her new jewelry.
@@ -3361,12 +2844,11 @@ Help her make herself decent, Carla.
 Explain shaving, makeup—everything she’ll need to know.”
 Her voice dipped slightly, dripping with condescension.
 
-Carla’s breath caught, the command settling over her like a weight.
+Carla caught her breath at the command.
 She glanced at Nate—Nancy–standing awkwardly in his chains and heels, his face a deep crimson—and nodded,
 knowing resistance was pointless.
 
-Sonia’s smirk widened as she continued, the rush consuming her thoughts,
-pushing her to indulge her own whims without care.
+Sonia went on, enjoying herself.
 “And you can take her home tonight,” she added.
 “She’ll need to learn to serve, to present herself properly, and she might as well learn from you.
 Teach her what it means to be pleasing a woman.”
@@ -3381,22 +2863,18 @@ Carla quickly grabbed Nate's old clothing.
 
 Sonia watched them go, her smirk fading into a thoughtful expression as the door clicked shut.
 
-Carla was quick to compose herself once she and Nancy were out of Sonia’s sight.
-She adjusted her blouse, brushed her hair into place, and straightened her posture,
-projecting an air of control despite the chaos churning inside her.
+Outside the office, Carla straightened her blouse and smoothed her hair. Nancy was waiting for her to say what came next. Carla drew herself up before turning round.
 She dragged Nancy into an empty office and tried to fit her into Nate's clothing,
 but that was obviously impossible for anything below the waist: belt, thigh bands and heels conspired against all efforts.
 She opened a closet, and luckily found a long coat.
 
-“You heard her,” Carla said sharply, glancing at Nancy as they walked briskly down the hallway.
-“We have work to do, and I won’t have you embarrassing either of us.
-Let’s get moving.”
+“One thing at a time,” Carla said. “First we make you presentable. Then we get you out of here without embarrassing either of us.”
 
 Nancy nodded mutely, her movements awkward and mincing as the chains on her thigh bands forced her to take tiny steps.
 They made as quickly as possible for Carla’s office,
-where she stationed Nancy, white she tried to get all the necessities.
+where she left Nancy while she gathered what they needed.
 
-By the time she left the building, Carla’s mind was racing, already forming a list of what they would need.
+Once she left the building, Carla began sorting what they needed into a list. That much she knew how to do.
 
 Shaving kit.
 Nancy's legs were a disaster, and there was no way she’d be presentable without a full clean shave.
@@ -3420,25 +2898,20 @@ As the list grew in her mind, Carla’s lips twitched into a wry smile.
 She could feel the lingering effects of her own belt—its hum, the memory of the forced orgasms,
 and the ache of unfulfilled arousal—but Sonia’s command gave her focus.
 
-And, she admitted to herself,
-there was a certain satisfaction in the thought of guiding Nate through this transformation.
+Nancy would have to listen to her. Carla caught herself planning the first lesson and found, to her surprise, that she was looking forward to it.
 
 When she came back to her office, she turned to Nancy, her expression firm.
 “Let’s start with the basics,” she said, pulling him toward the bathroom.
 “Shaving first.
 Then we’ll find you something appropriate to wear.”
 
-Sonia sat alone in her office, the late afternoon sunlight filtering through the blinds,
-casting striped shadows across her desk.
+Alone in her office, Sonia watched late-afternoon light fall through the blinds onto her desk.
 She leaned back in her chair, her hand resting on the smooth, humming surface of the Atlantean ring.
-The power it radiated was undeniable—a tangible connection to the people
-she had claimed and the control she wielded over them.
+Through it she felt the people she had claimed.
 
-But as she sat there, the weight of the day pressed down on her.
+She had set out to ask about the artifacts. Now Carla and Nate belonged to her.
 
-Two slaves.
-
-She had collected *two additional slaves* today.
+Two more people, in a single working day.
 
 Carla,
 who had been hopelessly ensnared by her own curiosity and impulsive experimentation,
@@ -3447,12 +2920,9 @@ They’d both needed help, sure, but was this the help they needed?
 Sonia had acted without hesitation, claiming them both,
 binding them to her will as though it were the most natural thing in the world.
 
-The hum of the ring thrummed faintly against her skin, as if in agreement.
+The ring hummed against her skin.
 
-Her fingers curled into a fist, her knuckles whitening.
-She had let herself get carried away.
-Worse, she had reveled in it.
-The rush of power, the thrill of their submission—it had consumed her, drowned out any restraint or consideration.
+She closed her hand over the ring. There had been moments when she could have stopped to think. She could remember them; she had gone on speaking instead.
 
 And then there was Nate—Nancy.
 
@@ -3461,10 +2931,7 @@ She’d always had an issue with men—messy, undisciplined creatures that neede
 But what she’d done to him wasn’t just discipline.
 She’d taken it further, indulging in her own fantasies, bending him into something that fit *her* vision of obedience.
 
-He had begged for it, hadn’t he?
-Begged to be locked, to be controlled.
-But that wasn’t an excuse.
-She was supposed to be in control—not just of them, but of herself.
+Nate had asked for control. She could repeat that to herself as often as she liked; it did not explain every choice she had made afterwards. Her mother’s lesson was inconveniently clear on that point.
 
 Sonia glanced down at the ring on her finger, the faint glow reflecting in her eyes.
 Through the connections it forged, she could feel them—Nancy kneeling in Carla’s office,
@@ -3476,35 +2943,25 @@ And Marion.
 
 Her sweet, devoted Marion.
 
-Sonia’s breath hitched as she felt the connection to Marion—raw, overwhelming need radiating through the bond.
+Through the bond, Sonia felt Marion’s need.
 Marion was waiting for her, work done, kneeling by the door, her entire being focused on Sonia’s return.
 
-Sonia’s chest tightened.
-Marion wasn’t just another slave.
-She wasn’t like Carla or Nancy.
-Marion was *hers* in a way that went deeper, beyond the collar, beyond the artifacts.
+She loved Marion. That had not begun with the collar.
 
 “I need to be with her,” Sonia murmured, her voice breaking the silence of the room.
 She rose abruptly, gathering her things and leaving the office without another glance back.
 
-
 ## Finally Home
 
-When Sonia opened the door to their apartment,
-she was greeted by the sight of Marion kneeling perfectly by the entrance,
-her head bowed low in a deep kowtow.
-The devotion radiating from her was almost palpable, an unspoken offering of herself to her Queen.
+Marion was kneeling just inside the apartment, bent low enough that Sonia could see little of her face. Sonia closed the door. Marion waited.
 
-Sonia’s heart ached as she stepped inside, closing the door softly behind her.
+After the day at work, that quiet welcome was almost too much.
 
 “Rise,” she commanded gently.
 
-Marion obeyed instantly, lifting herself gracefully to her knees, her eyes wide and shining as they met Sonia’s.
-She looked radiant, her love and need plain on her face.
+Marion straightened from the bow, still on her knees, and looked up.
 
-Sonia reached for her, and Marion surged forward, wrapping her arms around Sonia’s waist as they embraced tightly.
-Their lips met in a deep, needy kiss,
-all the tension and turmoil of the day melting away in that single moment of connection.
+Sonia reached down, and Marion put her arms round her waist. They kissed. Sonia had not realized how tightly she was holding herself until Marion held her instead.
 
 Marion whimpered softly against Sonia’s lips, her fingers clutching at Sonia’s back as though afraid to let go.
 Sonia’s hands cupped Marion’s face, her thumbs brushing away the faint traces of tears she hadn’t realized were there.
@@ -3514,24 +2971,17 @@ Sonia’s hands cupped Marion’s face, her thumbs brushing away the faint trace
 “My Queen,” Marion replied, her voice trembling with devotion.
 
 They kissed again, deeper this time, their connection raw and unguarded.
-For the first time all day, Sonia felt secure,
-the storm inside her calming in the presence of the one person who truly understood her.
+For the first time all day, Sonia felt secure in Marion’s arms.
 
 Marion clung to Sonia for a moment longer, her face buried in the curve of her Queen’s neck.
-The hum of the collar around her was a gentle background now, a constant reminder of her place and purpose.
+The collar hummed quietly.
 She pulled back, her gaze bright and full of love, and rose gracefully to her feet.
 
-“Come in, my Queen,” Marion said with a warm smile, taking Sonia’s coat and bag.
-“Dinner’s almost ready.
-I made your favorite—well, one of your favorites.
-I’m trying to keep track of them all.
-It’s a full-time job!”
+“Dinner’s nearly ready, my Queen.” Marion took her coat and bag. “One of your favorites. I’d say your favorite, but you keep changing your mind.”
 
 Sonia chuckled, her lips quirking into a smile as she slipped off her shoes. “You’re too good to me.”
 
-“I know,” Marion replied, her tone light and teasing.
-She hung up the coat and gestured for Sonia to sit at the table.
-“But it’s my job to be good to you, isn’t it?”
+“I know.” Marion hung up the coat. “Sit down before you decide to go back to work.”
 
 Sonia allowed herself to be guided to the chair at the head of the table, where Marion had already set a glass of wine.
 Marion moved quickly to the kitchen, fetching the dishes with practiced efficiency.
@@ -3542,13 +2992,9 @@ Your eyes are doing that thing.”
 
 “What thing?” Sonia asked, raising an eyebrow.
 
-“That thing where you’re holding onto some deliciously dark secret and wondering how to break it to me,” Marion replied,
-taking her seat beside Sonia.
-She leaned in conspiratorially.
-“Spill, my Queen.
-Your humble subject demands it.”
+“You’re looking at me, but you’re rehearsing something.” Marion sat beside her. “I do know you, my Queen. Out with it.”
 
-Sonia laughed softly, swirling her wine in its glass.
+Sonia laughed softly, swirling her wine in the glass.
 “You’re impossible,” she said, shaking her head.
 “Fine.
 But first, a toast.”
@@ -3557,21 +3003,17 @@ Marion straightened in her chair, lifting her glass with a playful glint in her 
 
 “To us,” Sonia corrected, clinking her glass against Marion’s.
 
-As they began to eat, Marion’s attentiveness became apparent.
-She kept Sonia’s glass topped off without needing to be asked, adjusted the placement of utensils,
-and fetched extra condiments the moment Sonia glanced toward them.
-It was all done seamlessly, naturally, without any sense of forced servitude.
+As they ate, Marion kept noticing things before Sonia asked: her glass needed filling, she was looking for a condiment. She adjusted the utensils too. Sonia watched her do it, wondering how much of this she would have noticed a week ago.
 
-“Alright,” Sonia said finally, setting her fork down. “You’re right—something happened today. Two somethings, actually.”
+Sonia put down her fork. “Two people at work tried the artifacts.”
 
-Marion tilted her head, intrigued. “Oh? Big somethings or little somethings?”
+Marion tilted her head, intrigued. “Two?”
 
-“Big,” Sonia said, her tone heavy with implication. “And glowing. Like your collar.”
+“Pieces that were awake. Like your collar.”
 
 Marion’s eyebrows rose. “More artifacts? What happened?”
 
-Sonia took a sip of her wine, gathering her thoughts.
-“I encountered two people at work who… let’s just say, couldn’t resist the pull of the artifacts.”
+Sonia took a sip of wine. “They couldn’t leave them alone.”
 
 Marion’s lips twitched into a small smile. “Sounds familiar.”
 
@@ -3581,20 +3023,17 @@ She found herself locked into a chastity belt that had come alive.”
 
 Marion’s expression softened with understanding. “Poor thing. It’s… a lot to handle.”
 
-“And Nate,” Sonia added, her voice tinged with wry humor.
+“And Nate,” Sonia looked down at her glass.
 “He’s now Nancy.
 The artifacts had other ideas about his role, and, well, I might have encouraged it.”
 
 Marion’s eyes sparkled with interest, though there was no jealousy in her expression. “You claimed them?”
 
-“I did,” Sonia admitted, her voice steady but tinged with self-awareness.
-“I had to.
-They were lost without direction.
-And the artifacts…” She trailed off, gesturing vaguely.
+“Yes. They were trapped in the things, and I had the ring.” She turned it on her finger. “They needed someone to take charge.”
 
 Marion nodded slowly. “They don’t give us much choice, do they?”
 
-“No,” Sonia agreed, her tone softening. “They don’t. But I still feel responsible. They’re my subjects now. Like you.”
+“No.” Sonia paused. “But I’m responsible for them now. They’re my subjects. Like you.”
 
 Marion leaned back in her chair, her smile playful. “Oh, no one’s like me, my Queen. I’m the best subject, obviously.”
 
@@ -3618,9 +3057,9 @@ They’re alive, in a way.”
 
 Marion reached over, her hand brushing Sonia’s lightly. “You’ll handle it,” she said softly.
 
-Sonia smiled at her, her heart swelling at the words. “And you’re my Marion. My confidante. My strength.”
+Sonia turned her hand under Marion’s and held it. “I needed to come home and tell you.”
 
-They shared a quiet moment before Marion’s smile turned sly again.
+Then Marion smiled slyly.
 “But really, Nancy?
 You’re going to have to tell me more about that one later.”
 
@@ -3631,21 +3070,20 @@ Sonia laughed, shaking her head. “You’re impossible.”
 After dinner, Marion knelt gracefully on the cushion before the couch, her posture straight but relaxed,
 her hands resting lightly on her thighs.
 The collar around her neck gleamed faintly in the warm light of the living room,
-its hum a subtle backdrop to her composed, attentive demeanor.
+humming as she waited.
 Sonia sat on the couch above her, one leg crossed over the other,
 her gaze distant and thoughtful as she swirled the glass of wine in her hand.
 
 After a moment of silence, Sonia sighed and leaned forward, her free hand brushing absently through Marion’s hair.
 Marion tilted her head slightly into the touch, her expression serene, waiting for her Queen to speak.
 
-“You’re curious, I can tell,” Sonia began, her voice quiet but steady. “About Nancy. About what I did.”
+“You want to know about Nancy.”
 
-Marion’s lips curved into a small smile. “Of course, my Queen. You always know how to leave me wanting more.”
+“I want to know why you keep starting that story and stopping,” Marion said.
 
-Sonia huffed a soft laugh but didn’t return the smile.
-Instead, she set her wine glass down on the table and rested her elbows on her knees,
-clasping her hands in front of her.
-“It was… a lot,” she admitted, her tone tinged with self-awareness.
+Sonia gave a short laugh and set down the wine. With her elbows on her knees, she could look at Marion without having to look down so far.
+
+“It was… a lot,” she admitted.
 “More than I planned.
 More than I should have allowed myself to do.”
 
@@ -3669,14 +3107,9 @@ The spikes inside made sure any arousal came with a price.”
 
 Marion’s eyes widened slightly, but she stayed silent, letting Sonia continue.
 
-“It was humiliating for him,” Sonia said, her tone quieter now.
-“But it was also… freeing.
-He didn’t have to hide anymore.
-I made him admit the truth—how he felt, what he wanted.
-It was like watching a dam break.
-All that shame, all those buried desires, finally spilling out.”
+“He was ashamed,” Sonia said. “Then he said it aloud, and he seemed relieved. I thought I’d helped him.”
 
-Marion nodded slowly, her gaze thoughtful. “So, you helped him. In your way.”
+“Perhaps you did,” Marion said. “In your way.”
 
 Sonia laughed softly, though there was little humor in the sound.
 “Helped him?
@@ -3705,20 +3138,19 @@ I let myself go, indulged in it.
 I claimed him—her—without a second thought.
 I reshaped her reality because I could.”
 
-Marion studied Sonia’s face, her expression unreadable for a moment.
-Then she smiled gently, her tone calm and steady.
+Marion watched her a moment.
+Then she smiled gently.
 “And did Nancy need it?
 The leadership, the discipline?”
 
-Sonia looked down at her, her lips pressing into a thin line.
-“Yes,” she admitted finally.
+“Yes.” Sonia let the answer sit between them.
 “She needed someone to take control.
 To force her to be honest with herself.
 But that doesn’t mean I wasn’t carried away.
 It doesn’t mean I didn’t enjoy it too much.”
 
 Marion leaned forward slightly, her hands brushing lightly against Sonia’s knees.
-“My Queen,” she said softly, her voice filled with warmth, “you’re human.
+“My Queen, you’re human.
 You have power, but you also have a heart.
 You felt the pull of the ring, yes, but you also saw what Nancy needed.
 You gave it to her.
@@ -3731,19 +3163,13 @@ Marion smiled, leaning into the touch. “It’s my job, isn’t it? To care for
 
 Sonia chuckled, some of the tension easing from her shoulders. “You make it sound so simple.”
 
-Sonia let her hand rest against Marion’s cheek, the warmth of her skin grounding her,
-pulling her from the storm of thoughts in her mind.
-Marion’s words, spoken with such confidence and affection, were a balm to her frayed nerves.
+Sonia rested a hand against Marion’s cheek. She wanted to hear the reassurance again, though she knew Marion could only know the story she had told her.
 
-“All good things in life are simple,” Marion said softly, her lips curling into a tender smile.
+“Some things are,” Marion said, smiling.
 Then, without waiting for permission, she leaned forward from her kneeling position,
 her hands sliding gently up Sonia’s thighs.
 
-Through the ring, Sonia felt the pulse of Marion’s need—a deep,
-yearning ache—but it was tempered by something stronger: devotion.
-Absolute, unyielding devotion to her Queen.
-Marion’s desire to serve, to care for Sonia, outweighed her own longing,
-and Sonia could feel the purity of that sentiment humming through their connection.
+Through the ring, Sonia felt Marion’s need. But Marion wanted to care for her more than she wanted relief.
 
 Sonia exhaled slowly, letting her head rest against the back of the couch as she spread her legs slightly,
 inviting Marion closer.
@@ -3752,8 +3178,7 @@ inviting Marion closer.
 
 Marion’s smile deepened as she obeyed, her hands moving with deliberate slowness.
 She eased Sonia’s blouse up, her fingers brushing over her stomach and ribs, her touch light and reverent.
-Sonia’s exhaustion melted under Marion’s ministrations,
-her body relaxing as Marion leaned in, her lips brushing over the sensitive skin just below Sonia’s collarbone.
+Sonia relaxed as Marion leaned in and kissed the skin below her collarbone.
 
 Marion’s kisses trailed upward, finding Sonia’s neck, her jawline, before her lips closed over the curve of her ear.
 Her breath was warm, her movements unhurried.
@@ -3772,21 +3197,18 @@ easing them down along with her underwear.
 Marion knelt fully now, her lips and hands traveling lower, her movements still slow and intentional.
 She spread Sonia’s legs wider, her fingers brushing over her folds, slick with anticipation.
 
-Sonia’s breath hitched as Marion’s tongue replaced her fingers, the warm,
-wet pressure igniting sparks of pleasure that made her toes curl.
+Sonia’s breath hitched as Marion’s tongue replaced her fingers, making her curl her toes.
 Marion worked skillfully, her mouth worshipful,
 her tongue exploring every sensitive spot with an intimacy that made Sonia shiver.
 
-Through the bond, Sonia felt Marion’s happiness bloom.
-The more Sonia let herself go, the more pleasure Marion took in her service.
+As Sonia relaxed, she felt Marion’s happiness grow through the bond.
 Marion’s need didn’t diminish, but it remained firmly in check, overshadowed by the joy of pleasing her Queen.
 
 Sonia let herself sink fully into the sensations,
 her hips moving subtly against Marion’s mouth, her breathing growing heavier.
 Her hand tightened slightly in Marion’s hair, urging her closer, her movements more insistent.
 
-When Sonia finally came, the release was slow and shuddering,
-a deep warmth spreading through her body as she let out a soft moan.
+When Sonia finally came, she shuddered and moaned.
 Marion didn’t stop until Sonia gently tugged her head back, guiding her to rest her cheek against Sonia’s thigh.
 
 Sonia sat for a moment, catching her breath, her hand brushing softly over Marion’s hair.
@@ -3832,18 +3254,16 @@ brushing them over Marion’s thigh before leaning down to press a kiss to her f
 Marion smiled up at her, her cheeks flushed, her body still trembling slightly.
 “Anything for you, my Queen,” she murmured, her voice barely above a whisper.
 
-Sonia pulled her into her arms, cradling her close as they lay together on the couch,
-the bond between them humming with contentment.
+Sonia pulled her close and they lay contentedly on the couch.
 
-Sonia drifted in and out of sleep, the warmth of Marion’s body against hers a comforting anchor.
-The hum of the collar and the ring was a subtle background to her dreams,
-threading through her mind like a faint melody.
+Sonia drifted in and out of sleep, warm against Marion.
+She heard the collar and ring hum even in her dreams.
 But the connections were never truly silent.
 
 Through the bond, Sonia could faintly sense Carla and Nancy.
 
 Nancy was enduring an education in service,
-Carla clearly taking great joy in molding her former colleague into something softer, more obedient.
+and Carla seemed to enjoy teaching obedience to her former colleague.
 Sonia could feel Nancy’s frustration and shame—trapped in her cage, unable to feel arousal or pleasure of her own,
 forced instead to focus entirely on pleasing Carla.
 Yet, there was a flicker of something else, a burgeoning sense of purpose as Nancy accepted her new role.
@@ -3857,25 +3277,15 @@ Carla was creative, it seemed, sharing Sonia’s knack for turning servitude int
 
 Eventually, all the connections grew dim as sleep claimed everyone. This was her life now.
 
-At least three lives—Marion, Carla, and Nancy—revolved around her as their center, their sun, their Queen.
-Each connection hummed with a unique energy, each life shaped by her presence and her will.
-Marion’s devotion was pure and unshakable, Carla’s playful submission laced with a hunger for control,
-and Nancy’s budding servitude a complex blend of shame and longing.
+Three separate bonds, each different. Marion here beside her; Carla discovering that she liked to give instructions; Nancy struggling with shame and finding something she wanted within it. Sonia tried to hold all three in mind.
 
-She was their ruler, their guide, their idol.
-The power she wielded was immense, intoxicating, and yet it came with an equally immense responsibility.
-These people weren’t just her slaves—they were her subjects, her charges,
-and they depended on her for direction, for structure, for meaning.
+They would look to her tomorrow too. She would have to do more than enjoy being obeyed.
 
-And this, Sonia felt, was the way forward.
-She'd not be an Atlantean Slaver, wielding power without consideration.
-She'd be a Queen,
-ruling over her subjects – her power just as absolute, but her rule entirely different, compassionate, merciful,
-and looking out for those that were hers.
+A Queen, she thought. She would call it that, and try to make the distinction matter. The power would be no less absolute, but she would use it with mercy. She would care for the people who were hers.
 
 Sonia took a deep breath, letting her hand fall to her side as she looked down at Marion. “Thank you,” she said softly.
 
-Marion opened her eyes, her smile gentle. “For what, my Queen?”
+Marion stirred and opened her eyes. “For what, my Queen?”
 
 “For being here,” Sonia replied. “For being you. And for teaching me.”
 
