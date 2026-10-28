@@ -44,7 +44,7 @@ Read below, or click on the image for the EPUB download:
 
 # Delphine in Distress
 
-## Chapter 1: Engineering
+### Engineering
 
 I never thought engineering would lead to this.
 
